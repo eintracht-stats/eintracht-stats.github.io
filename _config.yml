@@ -4,8 +4,8 @@
 
 # Setup
 title:               Daily Flip
-tagline:             'Das Eintracht Tagebuch'
-description:         'Mein persönliches Fan-Tagebuch seit 1999'
+tagline:             'Das Eintracht Tagebuch seit 1999.'
+description:         'Mein persönliches Fan-Tagebuch seit 1999.'
 url:                 https://eintracht-stats.de
 baseurl:             ''
 paginate:            10
