@@ -1,0 +1,9 @@
+---
+layout: post
+title:  Eintracht schrammt an Sieg gegen Bayern vorbei
+subtitle:  
+---
+
+Die Eintracht schafft es in dieser Saison wirklich auch eigentlich gute Ergebnisse so zu gestalten, dass diese sich wie eine Niederlage anfühlen. Vor der Partie gegen den FC Bayern wäre ich mit einem 1:1 hochzufrieden gewesen. Aber so, wie das Spiel gelaufen ist, tut dieser eine Punkt verdammt weh...
+
+Nach einer ausgeglichenen ersten Halbzeit und einer aus Frankfurter Sicht durchaus ansprechenden Leistung ging es mit einem 0:0 in die Pause. Die zweite Hälfte sollte es dann in sich haben: Direkt nach Wiederanpfiff hatte Gomez das 1:0 auf dem Fuß, doch der in diesem Spiel starke Fährmann parierte glänzend. Das erste Tor erzielte die Eintracht, knapp 10 Minuten später. Nach einem Köhler-Freistoß legte Gekas für Rode auf und der Youngster zog flach ins linke Eck ab. Ein sehenswerter Treffer! Die Bayern versuchten in der Folgezeit weitgehend planlos und ohne echte Torgefahr auszustrahlen den Ausgleich zu erzielen. Doch die dickeren Chancen hatte die Eintracht. So bekam Gekas 20 Minuten vor Schluss eine Fenin-Flanke auf den Kopf, vergab aber knapp. Das krasseste Ding aber folgte 10 Minuten später. Im Mittelpunkt dabei war erneut Gekas: Nach einem Querpass von Russ verpasste der Grieche zwei Meter vor dem leeren Tor die Entscheidung. Ein unfassbarer Fehler, der sich rächen sollte. Hatte die Eintracht bei einem Handspiel von Clark im Strafraum sowie bei einem Gomez-Knaller (tolle Parade von Fährmann) noch Glück, ließ sich Schiedsrichter Drees in der 89. Minute zu einer folgenschweren Fehlentscheidung hinreißen. Fenin sollte im Strafraum gefoult haben und Gomez verwandelte den folgenden Elfmeter sicher. Die Eintracht hat einen unerwarteten Punkt gewonnen. Doch es fühlt sich nach diesem Spiel an wie zwei verlorene. Es sind jetzt 5 Punkte auf Gladbach und St. Pauli, sowie mindestens 2 Punkte auf Wolfsburg. Das reicht noch nicht...

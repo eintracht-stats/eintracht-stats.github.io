@@ -1,0 +1,13 @@
+---
+layout: post
+title:  Urlaubsbericht: Teil 8
+subtitle:  
+---
+
+ 
+
+Dieser Morgen war irgendwie anders: Der 1000-Füßler, der uns sonst immer Abends im Bad begegnete, schlängelte sich jetzt an unserer Zimmerwand entlang. Was jedoch so war wie immer: Meine Leseratte war ziemlich müde...  
+Als nächstes wurde der Fleischklotz aufgetaut, den wir zwei Tage zuvor gekauft hatten. Es sollte Geschnetzeltes geben und wir hatten dazu ein halbes Schwein gekauft...  
+Der Tag verlief mehr als ruhig. Ich beendete mein Buch (\*jubel\*) und bekam dann einen Schock. Die Schwester meiner Leseratte packte ein paar Rätselhefte aus. Da ich aus meinem letzten Urlaub noch weiß, wie so etwas enden kann, verkroch ich mich unter die Decke und schlief vorsichtshalber eine Runde...  
+Nachdem ich wieder erwacht war, versuchte ich meinen Koffer zu packen, da ja am nächsten Morgen unsere Abfahrt bevorstand. Aber irgendwie wurde ich von meiner kleinen Leseratte ziemlich davon abgehalten, so dass das Kofferpacken eine langwierige Angelegenheit wurde ;-)  
+Danach kam dann das Fleisch auf den Tisch, dazu gab es Knödel und kiloweise Gemüse! Meine Leseratte sortierte für mich liebevoll sieben Maiskörner aus, damit ich auch ein paar Vitamine zu mir nehmen konnte. Mit vollem Magen erholten wir uns noch ein wenig, dann gingen wir schlafen. Dummerweise war meine Leseratte diesmal NICHT MÜDE!!! Ich irgendwie schon und so wurde das Einschlafen wie zuvor das Kofferpacken eine Sache für sich...

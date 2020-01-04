@@ -1,0 +1,21 @@
+# Permalinks
+#
+# Use of `relative_permalinks` ensures post links from the index work properly.
+permalink:           pretty
+
+# Setup
+title:               eintracht-stats.de
+tagline:             'Das Eintracht Tagebuch'
+description:         'Persönliches Fan-Tagebuch seit 1999'
+url:                 https://eintracht-stats.de
+baseurl:             ''
+paginate:            10
+
+# About/contact
+author:
+  name:              Philipp Breither
+  url:               https://eintracht-stats.de/impressum
+  email:             flip@eintracht-stats.de
+
+# Custom vars
+version:             1.0.0

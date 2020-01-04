@@ -1,0 +1,9 @@
+---
+layout: post
+title:  Darmstadts Sicherheitsbehörden? Ohne Worte...
+subtitle:  
+---
+
+Dass Darmstadt mir ziemlich auf den S... geht, dürfte hinlänglich bekannt sein. Mit der gestrigen Entscheidung der Darmstädter Polizei wird diese Ansicht nur noch gefestigt: Die Polizei verfügte ein generelles Aufenthaltsverbot für Eintracht-Fans in der erweiterten Innenstadt von Freitag abend 19 Uhr bis Sonntag morgen 7 Uhr! Hallo? Man erkenne die Eintracht-Fans an ihrem Äußeren und an ihrem Verhalten... Halllooo? Das Verbot gelte grundsätzlich auch für Eintracht-Fans, die im Sperrbereich wohnen. Nur sei ein Platzverweis hier schwierig. Halllloooo??? Das sind Verhältnisse, die ich in einem Land erwartet hätte, dessen Präsident jeden verklagt, der ihm quer kommt. Aber nicht in Deutschland, nicht in Hessen und noch nicht einmal in Darmstadt... Ich halte von vielen Sachen, die in unserer Fankurve passieren, überhaupt nichts. Dennoch ist schon der Stadion-Ausschluss unserer Fans ein starkes Stück. Aber das Ding hier, dieser Generalverdacht gegen jeden Eintracht-Fan mit solchen Konsequenzen, das führt mir entschieden zu weit. Entsprechend fallen auch die Reaktionen aus: Quer durch die hessische Politik wird die Entscheidung kritisiert (mit Ausnahme des Innenministers...). Die Eintracht erklärte: "...Aber diese Maßnahme ist im Kern nicht geeignet, eine Unterscheidung zwischen gewaltbereiten und allen anderen Fans von Eintracht Frankfurt zu treffen. Sie richtet sich damit in unverhältnismäßiger Art und Weise gegen die bloße Gesinnung, mit Eintracht Frankfurt zu sympathisieren, und dies kann nach unserer Auffassung nicht Gegenstand staatlichen Handelns sein." Der Eintracht-Fanclub-Verband kündigte eine Klage vor dem Verwaltungsgericht Darmstadt an. Meine Güte, das alles sind Gründe, um diesen Scheiß-Verein doch noch in die zweite Liga zu schicken. Lasst uns dort drei Punkte holen!
+
+

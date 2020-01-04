@@ -1,0 +1,11 @@
+---
+layout: post
+title:  Urlaubsbericht: Teil 4
+subtitle:  
+---
+
+ 
+
+An diesem Morgen quälten wir uns erst gegen 11 aus dem Bett. Die Schwester meiner Leseratte war allerdings schon lange mit dem Hund unterwegs, ihr Freund und meine Leseratte gingen dann Brötchen holen. Nach dem Frühstück machten wir erstmal gar nichts. Nur meine Leseratte ging mal nach draußen und lief ums Haus. Durch mysteriöse Umstände waren aber plötzlich alle Türen zu und nur ein Fenster noch auf  - ein Zustand, den sie bereits aus meinem ersten Dänemark-Urlaub kannte. Und wieder bewältigte sie diese Aufgabe meisterlich: Sie kletterte geschickt durchs Fenster, auch wenn es diesmal doppelt so hoch und nur halb so breit war... :-)  
+Daraufhin machten wir wieder eine kleine Spritztour. Wir besuchten einen Laden mit Kerzen und allerhand anderen Dingen. Und dann fuhren wir noch in einen kleinen Ort und liefen bei heftigem Wind ein wenig am Meer entlang. Ein Hot-Dog und ein paar Fish and Chips später fuhren wir nach Hause und besorgten uns diesmal auf ordentlichem Wege ein wenig Brennholz. Unser Feuerbeauftragter nahm gleich die Axt zur Hand und verarbeite es  zu Kleinholz. Nachdem das Feuer eine Zeit gebrannt hatte, kam er auf die Idee, dass die Scheibe unseres Ofens doch ziemlich verrusst sei und man gar nichts sehen könnte. Glücklicherweise hatten wir eine Geschirr-Bürste zur Hand. Dummerweise erwies sie sich nicht so stabil wie die Einkaufskörbe. Etwa 1 cm ihrer Borsten schmolz an unserem Ofen dahin. Und mit etwas gutem Willen konnte man jetzt besser durch die Scheibe blicken...  
+Ich weiß nicht, ob es an der Cola lag oder an der irren Hitze, die jetzt in unserem Wohnzimmer herrschte: Der Abend endete ziemlich verrückt...  Meine Leseratte stellte zunächst mal fest: "Wenn ich jetzt dreimal kommen würde, hätte ich gewonnen." Das konterte unserer Chef-Pyromane: "Das wäre ja ein multipler O..." Und es ging noch weiter... Er erklärte uns, dass Kühe ozonlochzerstörende ferngesteuerte Lenkraketen seien... Wo war ich nur gelandet? Aber es wurde noch schlimmer: Als wir ins Bett gehen wollten, stand meine Leseratte plötzlich auf der Matratze, breitete die Arme aus und rief: Ich kann fliegen!!! Später wollte sie noch Topfschlagen, am Strand Verstecken und Schokoladen-Wettessen spielen. Normaler Wahnsinn!?

@@ -1,0 +1,10 @@
+---
+layout: post
+title:  Neue Führungsspitze installiert
+subtitle: Suche nach Sportlichem Leiter hat Priorität
+---
+
+Hier habe ich die Ergebnisse der gestrigen Aufsichtsratssitzung noch einmal zusammengefasst: Wie berichtet wird Dr. Peter Schuster ehrenamtlich den Vorstandsvorsitz übernehmen. Der bisherige stellvertretende Aufsichtsratsvorsitzende Heiko Beeck rückt ebenfalls ehrenamtlich in den Vorstand auf. Das hauptamtliche Vorstandsmitglied Dr. Pröckl wurde in seinem Amt bestätigt. Er wurde wie die beiden anderen Vorstandsmitglieder für drei Jahre berufen, um Kontinuität in der Führungsetage zu schaffen. Herbert Becker von Fraport hat den Aufsichtsratsvorsitz übernommen. Das Gremium besteht nur noch aus sieben Personen, nachdem Volker Sparmann entgegen eines früheren Beschlusses nicht wieder aufgenommen wurde. 
+
+Damit haben wir das Vakuum an der AG-Spitze also endlich aufgehoben. Auch wenn Peter Schuster in Fußballkreisen natürlich ein unbeschriebenes Blatt ist und ich ihn bislang überhaupt nicht kenne, sehe ich diese einstimmig getroffene Entscheidung zunächst mal durchaus positiv. Schuster ist der Eintracht verbunden, spielte immerhin bis zur A-Jugend Fußball und war auch in anderen Abteilungen aktiv. Zudem besitzt er als Jurist und ehemaliger Geschäftsführer von Infraserv das wirtschaftliche Know-How. Weiterhin kündigte der neue AG-Vorstand an, seine Kontakte und Beziehungen zu Gunsten der Eintracht zu nutzen. Sein Hauptaugenmerk wird er zu Beginn seiner Amtszeit auf die Suche eines sportlichen Leiters, Managers oder wie auch immer man das nennen will richten. Die Chancen von Heribert Bruchhagen scheinen jedoch gesunken zu sein.  
+Wie auch immer: Wir haben wieder einen Vorstand, die Rahmenbedingungen sind also geschaffen. Jetzt ist wieder die sportliche Seite am Zug. Und da steht morgen das Spiel gegen Leverkusen an, auf das ich schon total gespannt bin. Die Eintracht hat übrigens darauf hingewiesen, dass das Mitbringen von Plastikflaschen mit bis 1,5 l an nichtalkoholischen Getränken erlaubt ist. Bei diesen Temperaturen kann man nur jedem Fan raten, davon Gebrauch zu machen.

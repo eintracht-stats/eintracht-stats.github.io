@@ -1,0 +1,33 @@
+---
+layout: post
+title:  SGE-Köln: Der Spielbericht
+subtitle:  
+---
+
+Friedhelm Funkel hatte seine Mannschaft nach der Niederlage in Karlsruhe heftig umgekrempelt: Jones, Ochs, Husterer und Wiedener waren neu in der Mannschaft. Dafür draußen blieben Köhler und Huber sowie die kurzfristig verletzungsbedingt fehlenden Hoffmann (Zerrung) und Reinhardt (Knie). Aber die Eintracht begann dennoch stark...
+
+Meier hatte nach zwei Minuten eine gute Chance und Du-Ri Cha hätte nach 8 Minuten fast schon treffen müssen. Die erste gute Chance der Gäste hatte Ebbers in der 26. Minute, doch Markus Pröll parierte glänzend. In dieser Phase hatten die Kölner durchaus mehr Ballbesitz. Doch für die Chancen sorgte fast nur die Eintracht. Fast hätte es nach einer halben Stunde endlich zur Führung gereicht: Van Lent ließ den Ball zu Meier abtropfen. Doch dessen Bogenlampe sprang vom Innenpfosten ins Feld zurück. Nach der Pause hatte die Eintracht dann aber mehr Glück: Chris behauptete im Mittelfeld den Ball und brachte diesen zu Ochs. Der stieß beherzt in die gegnerische Hälfte vor und zirkelte eine mustergültige Flanke auf den Kopf von Arie van Lent. Und was das bedeutet, ist klar: Kopfball, Tor, 1:0! Von diesem Tor beflügelt, legte die Eintracht nach: Meier setzte den Ball nur eine Minute später auf die Latte. Nach 70 Minuten wurde Aleksandar Vasoski für seine Leistung belohnt: Lukas Podolski, der gegen den Mazedonier keine Stich machte, wurde ausgewechselt. Es scheint so, als hätten wir mit unserer Neuverpflichtung einen kleinen Glücksgriff getätigt... Einmal musste die Eintracht noch zittern als Ebbers an den Pfosten köpfte. Aber insgesamt brachte die Eintracht einen hochverdienten Sieg über die Runden. Dennoch sollte man jetzt nicht gleich wieder vom Aufstieg reden. Es sind immer noch acht oder im schlechtesten Falle neun Punkte auf Platz drei. Und wenn die Mannschaft nicht endlich auswärts konstantere Leistungen  zeigt, braucht man gar nicht davon zu träumen, dass dieser Rückstand schmelzen könnte...  
+Ein Wort noch zu Rückkehrer Jermaine Jones: Er spielte heute als linker Außenstürmer und war an keiner gefährlichen Aktion beteiligt. Man merkte ihm an, dass ihm noch die Bindung zu seinen Nebenleuten fehlte. Aber vielleicht kann man nach der kurzen Zeit, die er wieder hier ist, einfach noch nicht mehr erwarten.
+
+So, jetzt wird's mal wieder privat. Deshalb die Warnung: Nur für einen handverlesenen Personenkreis interessant! Heute Abend kam es nämlich zum Comeback meiner in vier langen Jahren "liebgewonnen" Traumsituation: Fünftes Rad am Wagen sein! Und ich muss sagen, ich habe in fast anderthalb Jahren Pause nichts verlernt. Nur wirklich stolz darauf bin ich nicht... Zu Beginn des Abends ging es mir nur schlecht (also noch vergleichsweise gut). Doch dann kam der erste Tiefschlag. Chris gab mir deutlich zu verstehen, dass die Investition in meine neuen Schuhe ziemlich sinnlos war. "Du gehst ja eh nicht mehr vor die Tür." Wenn ich nicht wüsste, dass er damit voll ins Schwarze getroffen hatte, könnte man darüber ja lachen... Dann ging es aber richtig los: Im Kino warteten wir auf Chris' neue Freundin. Und ab jetzt könnte ich mich nur noch schlagen! Sie gab sich wirklich Mühe, mich zum reden zu bringen. Aber ich habe in meiner unwiderstehlichen Art und Weise jedes Gespräch sofort im Keim erstickt. An der Uni hasse ich Multiple Choice-Fragen wie die Pest. Aber im täglichen Leben antworte ich auf einfachste Fragen immer in dieser Art. Ein paar Beispiele gefällig?
+
+Hast du ein Auto?  
+  
+( ) ja  
+(x) nein  
+( ) nein, ich habe keins. Ich darf mich immer mit der Bahn rumschlagen. Was fährst du denn für eins?
+
+Kannst du Ski fahren?  
+  
+( ) ja  
+(x) nein  
+( ) ich bin nicht so der Schnee-Fan, aber ich habe gehört du fährst ganz gerne!? Chris erwähnt das ja bei jeder Gelegenheit.
+
+Freust du dich, dass die Eintracht gewonnen hat?  
+  
+( ) Nein  
+(x) Mich kann nichts mehr erschüttern (Das war überhaupt die Kracher-Antwort => ein Satz, der das Gegenteil ausdrückt von dem, was ich eigentlich sagen wollte...)  
+( ) Ja schon, nur leider kommt der Sieg zu spät.
+
+Diese Liste könnte man noch unendlich weiter führen. Wenn ich doch nur in der Lage wäre, einmal im Leben Antwort drei in meinem Kopf anzukreuzen und diese dann auch noch zu artikulieren... Naja, dann begann der tolle Film mit dem passenden Titel "Vom Suchen und Finden der Liebe". Während ich wieder einmal feststellen durfte, dass alle Welt ihr Glück bereits gefunden hat (links von mir wurde Händchen gehalten, rechts von mir wurde ebenfalls heftigst geturtelt) saß ich da und dachte nur: Endlich komme ich mal auf andere Gedanken... Denn das sollte nach meinem letzten Nervenzusammenbruch ja der eigentliche Sinn dieses Abends sein.  
+Nachdem ich diese seelischen Qualen dann überstanden hatte, begann die Suche nach einer geeigneten Location, um unser Gespräch in einem gemütlichen Rahmen mal in geordnete Bahnen zu lenken. Nach einigen Fehlversuchen fanden wir dann tatsächlich noch einen Platz und zum ersten Mal war es von Vorteil, dass ich nie mit einer eigenen Begleitung erscheine - sonst wäre nämlich kein Platz mehr frei gewesen... Nachdem Chris seine Freundin als Retorten-Food-Junkee betitelt hatte und sie ihren Café au lait zu einem Café au sucre umfunktioniert hatte, lief ich dann richtig auf Hochtouren: Ich wurde noch einsilbiger und mir wurde wieder einmal deutlich vor Augen geführt, dass ich ein sozial inkompetentes Wrack bin. Während ich mich so meinem Schicksal ergab, durfte ich einen Meter entfernt mit ansehen, wie schön das Leben doch sein könnte. Da ich mich nicht am Gespräch beteiligte, kümmerten sich die beiden logischerweise mehr um sich selbst. Und mit jedem Blick, jedem Kuss, jeder Berührung und jeder Streicheleinheit bekam ich ein kleinen Stich ins Herz versetzt. Traurig, dass ich das nie mehr erleben werde... Als Chris' Freundin dann mal für kleine Lehramt-Studentinnen ging, machte es klick und mein Redestau löste sich. Ich redete zwei Minuten wie ein Wasserfall, um kurz darauf wieder in striktes Schweigen zu verfallen. In solchen Momenten könnte ich mich auf den Mond oder - noch schlimmer - auf den Bieberer Berg schießen. Ich kann mich bei unserem Retorten-Food-Junkee (was sicherlich nicht als dauerhaftes Daily-Flip-Synonym für die junge Dame Einzug halten wird) für mein Verhalten nur entschuldigen. Aber sie wird mich sicher noch so kennen lernen, wie ich wirklich bin. Schließlich kann sie mir ja nicht entkommen, da ich ja nun einmal mit Chris befreundet bin. Jede andere Frau, die mit mir zu tun hat, kann ich dagegen leider nicht dazu zwingen, mir die nötige Zeit zu geben... So, genug geheult - jetzt muss ich lernen. Ich habe ja noch 50-60 weitere Jahre Zeit um mich zu bemitleiden.

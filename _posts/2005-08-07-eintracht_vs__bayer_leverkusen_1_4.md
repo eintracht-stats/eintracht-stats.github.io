@@ -1,0 +1,13 @@
+---
+layout: post
+title:  Eintracht vs. Bayer Leverkusen 1:4
+subtitle: Schwache zweite Hälfte macht guten Start zunichte
+---
+
+Das erste Bundesligaspiel der Saison hat die Eintracht mit 1:4 gegen Bayer Leverkusen verloren. Dabei gelang der Mannschaft ein regelrechter Traumstart, als Vasoski eine Ecke von Meier bereits nach 7 Minuten einköpfen konnte. Danach zeigte die Eintracht weiterhin tollen Offensivfußball. Nur das 2:0 wollte nicht fallen. Erst langsam kamen die Gäste besser ins Spiel...
+
+ Der Ausgleich nach 24 Minuten fiel dann auch aus heiterem Himmel: Pröll unterlief eine Flanke von Freier, Berbatov nutzte den Freiraum eiskalt aus. Bis zur Pause passierte dann nicht mehr viel. Die Eintracht hatte eine gute Leistung gezeigt und man durfte eigentlich noch einiges von der zweiten Hälfte erwarten.  
+Doch es kam anders: Nur drei Minuten nach Wiederanpfiff ging Leverkusen in Führung. Ochs brachte sich und die gesamte Abwehr mit einem schlampigen Abspiel in Schwierigkeiten. Dann konnte er die Flanke von Athirson nicht verhindern, Pröll sah erneut nicht gut aus - Voronin köpfte im Rückwärtslaufen zur zu diesem Zeitpunkt nicht wirklich verdienten Gästeführung ein. Ausgangspunkt war wie erwähnt der Fehler von Ochs, der einen eigentlich sicheren Ball vertändelte. Ich habe die Hoffnung, dass er aus seinen Fehlern ähnlich wie in der Vorsaison schnell lernt. Denn so was können wir uns nicht oft erlauben.  
+Die Eintracht zeigte sich von dem Rückstand geschockt. In der 56. Minute war die Partie dann endgültig entschieden. Bernd Schneider schloss einen tollen Konter mit einem Ball ab, der im Zeitlupentempo an Pröll vorbei ins Tor rollte. Hier würde ich dem Keeper aber nicht wirklich eine Schuldzuweisung machen. Anders in der 59. Minute: Hier war sich Pröll bei einem langen Ball mit Rehmer nicht einig (eine typische "nimm du ihn, ich hab ihn sicher"-Situation). Voronin hatte ihn allerdings noch sicherer, Krzynowek gab dem Ball dann den letzten Tick zum 1:4. Ab jetzt konnte das Motto nur noch Schadensbegrenzung heißen. Und mit ein wenig Glück gelang wenigstens dies.
+
+Mit einem Fazit tue ich mich nach der heutigen Partie ziemlich schwer. Die erste Halbzeit war ziemlich gut aus Eintracht-Sicht. Man darf ja auch nicht vergessen, gegen wen wir heute gespielt haben. Nach der Pause lief es dann ziemlich unglücklich, so dass die Partie innerhalb von einer Viertelstunde völlig gekippt war. Die Niederlage war am Ende zwar etwas zu hoch, aber solche Fehler wie wir sie heute gesehen haben, die sind in der Bundesliga eben tödlich. Das Abwehrverhalten muss verbessert werden. Dann werden wir auch unsere Punkte holen. Nicht den Kopf in den Sand stecken. Weiter geht's...
