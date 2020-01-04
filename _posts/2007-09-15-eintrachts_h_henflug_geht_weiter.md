@@ -1,9 +1,0 @@
----
-layout: post
-title:  Eintrachts Höhenflug geht weiter
-subtitle: 2:1 gegen den HSV
----
-
-Mit dem dritten Sieg im dritten Heimspiel hat sich die Eintracht auf Platz 3 der Tabelle vorgeschoben. Gegen den Hamburger SV gelang heute ein 2:1. Der HSV begann stark, musste jedoch bereits nach 8 Minuten eine kalte Dusche hinnehmen. Ein langer Pass von Streit fand den Weg zu Weissenberger, der sofort zurücklegte - Meier traf ins lange Eck! Neben einem Ellenbogenschlag von Atouba, der nicht geahndet wurde, gab es noch ein paar schöne Paraden von Markus Pröll zu sehen. Und Markus Weissenbergers Lupfer wurde auf der Linie geklärt. Dann war Halbzeit...
-
-Auch in der zweiten Hälfte bekamen die 51.500 Zuschauer im ausverkauften Stadion ein ansehnliches Spiel geboten. Christoph Spycher hatte das 2:0 auf dem Fuß, als er mit rechts nur den Pfosten traf. Auch die Hamburger versteckten sich nicht. Die Gäste brauchten jedoch einen höchst umstrittenen Foulelfmeter zum Ausgleich. Nach einem direkten Freistoß von Rafael van der Vaart hatte Pröll den Ball sicher gehalten - und wie aus dem Nichts kam ein Pfiff von Schiedsrichter Gräfe. Zudem gab es Gelb für Kyrgiakos, der Reinhardt gehalten haben soll. Im Stadion hatte ich absolut nichts gesehen und hatte nach dieser Entscheidung auch einen dementsprechend hohen Blutdruck. Nach dem Studium der Fernsehbilder habe ich jetzt zwar den Zweikampf gesehen - aber wenn man so was pfeift, dann gute Nacht Fußball... Aufgrund der Kürze der Zeit bis zum Schlusspfiff musste man sich fast schon mit dem Unentschieden anfreunden. Aber dann hatte Alex Meier, der wieder einmal ein sehr gutes Spiel zeigte, noch eine Sternstunde. Einen abgewehrten Ball drosch er volley aus 20 Metern ins Tor! Die drei Punkte waren im Sack... Allein für den Adrenalinschub wie heute in der Schlussphase lohnt sich der Gang ins Stadion ;-) Wir sind auf einem guten Weg und Platz 3 nach 5 Spieltagen nehmen wir gerne mit!

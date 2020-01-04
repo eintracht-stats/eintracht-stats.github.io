@@ -1,0 +1,10 @@
+---
+layout: post
+title: Eintracht schlägt Koblenz
+
+---
+
+Mit 3:1 gegen TuS Koblenz hat die Eintracht den letzten Test gegen einen ernsthaften Gegner gewonnen. Die Tore erzielten Meier, Streit und Ljubicic. Der Gegentreffer resultierte aus einem Freistoß. Neuzugang Galindo spielte eine Halbzeit, ohne allerdings großartig aufzufallen. Solange er nicht so positiv auffällt wie beim Confed-Cup vor zwei Jahren, soll mir das Recht sein. Da war nämlich seine Dopingprobe auffällig und führte zu einer einjährigen Sperre...
+
+Und ich will nicht wissen, was eine Dopingprobe bei mir jetzt, am 29.07.07 um 03:37 Uhr ergeben hätte. Allein die Tatsache, dass ich um diese Uhrzeit vor dem PC sitze ist schon krank. Aber schlafen kann ich noch nicht und Schuld hat ganz allein meine liebe seit 3 Stunden und 37 Minuten 26 Jahre steinalte Stardirigentin, die mir erst einige Schlucke und am Ende gleich eine ganze Tasse Hochprozentiges verabreicht hat... Tja, so tief bin ich gesunken: Nach 13 Jahren Schule und 10 Semestern Studium sitze ich unter einer Brücke und lasse mich vom schönsten Alien auf der ganzen Welt abfüllen... Aber sehr aufschlussreich war es schon: Immerhin weiß ich jetzt, dass ich eine große Politiker-Karriere vor mir hätte, wenn ich meine Reden als visuell aufgepeppte Power-Point-Präsentationen an die Wand die klatschen würde. Dummerweise gibt es aber nach wie vor keine Frau, der ich eine Power-Point-Präsentation namens "Flip - so ist er wirklich" vorspielen kann. Und so glaubt einzig und allein meine Stardirigentin aus unerfindlichen Gründen immer noch daran, dass sich bei mir irgendwann mal was ändert. Das gelingt mir nicht mal in meinem derzeitigen Zustand. Hmmm, gar nicht gut... Obwohl, es geht aufwärts: Wann hat denn schon zuletzt eine Frau zu mir gesagt "Morgen um vier bei mir..."!?!?!?  
+Oje, spätestens dann, wenn die Promille wieder bei Null sind, werde ich mir hundertprozentig an den Kopf greifen, weil ich diesen Schwachsinn hier verzapft habe. Ich hoffe, dass diese Daily Flip Late Night Edition wegen geistiger Unzurechnungsfähigkeit außer Konkurrenz gewertet wird...

@@ -1,0 +1,9 @@
+---
+layout: post
+title: Eintracht verschafft sich Luft im Abstiegskampf
+subtitle: 4:0 gegen Aachen
+---
+
+Mit 4:0 hat die Eintracht heute Alemannia Aachen besiegt und damit einen großen Schritt in Richtung Klassenerhalt gemacht. Benjamin Huggel traf bereits in der 3. Minute mit einem Distanzschuss zur Führung. Auch danach bestimmte die Eintracht das Geschehen auf dem Platz klar. Amanatidis hatte in der 26. Minute das 2:0 auf Fuß. Doch sein Schuss ins lange Eck prallte an den Innenpfosten, rollte auf der Linie entlang und sprang vom anderen Pfosten ins Feld zurück. Da fehlten wirklich nur die berühmten Millimeter...
+
+Besser klappte es 5 Minuten später: Vasoski köpfte einen Freistoß ins Tor! Kurz nach der Pause hatte Aachen seine einzige Torchance im ganzen Spiel. Doch der ansonsten beschäftigungslose Nikolov parierte in dieser Szene zweimal glänzend. Danach folgte die endgültige Entscheidung: Zunächst hielt Klitzpera den enteilten Takahara fest und sah dafür die Rote Karte wegen einer Notbremse. Den anschließenden Freistoß von Streit konnte Keeper Nicht gerade noch parieren, doch den Abpraller köpfte Takahara zum 3:0 ins Netz. 10 Minuten vor Schluss köpfte Köhler nach einer Spycher-Flanke noch zum 4:0 ein. Das war aber noch lange nicht alles. Die Eintracht hatte in der zweiten Halbzeit Chancen für drei Spiele. Amanatidis Heber wurde von der Linie gekratzt. Zudem trafen Amanatidis, Fink, Köhler und Huggel noch die Latte - unglaublich!!! Das heute war wohl das beste Saisonspiel. Wenngleich man einschränkend sagen muss, dass gegen diese Trümmertruppe, die Aachen heute aufbot, auch ein Sieg her musste. Die Art und Weise war allerdings mehr als überzeugend. Warum haben wir nicht öfter so gespielt...!? Mit 4 Punkten Vorsprung und dem besseren Torverhältnis gehen wir jetzt in die letzten zwei Spiele. Das sieht gut aus!

@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  undefined
-subtitle:  
+title: undefined
+
 ---
 
  
