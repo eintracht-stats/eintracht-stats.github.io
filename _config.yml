@@ -4,9 +4,9 @@
 permalink:           pretty
 
 # Setup
-title:               eintracht-stats.de
+title:               Daily Flip
 tagline:             'Das Eintracht Tagebuch'
-description:         'Persönliches Fan-Tagebuch seit 1999'
+description:         'Mein persönliches Fan-Tagebuch seit 1999'
 url:                 https://eintracht-stats.de
 baseurl:             ''
 paginate:            10
