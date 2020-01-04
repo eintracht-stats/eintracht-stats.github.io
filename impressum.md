@@ -13,9 +13,9 @@ Philipp Breither, Christopher Seib
 
 ### Adresse
 
-Philipp Breither
-Schillerstraße 9
-61184 Karben
+Philipp Breither  
+Schillerstraße 9  
+61184 Karben  
 
 ### Elektronische Postadresse
 
@@ -25,4 +25,4 @@ flip@eintracht-stats.de
 
 Private Homepage
 
-Bitte beachten Sie auch die [Erklärung zum Datenschutz](datenschutz).
+Bitte beachten Sie auch die [Erklärung zum Datenschutz](/datenschutz).

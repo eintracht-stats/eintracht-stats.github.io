@@ -7,11 +7,11 @@ Diese Datenschutzerklärung klärt Sie über die Art, den Umfang und Zweck der V
 
 ### Verantwortlicher
 
-Philipp Breither
-Schillerstraße 9
-61184 Karben
-Deutschland
-
+Philipp Breither  
+Schillerstraße 9  
+61184 Karben  
+Deutschland  
+  
 E-Mail: flip@eintracht-stats.de
 
 Link zum Impressum: http://eintracht-stats.de/site/impressum.htm
