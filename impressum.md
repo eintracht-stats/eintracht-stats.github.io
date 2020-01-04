@@ -4,7 +4,7 @@ title: Impressum
 ---
 
 <p class="message">
-  eintracht-stats.de und Daily Flip ist ein rein privates Projekt.
+  eintracht-stats.de / Daily Flip ist ein rein privates Projekt.
 </p>
 
 ### Verantwortliche Ansprechpersonen
@@ -25,6 +25,4 @@ flip@eintracht-stats.de
 
 Private Homepage
 
-<p class="message">
-  Bitte beachten Sie auch die Erklärung zum Datenschutz.
-</p>
+Bitte beachten Sie auch die [Erklärung zum Datenschutz](datenschutz).
