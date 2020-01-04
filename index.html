@@ -11,7 +11,7 @@ title: Blog
         {{ post.title }}
       </a>
     </h1>
-    {% if post.subtitle == " " %}
+    {% if post.subtitle %}
       <h2> {{ post.subtitle }}</h2>
     {% endif %}
     <span class="post-date">{{ post.date | date_to_string }}</span>
