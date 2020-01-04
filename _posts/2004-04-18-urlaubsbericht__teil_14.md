@@ -11,9 +11,9 @@ Unsere Koffer hatten wir ziemlich schnell wieder. Chris' Vater holte uns ab und 
   
 Hiermit endet der Urlaubsbericht aus Portugal. Folgendes ist noch erwähnenswert:  
   
-\- unsere ständig durchlaufende Klospülung  
-\- die Erkenntnis, dass unsere Hochgebirgsbewohnerin Tomatensoße auch pur isst  
-\- Stichchen  
-\- der Schau-mir-tief-in-die-Augen-Wackel-Blick, den meine Leseratte und ich zelebrierten  
-\- Sonnencreme-Sessions, die ihre Wirkung nicht verfehlten  
+- unsere ständig durchlaufende Klospülung  
+- die Erkenntnis, dass unsere Hochgebirgsbewohnerin Tomatensoße auch pur isst  
+- Stichchen  
+- der Schau-mir-tief-in-die-Augen-Wackel-Blick, den meine Leseratte und ich zelebrierten  
+- Sonnencreme-Sessions, die ihre Wirkung nicht verfehlten  
 und die Erkenntnis, dass es auch ohne Streitigkeiten und mit viel Harmonie mit meiner Leseratte nicht langweilig wird und man gar nicht anhänglich genug sein kann!

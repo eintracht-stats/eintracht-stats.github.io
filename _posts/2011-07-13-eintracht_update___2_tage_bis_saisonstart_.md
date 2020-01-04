@@ -8,6 +8,6 @@ Noch 2 Tage, dann beginnt die Saison der 2. Bundesliga. Die Eintracht tritt bere
 
 Ansonsten ist folgendes passiert:
 
-\- Martin Fenin fällt zum Auftakt wegen einer Oberschenkelzerrung aus  
-\- Der Austragungsort für das Pokalspiel gegen Halle steht weiterhin noch nicht fest. Auch Nürnberg scheint es nicht zu werden...  
-\- Ioannis Amanatidis, der nach einer sportärztlichen Untersuchung eigentlich heute wieder ins Training einsteigen wollte, hat sich krank gemeldet. Wann wird diese Farce endlich beendet???
+- Martin Fenin fällt zum Auftakt wegen einer Oberschenkelzerrung aus  
+- Der Austragungsort für das Pokalspiel gegen Halle steht weiterhin noch nicht fest. Auch Nürnberg scheint es nicht zu werden...  
+- Ioannis Amanatidis, der nach einer sportärztlichen Untersuchung eigentlich heute wieder ins Training einsteigen wollte, hat sich krank gemeldet. Wann wird diese Farce endlich beendet???

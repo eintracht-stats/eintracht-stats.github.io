@@ -31,375 +31,375 @@ So, jetzt folgt der Privatteil für die ganz hartgesottenen Fans meiner Seite. E
 
 Ansonsten begann das Jahr 2010 ziemlich unappetitlich. Das gilt zwar ganz und gar nicht für die Silvesternacht, aber danach ging's los: Meine Lieblings-Modeschöpferin wollte die Familienzusammenführung vorantreiben und mir gewisse Lammwurzen schmackhaft machen. Todesmutig biss sie in das fetttriefende Getüm - und bereut es glaube ich heute noch. Heute noch... Wie gut, dass wir nicht nur ein Läppchen im Haus haben, das man an die Decke schmeißen kann. So konnte sie sich ausgiebig waschen. Und ich denke, nach zwei Wochen (oder so) war der Lammwurzen-Gestank auch von ihren Fingern verschwunden. Das zweite große Thema zum Jahresbeginn waren die Schneemassen. Regelmäßige Schneeräumverpflichtungen (verbunden mit natürlich auch gerade dann einsetzendem Schneefall) ließen mich immer öfter zu einem Frühaufsteher werden und sorgten aufgrund der räumlichen Distanz zu Frankfurt für die ein oder andere einsame Nacht. Als ich dann noch vom selbsternannten Schneeguru zu Unrecht der Untätigkeit verdächtigt wurde, war mein Hass auf die weißen Flocken enorm. Dann aber wurde das Jahr noch richtig gut. In einigen dramatischen Szenen fiel die Entscheidung, dass wir unser Wir-Sein künftig auch unter einem gemeinsamen Dach ausleben wollten. So kam es zur Fusion des Jahres und seit Mitte des Jahres steht auf dem Klingelschild nun Flip/Lieblings-Modeschöpferin. :-) Bald darauf folgte dann ein wunderschöner Urlaub auf Mallorca mit einigen tollen Erlebnissen. Die Entscheidungsfindung in Sachen Auto ist nach zähem Ringen (mit uns selbst) dann auch noch abgeschlossen worden. Der gute Vorsatz endlich einen fahrbaren Untersatz zu finden steht jedenfalls und ich bin guter Hoffnung dieses Thema in 2011 tatsächlich zu einem guten Ende zu bringen. Bevor ich jetzt aber zum Fazit dieses Jahres komme, folgt erst noch eine kurze Zusammenfassung in Stichworten. Das alles brachte das Jahr 2010 mit sich:
 
-\- Susi, die kleine Wolldecke
+- Susi, die kleine Wolldecke
 
-\- Marienkäfer Oliver
+- Marienkäfer Oliver
 
-\- und noch ein paar Gute-Nacht-Geschichten
+- und noch ein paar Gute-Nacht-Geschichten
 
-\- Das schreiende Kind im Park am Westbahnhof: "Kamerascherz"
+- Das schreiende Kind im Park am Westbahnhof: "Kamerascherz"
 
-\- Herzlich Willkommen und ganz richtig bei Monitor
+- Herzlich Willkommen und ganz richtig bei Monitor
 
-\- Das Wunder der HD/UT
+- Das Wunder der HD/UT
 
-\- das kaputte Türschloss: Erst geht die Tür nicht mehr auf - dann nicht mehr zu...
+- das kaputte Türschloss: Erst geht die Tür nicht mehr auf - dann nicht mehr zu...
 
-\- der Besoffene auf der Rolltreppe, den meine Schatzeline kurzerhand aus dem Weg geräumt hat
+- der Besoffene auf der Rolltreppe, den meine Schatzeline kurzerhand aus dem Weg geräumt hat
 
-\- eine mörderische Putzaktion morgens um 06:30 Uhr
+- eine mörderische Putzaktion morgens um 06:30 Uhr
 
-\- das Kur Royal
+- das Kur Royal
 
-\- das Steinchenspiel
+- das Steinchenspiel
 
-\- Abalone und Abora: "Du Arschloch!"
+- Abalone und Abora: "Du Arschloch!"
 
-\- Puzzle-Frust und Puzzle-Lust - ich arbeite dran
+- Puzzle-Frust und Puzzle-Lust - ich arbeite dran
 
-\- mein Asterix-Puzzle als Ausgleich
+- mein Asterix-Puzzle als Ausgleich
 
-\- das Schlafmasken-Memory, das ich überhaupt nicht hinbekomme
+- das Schlafmasken-Memory, das ich überhaupt nicht hinbekomme
 
-\- das Alt/Neu-Memory, das ich auch nicht hinbekomme
+- das Alt/Neu-Memory, das ich auch nicht hinbekomme
 
-\- Der Zehnbert Akkusativ und die Neuneline Sahara
+- Der Zehnbert Akkusativ und die Neuneline Sahara
 
-\- der "französische Park" in Wilhelmsbad
+- der "französische Park" in Wilhelmsbad
 
-\- Der Flip-Entscheidungstag
+- Der Flip-Entscheidungstag
 
-\- das neue Rad meiner Schatzeline
+- das neue Rad meiner Schatzeline
 
-\- eine Radtour nach Bonames mit anschließendem Gangschaltungstest
+- eine Radtour nach Bonames mit anschließendem Gangschaltungstest
 
-\- Mittelstadt
+- Mittelstadt
 
-\- der Datz und die Dätzin
+- der Datz und die Dätzin
 
-\- der Kanariebätt
+- der Kanariebätt
 
-\- Das kleine Rauh, Karius und Baktus, der Maulwurf Grabowski
+- Das kleine Rauh, Karius und Baktus, der Maulwurf Grabowski
 
-\- "Wer möchte, darf..."
+- "Wer möchte, darf..."
 
-\- "Das ist ja lustig. Hier gibt's Bananen und daneben gibt's Apple"
+- "Das ist ja lustig. Hier gibt's Bananen und daneben gibt's Apple"
 
-\- "Ei Schatze, was soll ich dann jetz mache?" Sprach's und schlief weiter...
+- "Ei Schatze, was soll ich dann jetz mache?" Sprach's und schlief weiter...
 
-\- "Das ist doch die Wade, du Schwätzer!"
+- "Das ist doch die Wade, du Schwätzer!"
 
-\- "Im Sommer braucht man doch nicht jeden Tag Socken - ich nehm mal drei Paar mit..."
+- "Im Sommer braucht man doch nicht jeden Tag Socken - ich nehm mal drei Paar mit..."
 
-\- unser Straßenfest
+- unser Straßenfest
 
-\- die WM, die wir eigentlich ganz gut überstanden haben, obwohl ich öfter mal den Fernseher in Beschlag genommen hatte
+- die WM, die wir eigentlich ganz gut überstanden haben, obwohl ich öfter mal den Fernseher in Beschlag genommen hatte
 
-\- unser Familienzusammenführungstag mit großer Kaffeeparade
+- unser Familienzusammenführungstag mit großer Kaffeeparade
 
-\- Die Heilerin und andere Farm-Größen
+- Die Heilerin und andere Farm-Größen
 
-\- Hofi und Federiiiiico
+- Hofi und Federiiiiico
 
-\- Ich ha Muuuuff
+- Ich ha Muuuuff
 
-\- Booah, jetzt bin ich aber entsetzt und enttäuscht
+- Booah, jetzt bin ich aber entsetzt und enttäuscht
 
-\- Ratschepüh, Ratschepüh, Kackapupsgefahrt
+- Ratschepüh, Ratschepüh, Kackapupsgefahrt
 
-\- Spiegel im Wald und andere Lehrgangsformen
+- Spiegel im Wald und andere Lehrgangsformen
 
-\- Der Gutscheinsonntag
+- Der Gutscheinsonntag
 
-\- Das Grammatikolon und das Veräppelikolon
+- Das Grammatikolon und das Veräppelikolon
 
-\- unser Valentinstagsmenü, mit inbesondere sehr geilen Süppchen
+- unser Valentinstagsmenü, mit inbesondere sehr geilen Süppchen
 
-\- das Gepampe vor dem Aufbruch zum Waschsalon: "Ich habe schon gefrühstückt"
+- das Gepampe vor dem Aufbruch zum Waschsalon: "Ich habe schon gefrühstückt"
 
-\- das Badewannendrama mit anschließender Pro/Contra-Liste
+- das Badewannendrama mit anschließender Pro/Contra-Liste
 
-\- das Fusions-Versprechen mit der anschließenden To-do-Liste
+- das Fusions-Versprechen mit der anschließenden To-do-Liste
 
-\- der schöne Herr Nachbar und sein Faible für kurze Hosen
+- der schöne Herr Nachbar und sein Faible für kurze Hosen
 
-\- ich und mein Faible für lange Hosen
+- ich und mein Faible für lange Hosen
 
-\- unsere 4 Umzugstouren quer durch die Stadt
+- unsere 4 Umzugstouren quer durch die Stadt
 
-\- der Sperrmüll und die Ängste, die das verursachen kann
+- der Sperrmüll und die Ängste, die das verursachen kann
 
-\- die Glücksgefühle als alles abgeholt worden war
+- die Glücksgefühle als alles abgeholt worden war
 
-\- die Renovierungsaktion mit minderwertiger Farbe
+- die Renovierungsaktion mit minderwertiger Farbe
 
-\- der Einsatz meiner Schatzeline einen 20kg-Eimer quer durch Frankfurt zu tragen
+- der Einsatz meiner Schatzeline einen 20kg-Eimer quer durch Frankfurt zu tragen
 
-\- das Warten auf die Kaution: "Ich brauche eine Rechtsschutzversicherung"
+- das Warten auf die Kaution: "Ich brauche eine Rechtsschutzversicherung"
 
-\- der Sultan Laxeby und die nicht ganz so haltbare Schraube
+- der Sultan Laxeby und die nicht ganz so haltbare Schraube
 
-\- "Wir sind uns ja beide einig, dass du Schuld daran bist"
+- "Wir sind uns ja beide einig, dass du Schuld daran bist"
 
-\- Der Burger King-Besuch mit Maus und Zigarrenstummel, der zu einer Überschwemmung führte
+- Der Burger King-Besuch mit Maus und Zigarrenstummel, der zu einer Überschwemmung führte
 
-\- eine Magen-Darm-Grippe mit anschließendem Ohnmachtsanfall
+- eine Magen-Darm-Grippe mit anschließendem Ohnmachtsanfall
 
-\- mein Blick als meine Schatzeline mit dem Kopf gegen den Badezimmerschrank knallte
+- mein Blick als meine Schatzeline mit dem Kopf gegen den Badezimmerschrank knallte
 
-\- ihr Lachen als ich sie entgeistert anstarrte
+- ihr Lachen als ich sie entgeistert anstarrte
 
-\- unser 1-jähriger Kennenlerntag im Juli
+- unser 1-jähriger Kennenlerntag im Juli
 
-\- unser Jahrestag im August
+- unser Jahrestag im August
 
-\- mein erstes handgemachtes Märchenbuch
+- mein erstes handgemachtes Märchenbuch
 
-\- unsere provisorischen Ringelchen
+- unsere provisorischen Ringelchen
 
-\- unsere echten Ringelchen
+- unsere echten Ringelchen
 
-\- die Ringelchenverkäuferin
+- die Ringelchenverkäuferin
 
-\- unsere abgebrochene Reise zur Saalburg und der verrückte Heimweg...
+- unsere abgebrochene Reise zur Saalburg und der verrückte Heimweg...
 
-\- die anstrengenden Geburtstagsvorbereitungen für meine Schatzeline mit parallelen Krankenhausbesuchen und Urlaubsvorbereitungen
+- die anstrengenden Geburtstagsvorbereitungen für meine Schatzeline mit parallelen Krankenhausbesuchen und Urlaubsvorbereitungen
 
-\- der überraschende Googlehupf
+- der überraschende Googlehupf
 
-\- der Aufbruch nach Malle am nächsten Tag
+- der Aufbruch nach Malle am nächsten Tag
 
-\- unsere Reisetasche voller Blumen
+- unsere Reisetasche voller Blumen
 
-\- der Vorabend-Check-In bei Ukraine Airways
+- der Vorabend-Check-In bei Ukraine Airways
 
-\- das Matratzenlager in der leeren Wohnung meiner Schatzeline
+- das Matratzenlager in der leeren Wohnung meiner Schatzeline
 
-\- der Nachtbus und das lange Warten am Flughafen
+- der Nachtbus und das lange Warten am Flughafen
 
-\- Wurst- oder Käsebeegel
+- Wurst- oder Käsebeegel
 
-\- unser All-inclusive-Hotel, das wir trotz unseres Busfahrers und anderslautender Befürchtungen erreichten
+- unser All-inclusive-Hotel, das wir trotz unseres Busfahrers und anderslautender Befürchtungen erreichten
 
-\- die quietschenden und rutschenden Betten
+- die quietschenden und rutschenden Betten
 
-\- mein Äffchen-T-Shirt
+- mein Äffchen-T-Shirt
 
-\- der Traumstrand mit dem super warmen Wasser
+- der Traumstrand mit dem super warmen Wasser
 
-\- Paula und ihr Auftritt aufs Stichwort
+- Paula und ihr Auftritt aufs Stichwort
 
-\- unsere Ladival-Vorräte
+- unsere Ladival-Vorräte
 
-\- AAAARGH - ich bin getroffen!!!
+- AAAARGH - ich bin getroffen!!!
 
-\- unsere Fußbilder
+- unsere Fußbilder
 
-\- meine Tankini-Schönheit
+- meine Tankini-Schönheit
 
-\- meine Auftritte als Wasserratte mit Sandverwirbelungen und Schatzelinen-Pirouetten
+- meine Auftritte als Wasserratte mit Sandverwirbelungen und Schatzelinen-Pirouetten
 
-\- der Tag, an dem die Wellen verschwunden aufgefunden wurden
+- der Tag, an dem die Wellen verschwunden aufgefunden wurden
 
-\- unsere gestellten Urlaubsfotos
+- unsere gestellten Urlaubsfotos
 
-\- die Franken-Barbie und der Franken-Ken
+- die Franken-Barbie und der Franken-Ken
 
-\- die Wesches im allgemeinen
+- die Wesches im allgemeinen
 
-\- das Wesche-Kind, das uns bereitwillig alle Informationen preisgab
+- das Wesche-Kind, das uns bereitwillig alle Informationen preisgab
 
-\- die Wesches, die immer ihre Plätze tauschten und mit Gläsern warfen
+- die Wesches, die immer ihre Plätze tauschten und mit Gläsern warfen
 
-\- die Birgritte
+- die Birgritte
 
-\- die Animation in unserem Hotel mit Eefje
+- die Animation in unserem Hotel mit Eefje
 
-\- die Animation in unserem Nachbarhotel
+- die Animation in unserem Nachbarhotel
 
-\- die Animation in unserem Zimmer: Ajajajajajajey!
+- die Animation in unserem Zimmer: Ajajajajajajey!
 
-\- der daraus resultierende Film des Jahres
+- der daraus resultierende Film des Jahres
 
-\- der Ausflug nach Palma
+- der Ausflug nach Palma
 
-\- die Informationsüberflutung im Bus: "Vor 5 Minuten war rechts die Straußenfarm, die besten Tapas gibt es hier und einkaufen können Sie dort. Hauptsache, Sie finden den Bus wieder!"
+- die Informationsüberflutung im Bus: "Vor 5 Minuten war rechts die Straußenfarm, die besten Tapas gibt es hier und einkaufen können Sie dort. Hauptsache, Sie finden den Bus wieder!"
 
-\- die Panikattacke meiner Schatzeline als wir in einer Straße ohne Menschen gelandet waren
+- die Panikattacke meiner Schatzeline als wir in einer Straße ohne Menschen gelandet waren
 
-\- unsere Tapas in einer großen amerikanischen Fast-Food-Kette
+- unsere Tapas in einer großen amerikanischen Fast-Food-Kette
 
-\- unsere Liegestuhlskulptur
+- unsere Liegestuhlskulptur
 
-\- Gehen Sie? Gehen Sie!?
+- Gehen Sie? Gehen Sie!?
 
-\- Massaaschi
+- Massaaschi
 
-\- das Plätschesjerspiel
+- das Plätschesjerspiel
 
-\- unser Fußmarsch nach Alcudia
+- unser Fußmarsch nach Alcudia
 
-\- unsere Busreise nach Alcudia - einkaufen während der Siesta, grandioser Einfall!
+- unsere Busreise nach Alcudia - einkaufen während der Siesta, grandioser Einfall!
 
-\- unsere zweite Busreise nach Alcudia - einkaufen außerhalb der Siesta, ein noch viel besserer Einfall!
+- unsere zweite Busreise nach Alcudia - einkaufen außerhalb der Siesta, ein noch viel besserer Einfall!
 
-\- der Kauf des EC-Kartenkillerportemonnaies
+- der Kauf des EC-Kartenkillerportemonnaies
 
-\- der Sofortrabatt für die abgelehnte Plastiktüte
+- der Sofortrabatt für die abgelehnte Plastiktüte
 
-\- "Schatze, Schatze! Ich melde mich noch mal kurz! Das Licht ist noch an..."
+- "Schatze, Schatze! Ich melde mich noch mal kurz! Das Licht ist noch an..."
 
-\- die Bild-Zeitungskäufe
+- die Bild-Zeitungskäufe
 
-\- die Mücken in unserem Hotel
+- die Mücken in unserem Hotel
 
-\- die Pauden meiner Schatzeline
+- die Pauden meiner Schatzeline
 
-\- der Paudenheini
+- der Paudenheini
 
-\- meine Ohrfeige an der Bar
+- meine Ohrfeige an der Bar
 
-\- "Darf ich die Copa in den See werfen?"
+- "Darf ich die Copa in den See werfen?"
 
-\- unsere Luftmatratzen
+- unsere Luftmatratzen
 
-\- meine Flip-Flops
+- meine Flip-Flops
 
-\- das schreiende Kind mit überforderten Eltern auf dem Rückflug
+- das schreiende Kind mit überforderten Eltern auf dem Rückflug
 
-\- das streitende Pärchen, das auf dem Rückflug in der Reihe vor uns saß
+- das streitende Pärchen, das auf dem Rückflug in der Reihe vor uns saß
 
-\- der Tomatensaft, der neben uns verschüttet wurde
+- der Tomatensaft, der neben uns verschüttet wurde
 
-\- unsere Tristigkeit nach der Rückkehr
+- unsere Tristigkeit nach der Rückkehr
 
-\- unser erster Grand Prix, der gleich mit dem Sieg für Lena endete
+- unser erster Grand Prix, der gleich mit dem Sieg für Lena endete
 
-\- der Fritze
+- der Fritze
 
-\- alle anderen Fritzes
+- alle anderen Fritzes
 
-\- das Feuerwehrfest
+- das Feuerwehrfest
 
-\- die Krise auf dem Feuerwehrfest
+- die Krise auf dem Feuerwehrfest
 
-\- "Einfach nur hin- und hertupsen"
+- "Einfach nur hin- und hertupsen"
 
-\- der Grillschinken
+- der Grillschinken
 
-\- der elektronische Bundesanzeiger und alle interessanten Informationen, die man dadurch erhält
+- der elektronische Bundesanzeiger und alle interessanten Informationen, die man dadurch erhält
 
-\- saarländisch für Anfänger: drasseln, getunkt? getonkt? getuongt?, Luwiss, Oh leck...
+- saarländisch für Anfänger: drasseln, getunkt? getonkt? getuongt?, Luwiss, Oh leck...
 
-\- die Contipark-Parkgaragen GmbH
+- die Contipark-Parkgaragen GmbH
 
-\- mein Geburtstag mit eingeschneiten Gästen
+- mein Geburtstag mit eingeschneiten Gästen
 
-\- die neuesten Muffin- und Cupcake-Kreationen meiner Schatzeline
+- die neuesten Muffin- und Cupcake-Kreationen meiner Schatzeline
 
-\- unser Pärchen-Adventskalender
+- unser Pärchen-Adventskalender
 
-\- unsere Vanillekipferl und die Ausstechplätzen mit Ente
+- unsere Vanillekipferl und die Ausstechplätzen mit Ente
 
-\- unsere Herzkissen
+- unsere Herzkissen
 
-\- die Krassolade
+- die Krassolade
 
-\- der Lasko
+- der Lasko
 
-\- die neue Brille meiner Schatzeline
+- die neue Brille meiner Schatzeline
 
-\- unser erstes selbstgemachtes Sushi
+- unser erstes selbstgemachtes Sushi
 
-\- Perfect Roll und der tolle Werbespot
+- Perfect Roll und der tolle Werbespot
 
-\- mein übervoller Magen nach 36 Sushis
+- mein übervoller Magen nach 36 Sushis
 
-\- unser erster Versuch in das Hallenbad zu gehen - geschlossen...
+- unser erster Versuch in das Hallenbad zu gehen - geschlossen...
 
-\- unsere neue Digicam
+- unsere neue Digicam
 
-\- die Weight-Watchers
+- die Weight-Watchers
 
-\- der erfolgreiche Kampf um die Perlchen
+- der erfolgreiche Kampf um die Perlchen
 
-\- viele leckere neue Rezepte
+- viele leckere neue Rezepte
 
-\- unser ausgeklügeltes Einkaufs-Abrechnungssystem
+- unser ausgeklügeltes Einkaufs-Abrechnungssystem
 
-\- Payback
+- Payback
 
-\- unsere Reisentheltaschen
+- unsere Reisentheltaschen
 
-\- meine Sonnenbrille, die eigentlich gar nicht so schlecht aussieht
+- meine Sonnenbrille, die eigentlich gar nicht so schlecht aussieht
 
-\- die Nacht der Museen mit dem ersten gemeinsamen Stadionbesuch
+- die Nacht der Museen mit dem ersten gemeinsamen Stadionbesuch
 
-\- unser zweiter gemeinsamer Stadionbesuch und der Besuch im Fanshop
+- unser zweiter gemeinsamer Stadionbesuch und der Besuch im Fanshop
 
-\- der Women's Run
+- der Women's Run
 
-\- "Wir haben keine Zeit für nichts anderes als Müsli"
+- "Wir haben keine Zeit für nichts anderes als Müsli"
 
-\- "Am Sonntag bist du die Frau meines Lebens, die es am längsten mit mir ausgehalten hat"
+- "Am Sonntag bist du die Frau meines Lebens, die es am längsten mit mir ausgehalten hat"
 
-\- meine Nackenrasur
+- meine Nackenrasur
 
-\- meine Begeisterung für gewisse Serien: Eddie, Ayla und Dr. St.-Sch. sind schon super!
+- meine Begeisterung für gewisse Serien: Eddie, Ayla und Dr. St.-Sch. sind schon super!
 
-\- die Katzenberger
+- die Katzenberger
 
-\- Die Ohnmachtsbrasilianerin beim Anblick ihrer schlafmützigen Töchter
+- Die Ohnmachtsbrasilianerin beim Anblick ihrer schlafmützigen Töchter
 
-\- Harald und Schanett
+- Harald und Schanett
 
-\- Barrrbarrra
+- Barrrbarrra
 
-\- Lämmes
+- Lämmes
 
-\- Willy "Herman Munster" und seine Rosi
+- Willy "Herman Munster" und seine Rosi
 
-\- und natürlich der wuchtende Martin und seine Jenny
+- und natürlich der wuchtende Martin und seine Jenny
 
-\- die gefärbte Michaela und ihr Brachiel
+- die gefärbte Michaela und ihr Brachiel
 
-\- der Engelfreund und die Reinigung vom Teufel
+- der Engelfreund und die Reinigung vom Teufel
 
-\- ausschlagende Pendel
+- ausschlagende Pendel
 
-\- Schnurr, schnurr, schnurr, kratz, tatz!
+- Schnurr, schnurr, schnurr, kratz, tatz!
 
-\- Dorrrroda
+- Dorrrroda
 
-\- Peer
+- Peer
 
-\- Mario "Howard" und seine Schwitzhemden
+- Mario "Howard" und seine Schwitzhemden
 
-\- der Mettigel
+- der Mettigel
 
-\- Jan Weiler
+- Jan Weiler
 
-\- unsere Burgbesuche
+- unsere Burgbesuche
 
-\- unsere Open-Air-Kino-Premiere
+- unsere Open-Air-Kino-Premiere
 
-\- der doppelte Gewinn im Open-Air-Kino meiner Schatzeline: Bingo und Zuschauertipp
+- der doppelte Gewinn im Open-Air-Kino meiner Schatzeline: Bingo und Zuschauertipp
 
-\- ihr Neubürgertäschchen
+- ihr Neubürgertäschchen
 
-\- "Du scheene Mann! Das nix scheene Frau!"
+- "Du scheene Mann! Das nix scheene Frau!"
 
-\- "Komme 'se ma her! Der belästigt uns und hat nicht mal 'ne Karte!"
+- "Komme 'se ma her! Der belästigt uns und hat nicht mal 'ne Karte!"
 
-\- unsere geschenkten und geerbten Orchideen (Danke, Oma, sie blühen super)
+- unsere geschenkten und geerbten Orchideen (Danke, Oma, sie blühen super)
 
-\- Schade, Flip...
+- Schade, Flip...
 
-\- ich würde mich freuen, wenn du mal anfingst nachzudenken...
+- ich würde mich freuen, wenn du mal anfingst nachzudenken...
 
-\- immerhin suche ich meine Verwandten nicht im Spiegel... du Fritze!
+- immerhin suche ich meine Verwandten nicht im Spiegel... du Fritze!
 
-\- der Ölch, der nach einem Wink mit einem besonders großen Zaunpfahl den Weg zu uns fand
+- der Ölch, der nach einem Wink mit einem besonders großen Zaunpfahl den Weg zu uns fand
 
 ... und auch in diesem Jahr habe ich bestimmt wieder die Hälfte vergessen. Aber es war wieder ein sehr ereignisreiches Jahr. Und es war ein Jahr voller positiver Veränderungen. Vor anderthalb Jahren war ich ein hoffnungsloses Ich. Und jetzt sind wir beiden, meine Schatzeline, ein superduper Wir! Wir haben viele Hürden genommen, viele emotionale Momente hinter uns gebracht, wir haben gelacht und geweint. Wir haben (wenn auch mit sanftem Druck) den Sprung gewagt und sind in eine gemeinsame Wohnung gezogen. Und auch wenn wir beide manchmal ganz schön viel mitmachen mit uns - ich möchte das alles nicht missen und ich will mehr davon! Und wenn es dir genauso geht, dann bin ich mir sicher: Das mit uns ist, bleibt und wird was ganz, ganz Großes!!!
 

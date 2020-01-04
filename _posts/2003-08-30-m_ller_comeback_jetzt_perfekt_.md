@@ -18,19 +18,19 @@ Der Rest der Fahrt verlief eher unspektakulär. Mit steigender Müdigkeit wurden
 
 _In so einem Bericht kann man natürlich trotz aufwändigster Notizen nicht alles erwähnen. Folgendes scheint mir auch noch nennenswert:  
   
-\- die unbeliebteste Frühstückszutat: unsere Limonenmarmelade...  
-\- der beste Brotbelag: boah lecker (alias Pålækker)  
-\- der beste Sänger: Chris __  
-\- der schlechteste Sänger: Chris  
+- die unbeliebteste Frühstückszutat: unsere Limonenmarmelade...  
+- der beste Brotbelag: boah lecker (alias Pålækker)  
+- der beste Sänger: Chris __  
+- der schlechteste Sänger: Chris  
 \- der stärkste Haarausfall: bei unserer Leseratte  
-\- der ausgeprägteste Gerechtigkeitssinn: bei unserer Hochgebirgsbewohnerin (teilen wo immer es geht)  
-\- das größte Konfliktpotenzial: bei unserem Traumpaar (aber nur ganz wenig)  
-\- die magischste Tür: die unseres Traumpaars (Streit, Tür zu, Tür auf, alles wieder gut)  
-\- die größten Aggressionen und der härteste Schlag: bei unserer Leseratte  
-\- die größte Dreckschleuder: ganz klar, das Entchen unserer Leseratte (vielleicht hätten wir auch eine Entchenreinigung bestellen sollen)  
-\- der wohl häufigste Satz der Reise: Ihr wärt so ein süßes Pärchen...  
-\- das nervigste Wort: Chris' geträllertes Scha-atz? (dem selten wirklich eine Frage folgte)  
-\- die süßeste Versuchung: Schoko-Riesen  
+- der ausgeprägteste Gerechtigkeitssinn: bei unserer Hochgebirgsbewohnerin (teilen wo immer es geht)  
+- das größte Konfliktpotenzial: bei unserem Traumpaar (aber nur ganz wenig)  
+- die magischste Tür: die unseres Traumpaars (Streit, Tür zu, Tür auf, alles wieder gut)  
+- die größten Aggressionen und der härteste Schlag: bei unserer Leseratte  
+- die größte Dreckschleuder: ganz klar, das Entchen unserer Leseratte (vielleicht hätten wir auch eine Entchenreinigung bestellen sollen)  
+- der wohl häufigste Satz der Reise: Ihr wärt so ein süßes Pärchen...  
+- das nervigste Wort: Chris' geträllertes Scha-atz? (dem selten wirklich eine Frage folgte)  
+- die süßeste Versuchung: Schoko-Riesen  
   
 und so weiter und so fort...  
   

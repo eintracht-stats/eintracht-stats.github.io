@@ -72,359 +72,359 @@ Dann war er auch schon da, der bis dato beste Tag meines bisherigen Lebens! Am B
 
 Der nächste Tag brachte einen schweren Absturz mit sich. Von Wolke Sieben auf den Boden der Tatsachen. Die Realität hatte uns eingeholt und es durfte noch mal gezweifelt werden. Kann man die virtuelle Zweisamkeit doch nicht ins wahre Leben übertragen? War das gestern doch nur die Magie des Augenblicks? Kann es gut für mich sein, wenn ich mich erst fast von einem Auto überfahren lasse und jetzt fast noch die Treppe hinabstürze? Ist der Wirbelwind doch zu stürmisch? Völlig verwürrt wollte ich selbst meine Freunde nicht mehr erkennen. Es folgte eine unangenehme Nacht voller Gedanken... Ein paar Mails und unsere ersten Telefonate rückten die Verhältnisse in den nächsten Tagen aber wieder zurecht. Und so folgte eine wunderschöne Geburtstagsfeier mit meiner Lieblings-Modeschöpferin. Bei selbst gebackenem Kuchen und wohlschmeckenden Kerzenständern ließen wir es uns vor dem Eiffelturm bei einer Flasche Sekt richtig gut gehen... Ich könnte noch ewig weiterschreiben, weil wir in den Monaten danach noch wahnsinnig viel erlebt haben. Das würde aber wohl den Rahmen sprengen - und einiges geht ja auch nicht wirklich jeden etwas an. :-) Von daher folgen jetzt noch ein paar Stichworte, die unser Jahr beschreiben. Das brachte unser Jahr mit sich:
 
-\- der/die/das war schon kaputt
+- der/die/das war schon kaputt
 
-\- die/das Nutella
+- die/das Nutella
 
-\- "17 Euro bitte" - "17, stimmt so"
+- "17 Euro bitte" - "17, stimmt so"
 
-\- unser Zwei-Familien-Kennenlern-Tag
+- unser Zwei-Familien-Kennenlern-Tag
 
-\- eine Wanderung von Frankfurt nach Bad Vilbel mit lang anhaltendem Nacken-Sonnenbrand
+- eine Wanderung von Frankfurt nach Bad Vilbel mit lang anhaltendem Nacken-Sonnenbrand
 
-\- unsere zahlreichen "ersten Male", wie z.B. unser erster Korken
+- unsere zahlreichen "ersten Male", wie z.B. unser erster Korken
 
-\- "Damit kann ich jetzt beruhigt schlafen gehen - an diesem 08. August, an dem Fußball zur Nebensache wurde..." Unglaublich, dass Chris aus diesem Satz ableiten konnte, dass ich meine Lieblings-Modeschöpferin gefunden habe...
+- "Damit kann ich jetzt beruhigt schlafen gehen - an diesem 08. August, an dem Fußball zur Nebensache wurde..." Unglaublich, dass Chris aus diesem Satz ableiten konnte, dass ich meine Lieblings-Modeschöpferin gefunden habe...
 
-\- unser Saarland-Trip im Oktober
+- unser Saarland-Trip im Oktober
 
-\- "Ist das hier Idar-Oberstein?"
+- "Ist das hier Idar-Oberstein?"
 
-\- unser Gespräch zwischen Kirn und Türkismühle
+- unser Gespräch zwischen Kirn und Türkismühle
 
-\- faltende Modeschöpferinnen
+- faltende Modeschöpferinnen
 
-\- mein erstes Schiffchen
+- mein erstes Schiffchen
 
-\- unsere Glückskekse
+- unsere Glückskekse
 
-\- "Nutzen Sie die Informationen, die Sie erhalten haben!" Ohlalalala...
+- "Nutzen Sie die Informationen, die Sie erhalten haben!" Ohlalalala...
 
-\- das Gerstenkorn - "Ich drück's mir aus!"
+- das Gerstenkorn - "Ich drück's mir aus!"
 
-\- "Was hast du denn da?" - "Da war ein..." - "Ich weiß was da war!!!!!"
+- "Was hast du denn da?" - "Da war ein..." - "Ich weiß was da war!!!!!"
 
-\- meine neuen Fremdsprachen-Kenntnisse: Ölf, Em Liane sei Fliescher, Hääbsche...
+- meine neuen Fremdsprachen-Kenntnisse: Ölf, Em Liane sei Fliescher, Hääbsche...
 
-\- Unn?????
+- Unn?????
 
-\- der Pflaumeheini
+- der Pflaumeheini
 
-\- die Mischehe
+- die Mischehe
 
-\- meine enorm gesteigerte Frustrationstoleranz
+- meine enorm gesteigerte Frustrationstoleranz
 
-\- die Erkenntnis, dass mein Schmollen berufsbedingt keine Wirkung zeigt
+- die Erkenntnis, dass mein Schmollen berufsbedingt keine Wirkung zeigt
 
-\- komische Nachbarn (Hallo, schöne Frau Nachbarin...)
+- komische Nachbarn (Hallo, schöne Frau Nachbarin...)
 
-\- Christopher Barker und..
+- Christopher Barker und..
 
-\- ...die Barkers
+- ...die Barkers
 
-\- die O.'s
+- die O.'s
 
-\- Gutscheine
+- Gutscheine
 
-\- Wer kennt Wen?
+- Wer kennt Wen?
 
-\- die vielfältige Auswahl bei Tchibo
+- die vielfältige Auswahl bei Tchibo
 
-\- Unsere geplanten Filmprojekte "Hinter den Bäumen, wo noch Wiese ist" und "Vor der Wiese, wo die Bäume stehen"...
+- Unsere geplanten Filmprojekte "Hinter den Bäumen, wo noch Wiese ist" und "Vor der Wiese, wo die Bäume stehen"...
 
-\- ... und unsere bereits umgesetzten Handy-Videos
+- ... und unsere bereits umgesetzten Handy-Videos
 
-\- "...damit du nicht frierst............................halt"
+- "...damit du nicht frierst............................halt"
 
-\- der Serpentinentanz
+- der Serpentinentanz
 
-\- "Erinner dich!"
+- "Erinner dich!"
 
-\- "Heute noch....... Heute noch..... Ingwer - geht gar nicht!"
+- "Heute noch....... Heute noch..... Ingwer - geht gar nicht!"
 
-\- Et audiator altera pars
+- Et audiator altera pars
 
-\- meine Eintracht-CD
+- meine Eintracht-CD
 
-\- Clueso - unser Lied...
+- Clueso - unser Lied...
 
-\- der Geburtstag meiner Oma und kurz danach ihr Tod
+- der Geburtstag meiner Oma und kurz danach ihr Tod
 
-\- meine schwitzenden und krallenden Hände nach der Beerdigung
+- meine schwitzenden und krallenden Hände nach der Beerdigung
 
-\- das Comeback des Zwiebelkuchens - daran lag's damals also nicht...
+- das Comeback des Zwiebelkuchens - daran lag's damals also nicht...
 
-\- "Oh nein! Ich bin eingeschlafen!" - "Quatsch ich dachte, ich bin eingeschlafen. Aber wir hatten schon längst aufgelegt!"
+- "Oh nein! Ich bin eingeschlafen!" - "Quatsch ich dachte, ich bin eingeschlafen. Aber wir hatten schon längst aufgelegt!"
 
-\- Hahaha (oder besser Kchchchch)
+- Hahaha (oder besser Kchchchch)
 
-\- weiße Frühstückscreme und ihre Folgen
+- weiße Frühstückscreme und ihre Folgen
 
-\- kulturelle Unterschiede zwischen Hessen und dem Saarland: Sticksis...
+- kulturelle Unterschiede zwischen Hessen und dem Saarland: Sticksis...
 
-\- ein extrem scharfes Jambalaya
+- ein extrem scharfes Jambalaya
 
-\- mein Hühnchencurry
+- mein Hühnchencurry
 
-\- die Baldrian-Hopfen-Beruhigungsdragees
+- die Baldrian-Hopfen-Beruhigungsdragees
 
-\- die Meerrettichtabletten und ihre Folgen: Mordgedanken, Versagermädchen-Gedanken, Ich-pack-die-Koffer-Gedanken
+- die Meerrettichtabletten und ihre Folgen: Mordgedanken, Versagermädchen-Gedanken, Ich-pack-die-Koffer-Gedanken
 
-\- die verseuchte Nidda
+- die verseuchte Nidda
 
-\- unser Busfahrer, der fümpf Autos auf einmal überholte
+- unser Busfahrer, der fümpf Autos auf einmal überholte
 
-\- unsere Busfahrerin ("Schleschte Laune oda was?")
+- unsere Busfahrerin ("Schleschte Laune oda was?")
 
-\- der erste Daily Flip meiner Lieblings-Modeschöpferin zum Thema Robert Enke
+- der erste Daily Flip meiner Lieblings-Modeschöpferin zum Thema Robert Enke
 
-\- Uppsala
+- Uppsala
 
-\- die Tränen, nachdem ich meinen Telefonanschluss hatte...
+- die Tränen, nachdem ich meinen Telefonanschluss hatte...
 
-\- der Willi-Wärmer
+- der Willi-Wärmer
 
-\- "Wir sind doch erst zwei Wochen zusammen!" und ein gutes Gespräch danach
+- "Wir sind doch erst zwei Wochen zusammen!" und ein gutes Gespräch danach
 
-\- die Jagd auf die Schwimmkerzen
+- die Jagd auf die Schwimmkerzen
 
-\- das Adventsgebilde
+- das Adventsgebilde
 
-\- Barfuß, Harry Potter und Keinohrhasen - unser Kinowochenende
+- Barfuß, Harry Potter und Keinohrhasen - unser Kinowochenende
 
-\- Toast Hawaii
+- Toast Hawaii
 
-\- meine Versuche mit Stäbchen zu essen
+- meine Versuche mit Stäbchen zu essen
 
-\- dein erstes Judo-Turnier mit wild um sich tretenden Kindern und rutschenden Hosen
+- dein erstes Judo-Turnier mit wild um sich tretenden Kindern und rutschenden Hosen
 
-\- umfallende Vasen
+- umfallende Vasen
 
-\- Supervisionen
+- Supervisionen
 
-\- Rotweinflecken - "Das traust du dich nicht..."
+- Rotweinflecken - "Das traust du dich nicht..."
 
-\- khaki und andere schöne Farben
+- khaki und andere schöne Farben
 
-\- rempelnde Osteuropäerinnen auf der Rolltreppe
+- rempelnde Osteuropäerinnen auf der Rolltreppe
 
-\- ein kleines Besserwisserchen
+- ein kleines Besserwisserchen
 
-\- "Und wir nehmen's ganz genau..."
+- "Und wir nehmen's ganz genau..."
 
-\- die zahlreichen Testsieger, die unser Leben bereichern
+- die zahlreichen Testsieger, die unser Leben bereichern
 
-\- "Ich bin ein Einzelgänger"
+- "Ich bin ein Einzelgänger"
 
-\- die Nasenpopelspur auf deinem Bett
+- die Nasenpopelspur auf deinem Bett
 
-\- der Googlehupf
+- der Googlehupf
 
-\- der Allohool
+- der Allohool
 
-\- \*ZUCK\* - "Was war denn DAS????" - "Ich bin S-Bahn gefahren!"
+- \*ZUCK\* - "Was war denn DAS????" - "Ich bin S-Bahn gefahren!"
 
-\- "Verstoppel dich!"
+- "Verstoppel dich!"
 
-\- Heidewitzka
+- Heidewitzka
 
-\- ein Elefant mit ausgekugeltem Rüssel
+- ein Elefant mit ausgekugeltem Rüssel
 
-\- die Schlafmaske
+- die Schlafmaske
 
-\- unsere Plätzchen mitsamt unserer parallelen Strand-Entspannung
+- unsere Plätzchen mitsamt unserer parallelen Strand-Entspannung
 
-\- unsere Poufs, Puufs, Puhfs oder wie auch immer sie heißen mögen...
+- unsere Poufs, Puufs, Puhfs oder wie auch immer sie heißen mögen...
 
-\- Nacktschnecken
+- Nacktschnecken
 
-\- die Erkenntnis, dass Ofenkäse in allen Variationen verdammt lecker ist
+- die Erkenntnis, dass Ofenkäse in allen Variationen verdammt lecker ist
 
-\- die Erkenntnis, dass flüssiger Ofenkäse sehr beweglich ist und überall reinpasst
+- die Erkenntnis, dass flüssiger Ofenkäse sehr beweglich ist und überall reinpasst
 
-\- die Erkenntnis, dass Hemdkragenplastikteile durchaus nützlich sein können
+- die Erkenntnis, dass Hemdkragenplastikteile durchaus nützlich sein können
 
-\- die Erkenntnis, dass Schokopudding und Butter in den Speichen nicht so toll ist
+- die Erkenntnis, dass Schokopudding und Butter in den Speichen nicht so toll ist
 
-\- Gespräche mit der Bäckerei-Fachverkäuferin
+- Gespräche mit der Bäckerei-Fachverkäuferin
 
-\- meine leeren Packungen in sämtlichen Schränken
+- meine leeren Packungen in sämtlichen Schränken
 
-\- der Stop-Arrête-Finger
+- der Stop-Arrête-Finger
 
-\- der Aber-Finger
+- der Aber-Finger
 
-\- der Boule-Club Hi.
+- der Boule-Club Hi.
 
-\- der SV Hu.
+- der SV Hu.
 
-\- Schweinegrippenalarm
+- Schweinegrippenalarm
 
-\- der Chef-Mundschutz
+- der Chef-Mundschutz
 
-\- das Picknick im Park
+- das Picknick im Park
 
-\- Luffgabbong
+- Luffgabbong
 
-\- "Du bist mein Vater - du bist meine Mutter..."
+- "Du bist mein Vater - du bist meine Mutter..."
 
-\- Steuererklärungen
+- Steuererklärungen
 
-\- "DIE SCHAFFE NIX!"
+- "DIE SCHAFFE NIX!"
 
-\- Shaun das Schaf
+- Shaun das Schaf
 
-\- die Rasenmäherziege
+- die Rasenmäherziege
 
-\- "Komm her! Immer dem Geräusch nach........"
+- "Komm her! Immer dem Geräusch nach........"
 
-\- Zündelnde Brüder
+- Zündelnde Brüder
 
-\- meine Eckbadewanne und ihre zahlreichen Badezusätze
+- meine Eckbadewanne und ihre zahlreichen Badezusätze
 
-\- unser Rosé-Sekt
+- unser Rosé-Sekt
 
-\- IKEA
+- IKEA
 
-\- der Trolley
+- der Trolley
 
-\- unsere Geburtstagsüberraschungen
+- unsere Geburtstagsüberraschungen
 
-\- Karla Klein und ihre Schauspielkollegen
+- Karla Klein und ihre Schauspielkollegen
 
-\- Strapse
+- Strapse
 
-\- regelmäßige Nervenzusammenbrüche nach den Auftritten
+- regelmäßige Nervenzusammenbrüche nach den Auftritten
 
-\- gut gelagerte Hochzeitseinladungen
+- gut gelagerte Hochzeitseinladungen
 
-\- weibliche Wörter, die auf A enden
+- weibliche Wörter, die auf A enden
 
-\- Rachepläne
+- Rachepläne
 
-\- unsere schönen Durteltoge
+- unsere schönen Durteltoge
 
-\- der Schbubbel-Schatz
+- der Schbubbel-Schatz
 
-\- meine kleine ...line
+- meine kleine ...line
 
-\- die Erkenntnis, dass es Leute gibt, die keine Äpfel essen, wenn sie alleine zu Hause sind
+- die Erkenntnis, dass es Leute gibt, die keine Äpfel essen, wenn sie alleine zu Hause sind
 
-\- Ganze Kerle und Floh im Ohr - unser Theaterjahr
+- Ganze Kerle und Floh im Ohr - unser Theaterjahr
 
-\- "Nie wieder ein BWLer!"
+- "Nie wieder ein BWLer!"
 
-\- unsere Serien: Schwiegertochter gesucht und Bauer sucht Frau
+- unsere Serien: Schwiegertochter gesucht und Bauer sucht Frau
 
-\- die begabte Beate und ihre ca. 254 Gedichte
+- die begabte Beate und ihre ca. 254 Gedichte
 
-\- "Schnauf, schnauf!" - "So, und du schläfst unten!" - "Schnauf, schnauf!" - "Iiieeeep!!"
+- "Schnauf, schnauf!" - "So, und du schläfst unten!" - "Schnauf, schnauf!" - "Iiieeeep!!"
 
-\- der Sparclub
+- der Sparclub
 
-\- "Wer eine 4 würfelt, muss trinken."
+- "Wer eine 4 würfelt, muss trinken."
 
-\- Mutter Daggi und ihr Bier
+- Mutter Daggi und ihr Bier
 
-\- Tierimitationen mit Monika
+- Tierimitationen mit Monika
 
-\- Malen nach Zahlen
+- Malen nach Zahlen
 
-\- Fencheltee mit Cola
+- Fencheltee mit Cola
 
-\- Der Hasenfreund
+- Der Hasenfreund
 
-\- Z'wäänig!
+- Z'wäänig!
 
-\- "Ich liebe die Modewelt!"
+- "Ich liebe die Modewelt!"
 
-\- Muffins und Blechkuchen
+- Muffins und Blechkuchen
 
-\- Napooli Knootschi
+- Napooli Knootschi
 
-\- "Ich bin fick und fertig!"
+- "Ich bin fick und fertig!"
 
-\- "Warum makst du imma Üballaschung?"
+- "Warum makst du imma Üballaschung?"
 
-\- "Er versucht romaatisch zu make. Er versucht chaman zu make. Aber... Klappt nicht!"
+- "Er versucht romaatisch zu make. Er versucht chaman zu make. Aber... Klappt nicht!"
 
-\- "Ja wenn du das schaffst!"
+- "Ja wenn du das schaffst!"
 
-\- "Das ist alles so kackig hier!"
+- "Das ist alles so kackig hier!"
 
-\- "Du tust alles für mich. Und darum beneide ich dich."
+- "Du tust alles für mich. Und darum beneide ich dich."
 
-\- Der Dip ohne Pommes...
+- Der Dip ohne Pommes...
 
-\- Schmadl
+- Schmadl
 
-\- Glitschi
+- Glitschi
 
-\- der Frankfurter Weihnachtsmarkt und die erste Glühweinbude
+- der Frankfurter Weihnachtsmarkt und die erste Glühweinbude
 
-\- der Psychopathenstammtisch
+- der Psychopathenstammtisch
 
-\- die katholischen Frauen
+- die katholischen Frauen
 
-\- mein Kontostand in Höhe von 92.233.720.368.547.760,00 Euro
+- mein Kontostand in Höhe von 92.233.720.368.547.760,00 Euro
 
-\- Streitigkeiten über gefrorene Heizungsrohre, rechts- oder linksdrehende Tänzerinnen und Weihnachtsbäume
+- Streitigkeiten über gefrorene Heizungsrohre, rechts- oder linksdrehende Tänzerinnen und Weihnachtsbäume
 
-\- (m)eine scharfe Schnitte
+- (m)eine scharfe Schnitte
 
-\- der Vilbeler Markt
+- der Vilbeler Markt
 
-\- Poffertjes
+- Poffertjes
 
-\- Karl-Heinz, die Frucht unserer Liebe
+- Karl-Heinz, die Frucht unserer Liebe
 
-\- "Günther!"
+- "Günther!"
 
-\- das 1000g-Glas Nutella
+- das 1000g-Glas Nutella
 
-\- die Nutella-Gläser, die ich immer nur einmal sah
+- die Nutella-Gläser, die ich immer nur einmal sah
 
-\- das Nutella-Glas, das ich über Wochen immer wieder sah
+- das Nutella-Glas, das ich über Wochen immer wieder sah
 
-\- "Du kannst mich Oma nennen."
+- "Du kannst mich Oma nennen."
 
-\- "Die haben versucht einen Neger aus mir zu machen. Haben sie aber nicht geschafft."
+- "Die haben versucht einen Neger aus mir zu machen. Haben sie aber nicht geschafft."
 
-\- HUST, RÖCHEL "SCHATZ, alles in Ordnung???" - "Na klar, alles gut, schlaf weiter..."
+- HUST, RÖCHEL "SCHATZ, alles in Ordnung???" - "Na klar, alles gut, schlaf weiter..."
 
-\- "OH MEIN GOTT!!! Ich habe geträumt, dass du..."
+- "OH MEIN GOTT!!! Ich habe geträumt, dass du..."
 
-\- Rucola
+- Rucola
 
-\- Geh bei Grün der Kinder wegen - oder der Genitiv ist dem Dativ sein Tod
+- Geh bei Grün der Kinder wegen - oder der Genitiv ist dem Dativ sein Tod
 
-\- die Kopf-Unter-Phobie
+- die Kopf-Unter-Phobie
 
-\- der Wir-kommen-zu-spät-zur-S-Bahn-Schritt
+- der Wir-kommen-zu-spät-zur-S-Bahn-Schritt
 
-\- ein Riesendebakel beim Ringe-(nicht)-kaufen. Sorry :-(
+- ein Riesendebakel beim Ringe-(nicht)-kaufen. Sorry :-(
 
-\- "DU! WO WILLST DU HIN?!?! Bareageöajgektwaketjewk! Die Mallorca-Soldaten!!!"
+- "DU! WO WILLST DU HIN?!?! Bareageöajgektwaketjewk! Die Mallorca-Soldaten!!!"
 
-\- mal was ganz anderes: meine Radtour mit Chris im Odenwald
+- mal was ganz anderes: meine Radtour mit Chris im Odenwald
 
-\- unser Pferdewurst-Versprechen
+- unser Pferdewurst-Versprechen
 
-\- "Die aal Schadeek bump ich um!"
+- "Die aal Schadeek bump ich um!"
 
-\- "Bei dir merkt man gleich, wenn was nicht stimmt. Und dann ist's besser, man kommt erst wieder aus dem Bad, wenn du schon weg bist" :-)
+- "Bei dir merkt man gleich, wenn was nicht stimmt. Und dann ist's besser, man kommt erst wieder aus dem Bad, wenn du schon weg bist" :-)
 
-\- Der kleine Vampir, Dr. Snuggles, Hallo Spencer und andere Kindheitserinnerungen
+- Der kleine Vampir, Dr. Snuggles, Hallo Spencer und andere Kindheitserinnerungen
 
 Und natürlich unser Straßburg-Aufenthalt:
 
-\- Die Erkenntnis, dass das Jesuskind Halsweh hatte und von den heiligen drei Königen Salbei dagegen bekam
+- Die Erkenntnis, dass das Jesuskind Halsweh hatte und von den heiligen drei Königen Salbei dagegen bekam
 
-\- "Aha, der Zug ist schon angeschlagen. Moment, da steht was... D-E-R Z-U-G F-Ä-L-L-T A-U-S!!!!"
+- "Aha, der Zug ist schon angeschlagen. Moment, da steht was... D-E-R Z-U-G F-Ä-L-L-T A-U-S!!!!"
 
 \-  Streikende Franzosen
 
-\- Die ahnungslose Bahnangestellte und der kulante Bahnangestellte, der eine Ersatzroute parat hatte
+- Die ahnungslose Bahnangestellte und der kulante Bahnangestellte, der eine Ersatzroute parat hatte
 
 \-  Saarbrücken - Mannheim - Offenburg - Legelshurst - Kork - Kehl - Krimmeri-Meinau - Straßburg
 
@@ -472,15 +472,15 @@ Und natürlich unser Straßburg-Aufenthalt:
 
 \-  Lüm-lüm-lüm-lüm...
 
-\- rutschige Rollbahnen in Saarbrücken
+- rutschige Rollbahnen in Saarbrücken
 
 \- Fensterputzer, die auch bei Regen aktiv sind
 
-\- überraschend verkehrende Bahnen
+- überraschend verkehrende Bahnen
 
-\- ein abgehängter Zug mit uns beiden darin...
+- ein abgehängter Zug mit uns beiden darin...
 
-\- ein Bahn-Fragebogen zur Rettung des Quer-Durchs-Land-Tickets
+- ein Bahn-Fragebogen zur Rettung des Quer-Durchs-Land-Tickets
 
 ... und bestimmt noch gaaaanz viel mehr.... Ich habe wahrscheinlich noch die Hälfte vergessen zu erwähnen. Aber alles kann man ja nicht aufzählen.
 
