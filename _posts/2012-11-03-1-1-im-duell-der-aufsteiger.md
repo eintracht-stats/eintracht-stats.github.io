@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1:1 im Duell der Aufsteiger
+title: 1-1 im Duell der Aufsteiger
 
 ---
 

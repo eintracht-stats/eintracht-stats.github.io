@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Englische Woche: 3 Spieltage zu tippen
+title: Englische Woche- 3 Spieltage zu tippen
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt-VfL Bochum 3:2!!!
+title: Eintracht Frankfurt-VfL Bochum 3-2!!!
 subtitle: Eintracht wahrt Chance auf Klassenerhalt
 ---
 

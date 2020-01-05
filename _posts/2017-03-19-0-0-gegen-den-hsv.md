@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 gegen den HSV
+title: 0-0 gegen den HSV
 
 ---
 

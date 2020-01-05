@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Köln-Eintracht 2:0
+title: Köln-Eintracht 2-0
 
 ---
 

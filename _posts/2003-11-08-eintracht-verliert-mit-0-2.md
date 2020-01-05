@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert mit 0:2
+title: Eintracht verliert mit 0-2
 subtitle: Cipi fliegt vom Platz!
 ---
 

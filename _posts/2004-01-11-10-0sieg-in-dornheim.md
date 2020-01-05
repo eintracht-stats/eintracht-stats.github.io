@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 10:0-Sieg in Dornheim
+title: 10-0-Sieg in Dornheim
 subtitle: Möller und Chris mit Muskelverletzungen!
 ---
 

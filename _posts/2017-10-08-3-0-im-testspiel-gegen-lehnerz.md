@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3:0 im Testspiel gegen Lehnerz
+title: 3-0 im Testspiel gegen Lehnerz
 
 ---
 

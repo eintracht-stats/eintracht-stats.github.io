@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 5. Niederlage in Folge - 0:3 bei den Bayern
+title: 5. Niederlage in Folge - 0-3 bei den Bayern
 
 ---
 

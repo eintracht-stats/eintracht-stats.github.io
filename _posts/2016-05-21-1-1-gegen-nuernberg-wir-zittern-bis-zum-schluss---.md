@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1:1 gegen Nürnberg - wir zittern bis zum Schluss...
+title: 1-1 gegen Nürnberg - wir zittern bis zum Schluss...
 
 ---
 

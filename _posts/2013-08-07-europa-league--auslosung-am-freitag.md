@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Europa League: Auslosung am Freitag
+title: Europa League- Auslosung am Freitag
 
 ---
 

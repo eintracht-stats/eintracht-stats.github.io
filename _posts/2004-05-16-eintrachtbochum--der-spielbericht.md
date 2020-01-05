@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Bochum: Der Spielbericht
+title: Eintracht-Bochum- Der Spielbericht
 
 ---
 

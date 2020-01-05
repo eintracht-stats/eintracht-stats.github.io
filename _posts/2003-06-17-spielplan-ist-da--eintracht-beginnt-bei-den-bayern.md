@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielplan ist da: Eintracht beginnt bei den Bayern
+title: Spielplan ist da- Eintracht beginnt bei den Bayern
 subtitle: Erstes Heimspiel gegen Leverkusen
 ---
 

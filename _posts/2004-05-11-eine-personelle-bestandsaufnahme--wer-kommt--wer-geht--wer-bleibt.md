@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eine personelle Bestandsaufnahme: Wer kommt, wer geht, wer bleibt?
+title: Eine personelle Bestandsaufnahme- Wer kommt, wer geht, wer bleibt?
 
 ---
 

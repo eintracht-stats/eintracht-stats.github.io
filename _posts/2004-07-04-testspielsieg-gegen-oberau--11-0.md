@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielsieg gegen Oberau: 11:0
+title: Testspielsieg gegen Oberau- 11:0
 
 ---
 

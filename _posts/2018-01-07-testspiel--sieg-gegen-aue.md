@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel: Sieg gegen Aue
+title: Testspiel- Sieg gegen Aue
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sensationell: Perfekte Runde in der Europa League
+title: Sensationell- Perfekte Runde in der Europa League
 subtitle: Chaoten zerstören Erfolg
 ---
 

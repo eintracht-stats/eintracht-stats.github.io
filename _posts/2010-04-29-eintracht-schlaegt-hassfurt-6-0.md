@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Haßfurt 6:0
+title: Eintracht schlägt Haßfurt 6-0
 
 ---
 

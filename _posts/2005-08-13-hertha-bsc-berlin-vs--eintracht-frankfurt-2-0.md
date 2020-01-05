@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hertha BSC Berlin vs. Eintracht Frankfurt 2:0
+title: Hertha BSC Berlin vs. Eintracht Frankfurt 2-0
 
 ---
 

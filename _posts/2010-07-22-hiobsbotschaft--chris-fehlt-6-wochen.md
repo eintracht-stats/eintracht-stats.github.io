@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hiobsbotschaft: Chris fehlt 6 Wochen
+title: Hiobsbotschaft- Chris fehlt 6 Wochen
 
 ---
 

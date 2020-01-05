@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich: Der erste Sieg 2011
+title: Endlich- Der erste Sieg 2011
 
 ---
 

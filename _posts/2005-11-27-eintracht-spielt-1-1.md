@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt 1:1
+title: Eintracht spielt 1-1
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4:0 in Hoffenheim - was für ein Saisonstart!
+title: 4-0 in Hoffenheim - was für ein Saisonstart!
 
 ---
 

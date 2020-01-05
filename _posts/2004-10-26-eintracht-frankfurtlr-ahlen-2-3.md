@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt-LR Ahlen 2:3
+title: Eintracht Frankfurt-LR Ahlen 2-3
 
 ---
 

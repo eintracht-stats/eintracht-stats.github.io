@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintracht-stats.de: Statistiken wieder aktuell
+title: eintracht-stats.de- Statistiken wieder aktuell
 
 ---
 

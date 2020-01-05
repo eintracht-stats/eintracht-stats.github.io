@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erstes Testspiel: Eintracht verliert gegen Wattens!
+title: Erstes Testspiel- Eintracht verliert gegen Wattens!
 subtitle: undefined
 ---
 

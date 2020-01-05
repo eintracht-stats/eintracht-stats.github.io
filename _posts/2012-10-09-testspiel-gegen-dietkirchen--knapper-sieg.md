@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel gegen Dietkirchen: Knapper Sieg
+title: Testspiel gegen Dietkirchen- Knapper Sieg
 
 ---
 

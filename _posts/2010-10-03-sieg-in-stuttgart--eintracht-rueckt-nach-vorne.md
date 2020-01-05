@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Stuttgart: Eintracht rückt nach vorne
+title: Sieg in Stuttgart- Eintracht rückt nach vorne
 
 ---
 

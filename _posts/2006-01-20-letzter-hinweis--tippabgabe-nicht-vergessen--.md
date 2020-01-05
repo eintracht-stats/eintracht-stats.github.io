@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Letzter Hinweis: Tippabgabe nicht vergessen!!!
+title: Letzter Hinweis- Tippabgabe nicht vergessen!!!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 5:1 im Test gegen Oberrad - Trapp operiert
+title: 5-1 im Test gegen Oberrad - Trapp operiert
 
 ---
 

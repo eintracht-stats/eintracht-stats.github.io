@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schock: Pröll fehlt 6 Wochen!
+title: Schock- Pröll fehlt 6 Wochen!
 
 ---
 

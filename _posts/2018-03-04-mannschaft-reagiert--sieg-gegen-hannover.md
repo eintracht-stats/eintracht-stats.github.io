@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mannschaft reagiert: Sieg gegen Hannover
+title: Mannschaft reagiert- Sieg gegen Hannover
 
 ---
 

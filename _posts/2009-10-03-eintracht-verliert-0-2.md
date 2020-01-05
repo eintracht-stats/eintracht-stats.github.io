@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert 0:2 
+title: Eintracht verliert 0-2 
 subtitle: Schwegler fliegt vom Platz
 ---
 

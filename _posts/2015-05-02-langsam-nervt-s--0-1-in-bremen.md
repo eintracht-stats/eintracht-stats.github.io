@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Langsam nervt's: 0:1 in Bremen
+title: Langsam nervt's- 0:1 in Bremen
 
 ---
 

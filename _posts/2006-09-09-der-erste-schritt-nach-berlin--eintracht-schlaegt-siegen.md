@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der erste Schritt nach Berlin: Eintracht schlägt Siegen
+title: Der erste Schritt nach Berlin- Eintracht schlägt Siegen
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstieg rückt näher - 0:3 in Mainz
+title: Abstieg rückt näher - 0-3 in Mainz
 
 ---
 

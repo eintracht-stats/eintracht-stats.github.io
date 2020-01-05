@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung in der Sportschau: Eintracht muss nach Dortmund
+title: Pokalauslosung in der Sportschau- Eintracht muss nach Dortmund
 
 ---
 

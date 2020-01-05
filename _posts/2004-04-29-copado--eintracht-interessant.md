@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Copado: Eintracht interessant
+title: Copado- Eintracht interessant
 subtitle: Interesse an Weigelt bekundet
 ---
 

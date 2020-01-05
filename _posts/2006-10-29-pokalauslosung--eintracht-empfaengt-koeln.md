@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung: Eintracht empfängt Köln
+title: Pokalauslosung- Eintracht empfängt Köln
 
 ---
 

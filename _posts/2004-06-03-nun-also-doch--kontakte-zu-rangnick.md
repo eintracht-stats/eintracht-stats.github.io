@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nun also doch: Kontakte zu Rangnick
+title: Nun also doch- Kontakte zu Rangnick
 subtitle: Preuß bestätigt Wechsel
 ---
 

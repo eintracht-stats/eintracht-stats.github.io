@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Und wieder ein spätes Gegentor: 0:1 in Mainz
+title: Und wieder ein spätes Gegentor- 0:1 in Mainz
 
 ---
 

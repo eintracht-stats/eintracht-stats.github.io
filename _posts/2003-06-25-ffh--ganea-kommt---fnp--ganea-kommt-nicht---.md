@@ -1,6 +1,6 @@
 ---
 layout: post
-title: FFH: Ganea kommt!!!  - FNP: Ganea kommt nicht!!!
+title: FFH- Ganea kommt!!!  - FNP: Ganea kommt nicht!!!
 subtitle: Spielbetrieb auch ohne Investor gesichert
 ---
 

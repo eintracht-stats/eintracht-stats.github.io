@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nicht Fisch, nicht Fleisch: Wieder nur ein Punkt
+title: Nicht Fisch, nicht Fleisch- Wieder nur ein Punkt
 subtitle: Zwei Platzverweise im Derby
 ---
 

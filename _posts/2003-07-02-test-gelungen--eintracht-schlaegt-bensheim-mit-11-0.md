@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Test gelungen: Eintracht schlägt Bensheim mit 11:0
+title: Test gelungen- Eintracht schlägt Bensheim mit 11:0
 subtitle: Brasilianer sollen abgegeben werden
 ---
 

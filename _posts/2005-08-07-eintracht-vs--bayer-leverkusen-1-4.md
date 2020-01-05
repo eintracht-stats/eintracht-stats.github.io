@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vs. Bayer Leverkusen 1:4
+title: Eintracht vs. Bayer Leverkusen 1-4
 subtitle: Schwache zweite Hälfte macht guten Start zunichte
 ---
 

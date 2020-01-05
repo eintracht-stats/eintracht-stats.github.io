@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure siegen 5:0!
+title: Amateure siegen 5-0!
 
 ---
 

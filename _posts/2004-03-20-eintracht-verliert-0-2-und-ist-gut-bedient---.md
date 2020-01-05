@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert 0:2 - und ist gut bedient...
+title: Eintracht verliert 0-2 - und ist gut bedient...
 subtitle: Bürger sieht Gelb-Rot, Reimann auf Tribüne verwiesen
 ---
 

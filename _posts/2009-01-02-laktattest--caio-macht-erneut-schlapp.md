@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Laktattest: Caio macht erneut schlapp
+title: Laktattest- Caio macht erneut schlapp
 
 ---
 

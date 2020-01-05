@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure gewinnen 5:1
+title: Eintracht-Amateure gewinnen 5-1
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp bricht sich Hand: Saison-Aus!
+title: Trapp bricht sich Hand- Saison-Aus!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aufsichtsrat: Kein Geld für neue Leute im Winter
+title: Aufsichtsrat- Kein Geld für neue Leute im Winter
 subtitle: Noch kein sportlicher Leiter gefunden
 ---
 

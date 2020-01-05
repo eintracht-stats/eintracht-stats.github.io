@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel in Karben endet 5:3
+title: Testspiel in Karben endet 5-3
 
 ---
 

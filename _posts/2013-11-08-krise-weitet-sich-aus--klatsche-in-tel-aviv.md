@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krise weitet sich aus: Klatsche in Tel Aviv
+title: Krise weitet sich aus- Klatsche in Tel Aviv
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Es geht wieder los: Auftakt gegen Braunschweig
+title: Es geht wieder los- Auftakt gegen Braunschweig
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit 2:2 in Trier
+title: Eintracht mit 2-2 in Trier
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel in Niederrad: 11:0 für die Eintracht
+title: Testspiel in Niederrad- 11:0 für die Eintracht
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 13:1 im Benefizspiel
+title: 13-1 im Benefizspiel
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erstes Testspiel im Zillertal: Lockeres 10:0 gegen Regional-Auswahl
+title: Erstes Testspiel im Zillertal- Lockeres 10:0 gegen Regional-Auswahl
 
 ---
 

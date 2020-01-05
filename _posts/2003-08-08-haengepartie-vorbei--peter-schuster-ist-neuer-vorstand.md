@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hängepartie vorbei: Peter Schuster ist neuer Vorstand
+title: Hängepartie vorbei- Peter Schuster ist neuer Vorstand
 subtitle: Becker folgt Neppe im Aufsichtsrat
 ---
 

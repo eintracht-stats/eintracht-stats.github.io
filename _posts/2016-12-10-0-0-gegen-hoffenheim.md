@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 gegen Hoffenheim
+title: 0-0 gegen Hoffenheim
 subtitle: Schiri mit schwarzem Tag
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Technische Probleme: Tippspieltag wird nicht gewertet
+title: Technische Probleme- Tippspieltag wird nicht gewertet
 
 ---
 

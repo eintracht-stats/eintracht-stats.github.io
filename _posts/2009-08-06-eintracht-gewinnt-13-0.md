@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt 13:0
+title: Eintracht gewinnt 13-0
 
 ---
 

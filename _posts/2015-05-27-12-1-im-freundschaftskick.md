@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 12:1 im Freundschaftskick
+title: 12-1 im Freundschaftskick
 
 ---
 

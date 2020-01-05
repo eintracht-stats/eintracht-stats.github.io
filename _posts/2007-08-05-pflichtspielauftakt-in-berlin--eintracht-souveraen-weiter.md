@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflichtspielauftakt in Berlin: Eintracht souverän weiter
+title: Pflichtspielauftakt in Berlin- Eintracht souverän weiter
 subtitle: Meier überragend
 ---
 

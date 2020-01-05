@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bittet Fans: Stürmt nicht den Rasen!
+title: Eintracht bittet Fans- Stürmt nicht den Rasen!
 
 ---
 

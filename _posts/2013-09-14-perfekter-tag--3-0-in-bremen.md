@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Perfekter Tag: 3:0 in Bremen!
+title: Perfekter Tag- 3:0 in Bremen!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 10:2 gegen Mörfelden
+title: 10-2 gegen Mörfelden
 
 ---
 

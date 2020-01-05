@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich: Klassenerhalt geschafft
+title: Endlich- Klassenerhalt geschafft
 
 ---
 

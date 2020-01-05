@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflicht erfüllt: Eintracht gewinnt in Offenbach
+title: Pflicht erfüllt- Eintracht gewinnt in Offenbach
 
 ---
 

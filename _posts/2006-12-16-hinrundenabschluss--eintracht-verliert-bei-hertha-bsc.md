@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hinrundenabschluss: Eintracht verliert bei Hertha BSC
+title: Hinrundenabschluss- Eintracht verliert bei Hertha BSC
 
 ---
 

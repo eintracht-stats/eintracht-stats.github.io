@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure vs. Ober-Roden 2:2
+title: Amateure vs. Ober-Roden 2-2
 
 ---
 

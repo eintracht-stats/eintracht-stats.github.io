@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletztenmisere: Defensivkräfte gehen langsam aus
+title: Verletztenmisere- Defensivkräfte gehen langsam aus
 subtitle: Copado kommt so gut wie sicher
 ---
 

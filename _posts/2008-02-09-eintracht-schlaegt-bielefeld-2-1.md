@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Bielefeld 2:1
+title: Eintracht schlägt Bielefeld 2-1
 
 ---
 

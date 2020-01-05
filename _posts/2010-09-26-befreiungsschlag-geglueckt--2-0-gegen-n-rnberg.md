@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Befreiungsschlag geglückt: 2:0 gegen Nürnberg
+title: Befreiungsschlag geglückt- 2:0 gegen Nürnberg
 
 ---
 

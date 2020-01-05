@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2:1 gegen Leverkusen
+title: 2-1 gegen Leverkusen
 
 ---
 

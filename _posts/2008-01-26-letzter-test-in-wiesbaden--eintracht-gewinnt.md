@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Letzter Test in Wiesbaden: Eintracht gewinnt
+title: Letzter Test in Wiesbaden- Eintracht gewinnt
 
 ---
 

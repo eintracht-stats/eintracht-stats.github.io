@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rot-Weiss Essen-Eintracht Frankfurt 4:4
+title: Rot-Weiss Essen-Eintracht Frankfurt 4-4
 subtitle: undefined
 ---
 

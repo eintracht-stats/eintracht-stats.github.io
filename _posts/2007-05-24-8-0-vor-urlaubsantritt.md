@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 8:0 vor Urlaubsantritt
+title: 8-0 vor Urlaubsantritt
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: BILD: Eintracht will Rudi Völler
+title: BILD- Eintracht will Rudi Völler
 
 ---
 

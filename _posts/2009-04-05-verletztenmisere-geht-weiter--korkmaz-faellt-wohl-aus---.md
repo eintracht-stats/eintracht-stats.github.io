@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletztenmisere geht weiter: Korkmaz fällt wohl aus...
+title: Verletztenmisere geht weiter- Korkmaz fällt wohl aus...
 
 ---
 

@@ -8,7 +8,7 @@ subtitle: Jahresrückblick XXL zum Ausklang...
 
 Die Eintracht hat ein sehr bewegtes Jahr hinter sich. Zumindest könnte einem das so vorkommen, wenn man sich mit manchen Leuten unterhält, die schlimmste Weltuntergangsszenarien propagieren. Aber eigentlich war es ein ganz normales Jahr mit dem besten Trainer, der in den letzten 15 Jahren hier war...
 
-Im Januar wurden erstmal mit Takahara und Thurk ein kleines und ein großes Sorgenkind abgegeben. Gleichzeitig wurde der neue Hoffnungsträger der Massen verpflichtet. Ich gebe zu, auch ich ließ mich von seinen Vorschusslorbeeren blenden. Caio Cesar Alves dos Santos, alleine der Name klang schon zum mit der Zunge schnalzen. Caio Cesar Alves dos Santos, der torgefährlichste Mittelfeldspieler der laufenden Saison in der brasilianischen Liga, das klang nach Sambafußball, das klang nach Spaß, das machte Hoffnung auf Tänzchen à la Jay-Jay Okocha. Caio Cesar Alves dos Santos - heute schnalzt nichts mehr, wenn ich diesen Namen aussprechen muss. Torgefahr? In welcher brasilianischen Liga war das? Sambafußball? Tänzchen auf dem grünen Rasen? Einen Tanzbär in Fußballschuhen und ein ganz ganz dickes Sorgenkind haben wir da verpflichtet... Aber kommen wir erstmal zum Februar :-) Da machte der zweite Offensivneuzugang des letzten Winter eindrucksvoll aus sich aufmerksam. Martin Fenin startete mit 4 Toren in 2 Spielen furios. Besonders bemerkenswert sein Dreierpack im ersten Spiel der Rückrunde bei Hertha BSC Berlin. Eine Granate, wie es schien. Dann begann seine Torflaute... Des Weiteren konnte der Februar mit einigen Personalentscheidungen aufwarten. Heribert Bruchhagen verlängerte bis 2012, das Trainerteam bis 2009. Zudem wurde mit Markus Steinhöfer der erste Transfer für die neue Saison perfekt gemacht. Gute Entscheidungen... Nicht ganz so gut war die Entscheidung des Bremers Diego, seinen Frust über die 1:0-Niederlage in Frankfurt ausgerechnet an dem 5 Köpfe größeren Sotirios Kyrgiakos auszulassen. Diego fällte den Griechen in bester Zinedine-Zidane-Manier und wurde dann auch noch in den Medien als das eigentliche Opfer dargestellt. Stand up and fuck you... :-)
+Im Januar wurden erstmal mit Takahara und Thurk ein kleines und ein großes Sorgenkind abgegeben. Gleichzeitig wurde der neue Hoffnungsträger der Massen verpflichtet. Ich gebe zu, auch ich ließ mich von seinen Vorschusslorbeeren blenden. Caio Cesar Alves dos Santos, alleine der Name klang schon zum mit der Zunge schnalzen. Caio Cesar Alves dos Santos, der torgefährlichste Mittelfeldspieler der laufenden Saison in der brasilianischen Liga, das klang nach Sambafußball, das klang nach Spaß, das machte Hoffnung auf Tänzchen à la Jay-Jay Okocha. Caio Cesar Alves dos Santos \- heute schnalzt nichts mehr, wenn ich diesen Namen aussprechen muss. Torgefahr? In welcher brasilianischen Liga war das? Sambafußball? Tänzchen auf dem grünen Rasen? Einen Tanzbär in Fußballschuhen und ein ganz ganz dickes Sorgenkind haben wir da verpflichtet... Aber kommen wir erstmal zum Februar :-) Da machte der zweite Offensivneuzugang des letzten Winter eindrucksvoll aus sich aufmerksam. Martin Fenin startete mit 4 Toren in 2 Spielen furios. Besonders bemerkenswert sein Dreierpack im ersten Spiel der Rückrunde bei Hertha BSC Berlin. Eine Granate, wie es schien. Dann begann seine Torflaute... Des Weiteren konnte der Februar mit einigen Personalentscheidungen aufwarten. Heribert Bruchhagen verlängerte bis 2012, das Trainerteam bis 2009. Zudem wurde mit Markus Steinhöfer der erste Transfer für die neue Saison perfekt gemacht. Gute Entscheidungen... Nicht ganz so gut war die Entscheidung des Bremers Diego, seinen Frust über die 1:0-Niederlage in Frankfurt ausgerechnet an dem 5 Köpfe größeren Sotirios Kyrgiakos auszulassen. Diego fällte den Griechen in bester Zinedine-Zidane-Manier und wurde dann auch noch in den Medien als das eigentliche Opfer dargestellt. Stand up and fuck you... :-)
 
 Der März ließ uns kurzzeitig von höheren Zielen träumen. Trotz eines 1:1 gegen Bochum, als Azaouagh einen Freistoß an Oka Nikolov und der nicht vorhandenen Mauer ins leere Tor zirkelte, hatte der Monat einige Erfolge zu bieten. Caio hatte seine beste Szene im ganzen Jahr als er durchaus sehenswert zum 1:1 gegen Cottbus traf und den späteren Sieg damit vorbereitete. Nach einem Sieg in Leverkusen mit einem Tor von Mantzios, einem weiteren (Leih-)Zugang, schnupperte die Eintracht am Europapokal. Drei Punkte auf die Champions League ließen ja zumindest vom Uefa-Cup träumen... Nebenbei gab es noch den obligatorischen Kyrgiakos: Zweimal brach sich der Grieche in diesem Monat das Nasenbein. Spektakulär war er ja, das muss man zugeben :-)
 
@@ -23,39 +23,39 @@ Ich denke, die Hinrunde kann ich jetzt etwas kürzer Revue passieren lassen, da 
 
 Zum Ende noch ein paar Stichworte. Auch das war Teil des Eintracht-Jahres 2008:
 
-- der Wohnungsbrand bei Steinhöfer/Fenin: Den brennenden Grill samt Wohnungsschlüssel hinter Schloss und Riegel gebracht ;-)
+\- der Wohnungsbrand bei Steinhöfer/Fenin: Den brennenden Grill samt Wohnungsschlüssel hinter Schloss und Riegel gebracht ;-)
 
-- Caios Einkäufe an der Tankstelle, weil ihn die Supermarktkassierin nicht versteht
+\- Caios Einkäufe an der Tankstelle, weil ihn die Supermarktkassierin nicht versteht
 
-- Caios Auftritt in seiner Mietwohnung mit 40.000 Euro Schaden...
+\- Caios Auftritt in seiner Mietwohnung mit 40.000 Euro Schaden...
 
-- Mama Alves dos Santos und ihr gutes Essen. Das knallt beim Laktattest ganz schön rein. Frohe Weihnachten...
+\- Mama Alves dos Santos und ihr gutes Essen. Das knallt beim Laktattest ganz schön rein. Frohe Weihnachten...
 
-- "Caaaio, Caaaio" und "Funkel raus" - ich konnte mich nicht entscheiden, welche Sprechchöre aus unserer Fankurve dümmer waren...
+\- "Caaaio, Caaaio" und "Funkel raus" - ich konnte mich nicht entscheiden, welche Sprechchöre aus unserer Fankurve dümmer waren...
 
-- der verschossene Elfmeter von Caio und mein Schrei, der auf dem Handy meines Kollegen verewigt wurde: "ICH HAB'S GEWUSST!!!!!!!!!!!!"
+\- der verschossene Elfmeter von Caio und mein Schrei, der auf dem Handy meines Kollegen verewigt wurde: "ICH HAB'S GEWUSST!!!!!!!!!!!!"
 
-- das Who-is-Who der Eintracht-Verletzungen: Entzündungen an der Fußsohle, Mittelfußbrüche, Knorpelschäden, ausgekugelte Schultern, Hexenschüsse, entfernte Schleimhautfalten, Nasenbeinbrüche, Lungen-Operationen, Sehnenrisse in der Fußsohle...
+\- das Who-is-Who der Eintracht-Verletzungen: Entzündungen an der Fußsohle, Mittelfußbrüche, Knorpelschäden, ausgekugelte Schultern, Hexenschüsse, entfernte Schleimhautfalten, Nasenbeinbrüche, Lungen-Operationen, Sehnenrisse in der Fußsohle...
 
-- das Madonna-Konzert, das den Rasen im Waldstadion zerstörte und unseren schlechten Saisonstart noch verschlimmerte, da uns das Heimspiel gegen den KSC lange fehlte...
+\- das Madonna-Konzert, das den Rasen im Waldstadion zerstörte und unseren schlechten Saisonstart noch verschlimmerte, da uns das Heimspiel gegen den KSC lange fehlte...
 
-- der Rücktritt von Andreas Hornung als Fanbeauftragter
+\- der Rücktritt von Andreas Hornung als Fanbeauftragter
 
-- die Wiederwahl von Peter Fischer als Vereinspräsident
+\- die Wiederwahl von Peter Fischer als Vereinspräsident
 
-- Babak Rafati, der nach von Mario Gomez erzwungener Rücksprache mit seinem Assistenten den Stuttgarter Ausgleichstreffer anerkannte und eine Rudelbildung vom allerfeinsten verursachte
+\- Babak Rafati, der nach von Mario Gomez erzwungener Rücksprache mit seinem Assistenten den Stuttgarter Ausgleichstreffer anerkannte und eine Rudelbildung vom allerfeinsten verursachte
 
-- Günter Perl, der nach Rücksprache mit seinem Assistenten den Elfmeter für Hannover wieder zurückzog
+\- Günter Perl, der nach Rücksprache mit seinem Assistenten den Elfmeter für Hannover wieder zurückzog
 
-- ein in Mexiko verschollener Aaron Galindo
+\- ein in Mexiko verschollener Aaron Galindo
 
-- drei Liberopoulos-Doppelpacks in drei Heimspielen hintereinander
+\- drei Liberopoulos-Doppelpacks in drei Heimspielen hintereinander
 
-- der tolle Auftritt von Bochums Torhüter Fernandes, der nach drei Spielminuten einen Rückpass vergeigte, Martin Fenin umriss, einen Elfmeter verschuldete, die Rote Karte sah und die Niederlage seiner Mannschaft früh besiegelte. Es gibt Tage, da wäre man besser im Bett geblieben...
+\- der tolle Auftritt von Bochums Torhüter Fernandes, der nach drei Spielminuten einen Rückpass vergeigte, Martin Fenin umriss, einen Elfmeter verschuldete, die Rote Karte sah und die Niederlage seiner Mannschaft früh besiegelte. Es gibt Tage, da wäre man besser im Bett geblieben...
 
-- Neuzugang Leonard Kweuke, der von seinem Trainer Werner Lorant schon in Schwindel erregende Höhen gelobt wurde. Hoffentlich kein neuer Fall Caio...
+\- Neuzugang Leonard Kweuke, der von seinem Trainer Werner Lorant schon in Schwindel erregende Höhen gelobt wurde. Hoffentlich kein neuer Fall Caio...
 
-- der Tod von Alfred Pfaff. Wir haben einen großartigen Spieler, Menschen, eine Legende verloren...
+\- der Tod von Alfred Pfaff. Wir haben einen großartigen Spieler, Menschen, eine Legende verloren...
 
 Damit genug vom Sport. Jetzt ist der Moment, um die alten Daily Flip-Anhänger mit ihrer jährlichen Dosis zu versorgen. Während des Jahres haben sich meine privaten Einträge ja praktisch in Luft aufgelöst. Ich habe einfach nicht mehr die nötige Zeit, um das alles unter einen Hut zu bringen. Selbst unsere Statistiken leiden darunter - von der früheren Tagesaktualität bin ich hier weit entfernt. Es ist aber eben so, dass man nie wieder so viel Zeit hat wie zu Schul- und Studienzeiten. Aber dafür werdet ihr alle jetzt entschädigt. Wie immer sende ich auch in diesem Jahr besondere Grüße ins Hochgebirge. Daily Flip hat sich eben immer noch seine ureigene Mischung aus "intellektuell informativ" und Unterschichten-TV bewahrt, so dass hier wirklich jeder willkommen ist. Auch die Unterschicht... :-)
 
@@ -69,73 +69,73 @@ Der Oktober bleibt mir als wahnsinniger Fußballmonat in Erinnerung. Nach dem Le
 
 Meine Silvester-Einträge werden auch von Jahr zu Jahr länger. Aber obwohl in diesem Jahr eigentlich wieder einmal nix passiert ist, habe ich noch ein paar Dinge zu tun. Zunächst mal die stichwortartige Zusammenfassung aller weiteren Ereignisse dieses Jahres. Das alles brachte 2008:
 
-- die Finanzkrise (dazu später noch ein paar Worte)
+\- die Finanzkrise (dazu später noch ein paar Worte)
 
-- den Kampf mit bürokratischen Staatsunternehmen (auch dazu später mehr)
+\- den Kampf mit bürokratischen Staatsunternehmen (auch dazu später mehr)
 
-- die Erkenntnis, dass man grüne Soße auch kochen und mit Nudeln servieren kann (Wurgs, meine liebe Erziehungswissenschaftlerin...)
+\- die Erkenntnis, dass man grüne Soße auch kochen und mit Nudeln servieren kann (Wurgs, meine liebe Erziehungswissenschaftlerin...)
 
-- die Erkenntnis, dass auch Chris endlich seine Diplomarbeit auf den Weg gebracht hat
+\- die Erkenntnis, dass auch Chris endlich seine Diplomarbeit auf den Weg gebracht hat
 
-- den neuen Bond
+\- den neuen Bond
 
-- die Erkenntnis, dass sich meine Stardirigentin bald einen neuen Namen zulegen wird...
+\- die Erkenntnis, dass sich meine Stardirigentin bald einen neuen Namen zulegen wird...
 
-- das Wahldesaster in Hessen mit Frau Ypsilanti in der Hauptrolle. Auf ein Neues in 2009...
+\- das Wahldesaster in Hessen mit Frau Ypsilanti in der Hauptrolle. Auf ein Neues in 2009...
 
-- den Wahlkampf in den USA mit Barack Obama als gefühltem Heilsbringer
+\- den Wahlkampf in den USA mit Barack Obama als gefühltem Heilsbringer
 
-- Sarah Palin
+\- Sarah Palin
 
-- Paul Potts
+\- Paul Potts
 
-- die Abgeltungssteuer
+\- die Abgeltungssteuer
 
-- Steuerparadiese wie Liechtenstein, nicht wahr Herr Zumwinkel?
+\- Steuerparadiese wie Liechtenstein, nicht wahr Herr Zumwinkel?
 
-- die Erkenntnis, dass die Zeiten härter werden - wir aber auch...
+\- die Erkenntnis, dass die Zeiten härter werden - wir aber auch...
 
-- die Erkenntnis, dass Kurt beck in Rheinland-Pfalz is
+\- die Erkenntnis, dass Kurt beck in Rheinland-Pfalz is
 
-- die Erkenntnis, dass man auch trotz viel Geld aufs Klatten-Eis geführt werden kann
+\- die Erkenntnis, dass man auch trotz viel Geld aufs Klatten-Eis geführt werden kann
 
-- die Erkenntnis, dass meine grünen Flurwände nicht für jeden "my choice" sind ;-)
+\- die Erkenntnis, dass meine grünen Flurwände nicht für jeden "my choice" sind ;-)
 
-- Made in BV
+\- Made in BV
 
-- meine neuen Kochkünste: von scheußlich geschmacklosen Apfelpfannkuchen, über Frikadellen wie bei Muttern, ganz ordentliche grüne Soße bis hin zu meinem berühmten Bananen-Hühnchen-Curry
+\- meine neuen Kochkünste: von scheußlich geschmacklosen Apfelpfannkuchen, über Frikadellen wie bei Muttern, ganz ordentliche grüne Soße bis hin zu meinem berühmten Bananen-Hühnchen-Curry
 
-- Aufruhr in Tibet (Nein, die Terrier hatten damit nix zu tun, die stinkenden Mistviecher)
+\- Aufruhr in Tibet (Nein, die Terrier hatten damit nix zu tun, die stinkenden Mistviecher)
 
-- das Dekolleté unserer Kanzlerin
+\- das Dekolleté unserer Kanzlerin
 
-- Olympia in Peking
+\- Olympia in Peking
 
-- ein paar Datenskandale...
+\- ein paar Datenskandale...
 
-- Marcel Reich-Ranicki, "Ich nehme diessen Preiss nicht an" :-)
+\- Marcel Reich-Ranicki, "Ich nehme diessen Preiss nicht an" :-)
 
-- Jörg Haiders Unfalltod
+\- Jörg Haiders Unfalltod
 
-- unser Ausflug in den Klettergarten
+\- unser Ausflug in den Klettergarten
 
-- unsere Karawane durch den Odenwald
+\- unsere Karawane durch den Odenwald
 
-- die Conti-Übernahme von Schäffler durch die Hintertür
+\- die Conti-Übernahme von Schäffler durch die Hintertür
 
-- die Wohnungseinweihungsfeier mit bestem Essen meiner Mutter
+\- die Wohnungseinweihungsfeier mit bestem Essen meiner Mutter
 
-- schimmelnde Spülmaschinen... (ich lasse das Ding jetzt früher laufen...)
+\- schimmelnde Spülmaschinen... (ich lasse das Ding jetzt früher laufen...)
 
-- Yes, we can!
+\- Yes, we can!
 
-- Thorsten Schäfer-Gümbel...
+\- Thorsten Schäfer-Gümbel...
 
-- Peter Sodann - der Kandidat der Linken für das Amt des Bundespräsidenten - will Josef Ackermann in den Knast stecken. Ein Hoch auf den Rechtsstaat!
+\- Peter Sodann - der Kandidat der Linken für das Amt des Bundespräsidenten - will Josef Ackermann in den Knast stecken. Ein Hoch auf den Rechtsstaat!
 
-- Sarah Connor und Diego (er legt sich immer mit Größeren an ;-) )
+\- Sarah Connor und Diego (er legt sich immer mit Größeren an ;-) )
 
-- den Schuhwerfer im Irak
+\- den Schuhwerfer im Irak
 
 und sicher noch ganz viel mehr......
 
@@ -229,119 +229,119 @@ Nach knapp 6 Monaten hatte ich mich aus Fängen der Bürokratie befreit und es i
 
 Wenn es ein Thema gab, das 2008 allgegenwärtig war, dann ist es eindeutig die Finanzkrise. Immer bevor ich meinen Silvester-Eintrag verfasse, lese ich mir den Eintrag des Vorjahres durch. Und dabei fand ich schon 2007 so ganz nebenbei das Stichwort "die weltweite Finanzkrise". Damals hätte ich jedoch nicht im Entferntesten daran gedacht, was wir in diesem Jahr auf den Finanzmärkten erleben würden...
 
-- die Notenbanken pumpten Milliarden in die Märkte
+\- die Notenbanken pumpten Milliarden in die Märkte
 
-- Bear Stearns - platt
+\- Bear Stearns - platt
 
-- Staatsfonds steigen reihenweise bei Banken ein
+\- Staatsfonds steigen reihenweise bei Banken ein
 
-- Abschreibungen von 40 Milliarden (Merrill Lynch) oder 50 Milliarden (Citigroup)
+\- Abschreibungen von 40 Milliarden (Merrill Lynch) oder 50 Milliarden (Citigroup)
 
-- das IKB/KfW-Desaster
+\- das IKB/KfW-Desaster
 
-- die Verstaatlichung von Fannie Mae und Freddie Mac
+\- die Verstaatlichung von Fannie Mae und Freddie Mac
 
-- der schwarze Montag am 15. September: Lehman Brothers ist insolvent und die Kurse rauschen in den Keller
+\- der schwarze Montag am 15. September: Lehman Brothers ist insolvent und die Kurse rauschen in den Keller
 
-- Rentner und ihre Lehman-Zertifikate mit AAA-Rating
+\- Rentner und ihre Lehman-Zertifikate mit AAA-Rating
 
-- 2 Tage später rettet die US-Notenbank AIG mit 85 Milliarden
+\- 2 Tage später rettet die US-Notenbank AIG mit 85 Milliarden
 
-- das 700 Milliarden-Rettungspaket in den USA, welches zunächst natürlich abgelehnt wurde, damit sich die Märkte bloß nicht beruhigen
+\- das 700 Milliarden-Rettungspaket in den USA, welches zunächst natürlich abgelehnt wurde, damit sich die Märkte bloß nicht beruhigen
 
-- die 350 Millionen-Überweisung der KfW an Lehman...
+\- die 350 Millionen-Überweisung der KfW an Lehman...
 
-- Goldman Sachs und Morgan Stanley sind keine Investmentbanken mehr
+\- Goldman Sachs und Morgan Stanley sind keine Investmentbanken mehr
 
-- die Pleite von Washington Mutual stellvertretend für zig andere Bankenzusammenbrüche
+\- die Pleite von Washington Mutual stellvertretend für zig andere Bankenzusammenbrüche
 
-- die Hypo Real Estate braucht 35 Milliarden
+\- die Hypo Real Estate braucht 35 Milliarden
 
-- huch, besser doch gleich 50 Milliarden...
+\- huch, besser doch gleich 50 Milliarden...
 
-- die Garantie der Kanzlerin für unsere Spareinlagen
+\- die Garantie der Kanzlerin für unsere Spareinlagen
 
-- Garantien für "systemrelevante" Banken
+\- Garantien für "systemrelevante" Banken
 
-- ein brachliegender Interbankenmarkt
+\- ein brachliegender Interbankenmarkt
 
-- der isländische Staatsbankrott und eingefrorene Gelder bei der Kaupthing-Bank (wer geht denn da auch hin...?)
+\- der isländische Staatsbankrott und eingefrorene Gelder bei der Kaupthing-Bank (wer geht denn da auch hin...?)
 
-- die US-Leitzinsen sinken auf nahe Null
+\- die US-Leitzinsen sinken auf nahe Null
 
-- zwei schwarze Freitage am 10. und 24. Oktober - jetzt wurde alles verkauft...
+\- zwei schwarze Freitage am 10. und 24. Oktober - jetzt wurde alles verkauft...
 
-- zwischendrin der 13. Oktober, als der DAX seinen Rekordtagesgewinn aufstellte - man könnte meinen, die Märkte wären volatil...
+\- zwischendrin der 13. Oktober, als der DAX seinen Rekordtagesgewinn aufstellte - man könnte meinen, die Märkte wären volatil...
 
-- das 500 Milliarden-Rettungspaket unserer Regierung
+\- das 500 Milliarden-Rettungspaket unserer Regierung
 
-- Herr Ackermann, der sich schämen würde, wenn die Deutsche Bank, das von ihm mit ausgearbeitete Rettungspaket in Anspruch nehmen würde
+\- Herr Ackermann, der sich schämen würde, wenn die Deutsche Bank, das von ihm mit ausgearbeitete Rettungspaket in Anspruch nehmen würde
 
-- die Commerzbank schämte sich nicht...
+\- die Commerzbank schämte sich nicht...
 
-- die crashende Konjunktur, die richtig Lust auf 2009 macht
+\- die crashende Konjunktur, die richtig Lust auf 2009 macht
 
-- die drohende Kreditklemme
+\- die drohende Kreditklemme
 
-- ein "paar" Gewinnwarnungen...
+\- ein "paar" Gewinnwarnungen...
 
 und als wenn das noch nicht genug wäre, gab es noch ein paar Nebenkriegsschauplätze:
 
-- die Milliardenverbrenner von GM und Chrysler
+\- die Milliardenverbrenner von GM und Chrysler
 
-- die geforderten Opel-Bürgschaften
+\- die geforderten Opel-Bürgschaften
 
-- das Übernahme-Angebot für Opel von \*trommelwirbel\* Solarworld...
+\- das Übernahme-Angebot für Opel von \*trommelwirbel\* Solarworld...
 
-- die VW-Optionen von Porsche, die in Kombination mit Leerverkäufen der VW-Aktie Volkswagen zum "wertvollsten" Unternehmen der Welt machten
+\- die VW-Optionen von Porsche, die in Kombination mit Leerverkäufen der VW-Aktie Volkswagen zum "wertvollsten" Unternehmen der Welt machten
 
-- ein sich damit verzockender Herr Merckle, der HeidelbergCement, Phönix und Ratiopharm in Nöte brachte...
+\- ein sich damit verzockender Herr Merckle, der HeidelbergCement, Phönix und Ratiopharm in Nöte brachte...
 
-- ein steigender DAX, obwohl 29 von 30 Werten gefallen waren (und umgekehrt)
+\- ein steigender DAX, obwohl 29 von 30 Werten gefallen waren (und umgekehrt)
 
 Man darf gespannt sein, wie sich das ganze im nächsten Jahr entwickeln wird...
 
 Wer jetzt nicht ganz so fit in Wirtschaftsfragen ist, wie ich, dem seien folgende Definitionen ans Herz gelegt (um damit gleichzeitig auch noch mal einen typischen Daily Flip zu bringen und dann auch - versprochen - wirklich zum Ende zu kommen):
 
-- AAA: Top-Rating für Unternehmen bester Bonität - gleichzeitig auch mein Schrei, wenn Caio in der Startelf steht
+\- AAA: Top-Rating für Unternehmen bester Bonität - gleichzeitig auch mein Schrei, wenn Caio in der Startelf steht
 
-- Abschreibung, planmäßig: die 4-Caio-Millionen werden gleichmäßig über die 3,5jährige Vertragslaufzeit als Aufwand verbucht
+\- Abschreibung, planmäßig: die 4-Caio-Millionen werden gleichmäßig über die 3,5jährige Vertragslaufzeit als Aufwand verbucht
 
-- Abschreibung, außerplanmäßig: von Banken in diesem Jahr förmlich zelebriert. Grund: Vermögensgegenstände sind weniger wert als ihr ausgewiesener Buchwert und werden als sofortiger Aufwand verbucht. Wäre bei Caio zu überlegen...
+\- Abschreibung, außerplanmäßig: von Banken in diesem Jahr förmlich zelebriert. Grund: Vermögensgegenstände sind weniger wert als ihr ausgewiesener Buchwert und werden als sofortiger Aufwand verbucht. Wäre bei Caio zu überlegen...
 
-- Anlage im Bau bzw. AiB: Vermögensgegenstand, dessen Abschreibung noch nicht begonnen hat, da er sich noch nicht im betriebsbereiten Zustand befindet. Vielleicht wäre Caio auch so einzustufen ;-)
+\- Anlage im Bau bzw. AiB: Vermögensgegenstand, dessen Abschreibung noch nicht begonnen hat, da er sich noch nicht im betriebsbereiten Zustand befindet. Vielleicht wäre Caio auch so einzustufen ;-)
 
-- Bank: Caios Lieblingsplatz
+\- Bank: Caios Lieblingsplatz
 
-- Bankenzusammenbruch: Droht, wenn Caio aus dem Sommerurlaub bei Mama zurückkehrt...
+\- Bankenzusammenbruch: Droht, wenn Caio aus dem Sommerurlaub bei Mama zurückkehrt...
 
-- Blase: Die TSG Hoffenheim ist hoffentlich eine...
+\- Blase: Die TSG Hoffenheim ist hoffentlich eine...
 
-- Break even: Erreicht, wenn Caio zu Weihnachten wieder sein Sommergewicht erreicht hat...
+\- Break even: Erreicht, wenn Caio zu Weihnachten wieder sein Sommergewicht erreicht hat...
 
-- "Hetz-Fonds": Organisation der Funkel-Kritiker
+\- "Hetz-Fonds": Organisation der Funkel-Kritiker
 
-- Inflation: In 10 Jahren wird jemand wie Caio vielleicht 8 Millionen kosten...
+\- Inflation: In 10 Jahren wird jemand wie Caio vielleicht 8 Millionen kosten...
 
-- Megafusion: In Zeiten der Finanzkrise eher selten. Meine Stardirigentin plant so etwas, hat das Übernahmeangebot bereits akzeptiert. Eine starke Marke wird mit der daraus resultierenden Namensänderung vom Markt verschwinden... Aber auch das Waldstadion ist ja nach wie vor das Waldstadion - also bleibt sie auch für immer meine Stardirigentin :-)
+\- Megafusion: In Zeiten der Finanzkrise eher selten. Meine Stardirigentin plant so etwas, hat das Übernahmeangebot bereits akzeptiert. Eine starke Marke wird mit der daraus resultierenden Namensänderung vom Markt verschwinden... Aber auch das Waldstadion ist ja nach wie vor das Waldstadion - also bleibt sie auch für immer meine Stardirigentin :-)
 
-- Rating: Bewertung für die Bonität eines Unternehmens. Muss nicht zutreffend sein, wie man an den Ratings zu Funkel und Caio von meinem Kollegen und mir sieht (eins von beiden MUSS jeweils falsch sein)
+\- Rating: Bewertung für die Bonität eines Unternehmens. Muss nicht zutreffend sein, wie man an den Ratings zu Funkel und Caio von meinem Kollegen und mir sieht (eins von beiden MUSS jeweils falsch sein)
 
-- Return on Investment, ROI: Zur Abwechslung mal nicht Caio - bei Martin Fenin dürfte der ROI bald positiv sein :-)
+\- Return on Investment, ROI: Zur Abwechslung mal nicht Caio - bei Martin Fenin dürfte der ROI bald positiv sein :-)
 
-- Stille Reserve: Die Eintracht hat eine ganz große - Alex Meier...
+\- Stille Reserve: Die Eintracht hat eine ganz große - Alex Meier...
 
-- Subprime: die Außenristpässe von Faton Toski sind meistens eher supoptimal...
+\- Subprime: die Außenristpässe von Faton Toski sind meistens eher supoptimal...
 
-- Systemrelevanz: Besitzt Caio für Eintracht Frankfurt gewiss nicht...
+\- Systemrelevanz: Besitzt Caio für Eintracht Frankfurt gewiss nicht...
 
-- Too big to "fehl": So schätzen viele Eintracht-Fans Caio ein :-)
+\- Too big to "fehl": So schätzen viele Eintracht-Fans Caio ein :-)
 
-- Umlaufvermögen: 4 Millionen, die sich hinter dem Tor warmlaufen!?
+\- Umlaufvermögen: 4 Millionen, die sich hinter dem Tor warmlaufen!?
 
-- Volatilität: Maß für die Schwankungsbreite. Hohe Volatilität bei Eintracht-Spielen am Ende der Hinrunde: 0:4, 4:0, 0:5, 4:0...
+\- Volatilität: Maß für die Schwankungsbreite. Hohe Volatilität bei Eintracht-Spielen am Ende der Hinrunde: 0:4, 4:0, 0:5, 4:0...
 
-- Zertifikate: Wertpapiere, die an ahnungslose Rentner verkauft werden. Selbst meine Finanz-Expertin (sie sei hiermit gegrüßt), die in diesem Geschäft tätig ist, fragt sich, wer die Dinger eigentlich kauft, wenn selbst Bankberater sie nicht verstehen...
+\- Zertifikate: Wertpapiere, die an ahnungslose Rentner verkauft werden. Selbst meine Finanz-Expertin (sie sei hiermit gegrüßt), die in diesem Geschäft tätig ist, fragt sich, wer die Dinger eigentlich kauft, wenn selbst Bankberater sie nicht verstehen...
 
 Jetzt sind also alle wirtschaftlichen Fachbegriffe geklärt. Bevor mich jetzt tausende Mails der Initiative "Rettet Caio - Funkel raus" erreichen: Ich halte zwar nicht viel davon, dass Caio in der Öffentlichkeit immer als Funkel-Opfer dargestellt wird und er von zahlreichen Fans als die Lösung aller unserer Probleme verherrlicht wird. Aber selbstverständlich wäre ich der erste, der sich freuen würde, wenn Caio sich doch noch als Granate entpuppen sollte. Allein, mir fehlt der Glaube... Und die oben geäußerte Dauerkritik? Naja, wir sind hier bei Daily Flip und da muss das erlaubt sein. Ihr wisst ja, wie ich's meine... :-)
 

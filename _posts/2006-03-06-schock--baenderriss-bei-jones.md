@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schock: Bänderriss bei Jones!
+title: Schock- Bänderriss bei Jones!
 
 ---
 

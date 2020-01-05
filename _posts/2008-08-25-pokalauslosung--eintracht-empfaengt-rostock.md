@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung: Eintracht empfängt Rostock
+title: Pokalauslosung- Eintracht empfängt Rostock
 
 ---
 

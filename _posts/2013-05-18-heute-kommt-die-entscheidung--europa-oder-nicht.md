@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heute kommt die Entscheidung: Europa oder nicht?
+title: Heute kommt die Entscheidung- Europa oder nicht?
 
 ---
 

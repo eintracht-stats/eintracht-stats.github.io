@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht dreht das Spiel: Sieg in Fürth
+title: Eintracht dreht das Spiel- Sieg in Fürth
 
 ---
 

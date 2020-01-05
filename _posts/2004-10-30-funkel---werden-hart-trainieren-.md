@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel: "Werden hart trainieren!"
+title: Funkel- "Werden hart trainieren!"
 
 ---
 

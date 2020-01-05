@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Was für ein Europapokalstart: Eintracht gewinnt in Marseille!
+title: Was für ein Europapokalstart- Eintracht gewinnt in Marseille!
 
 ---
 

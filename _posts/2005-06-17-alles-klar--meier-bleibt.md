@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alles klar: Meier bleibt!
+title: Alles klar- Meier bleibt!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht fegt Don Jupp mit 3:0 vom Platz
+title: Eintracht fegt Don Jupp mit 3-0 vom Platz
 subtitle: Amanatidis, Skela und Schur treffen
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal: Eintracht gastiert in Aachen
+title: Pokal- Eintracht gastiert in Aachen
 
 ---
 

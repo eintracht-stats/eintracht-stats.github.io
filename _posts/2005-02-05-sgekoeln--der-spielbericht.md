@@ -1,6 +1,6 @@
 ---
 layout: post
-title: SGE-Köln: Der Spielbericht
+title: SGE-Köln- Der Spielbericht
 
 ---
 

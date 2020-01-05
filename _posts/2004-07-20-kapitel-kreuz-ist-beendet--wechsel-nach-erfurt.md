@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kapitel Kreuz ist beendet: Wechsel nach Erfurt
+title: Kapitel Kreuz ist beendet- Wechsel nach Erfurt
 subtitle: Testspiel in Ober-Roden
 ---
 

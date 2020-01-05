@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal-Auslosung: Eintracht muss nach Erfurt
+title: Pokal-Auslosung- Eintracht muss nach Erfurt
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Das nächste Kapitel: Eintracht spielt in Mainz
+title: Das nächste Kapitel- Eintracht spielt in Mainz
 
 ---
 

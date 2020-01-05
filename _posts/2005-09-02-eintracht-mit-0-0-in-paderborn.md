@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit 0:0 in Paderborn
+title: Eintracht mit 0-0 in Paderborn
 
 ---
 

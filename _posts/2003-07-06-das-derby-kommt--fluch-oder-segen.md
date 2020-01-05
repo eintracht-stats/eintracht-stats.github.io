@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DAS Derby kommt: Fluch oder Segen?
+title: DAS Derby kommt- Fluch oder Segen?
 
 ---
 

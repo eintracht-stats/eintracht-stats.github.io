@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erstes Testspiel: 15:0 gegen Messel
+title: Erstes Testspiel- 15:0 gegen Messel
 
 ---
 

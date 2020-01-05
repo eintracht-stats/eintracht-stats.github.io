@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nächstes Gerücht: Ivica Grlic
+title: Nächstes Gerücht- Ivica Grlic
 
 ---
 

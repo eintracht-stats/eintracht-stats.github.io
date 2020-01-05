@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainervertrag: Verhandlungen sollen nächste Woche abgeschlossen werden
+title: Trainervertrag- Verhandlungen sollen nächste Woche abgeschlossen werden
 
 ---
 

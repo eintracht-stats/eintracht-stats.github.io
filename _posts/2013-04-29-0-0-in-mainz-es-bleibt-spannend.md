@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 in Mainz - es bleibt spannend
+title: 0-0 in Mainz - es bleibt spannend
 
 ---
 

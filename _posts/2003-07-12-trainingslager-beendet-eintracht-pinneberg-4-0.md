@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager beendet - Eintracht-Pinneberg 4:0
+title: Trainingslager beendet - Eintracht-Pinneberg 4-0
 subtitle: Cipis Verletzung nicht gravierend
 ---
 

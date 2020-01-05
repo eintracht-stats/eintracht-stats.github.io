@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Gladbach: Der Spielbericht
+title: Eintracht-Gladbach- Der Spielbericht
 
 ---
 

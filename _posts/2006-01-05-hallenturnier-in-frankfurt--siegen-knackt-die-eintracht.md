@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hallenturnier in Frankfurt: Siegen knackt die Eintracht
+title: Hallenturnier in Frankfurt- Siegen knackt die Eintracht
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Statistischer Blick zurück: So lief die Hinrunde
+title: Statistischer Blick zurück- So lief die Hinrunde
 subtitle: Auch historische Fakten kommen nicht zu kurz
 ---
 

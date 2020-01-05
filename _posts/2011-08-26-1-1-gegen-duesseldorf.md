@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1:1 gegen Düsseldorf
+title: 1-1 gegen Düsseldorf
 
 ---
 

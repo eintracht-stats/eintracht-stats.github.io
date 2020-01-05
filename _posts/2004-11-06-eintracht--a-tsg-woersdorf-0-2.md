@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A)-TSG Wörsdorf 0:2
+title: Eintracht (A)-TSG Wörsdorf 0-2
 
 ---
 

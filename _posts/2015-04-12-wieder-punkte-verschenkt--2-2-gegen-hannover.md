@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder Punkte verschenkt: 2:2 gegen Hannover
+title: Wieder Punkte verschenkt- 2:2 gegen Hannover
 
 ---
 

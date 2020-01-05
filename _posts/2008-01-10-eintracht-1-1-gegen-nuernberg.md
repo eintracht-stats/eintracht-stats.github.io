@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht 1:1 gegen Nürnberg
+title: Eintracht 1-1 gegen Nürnberg
 
 ---
 

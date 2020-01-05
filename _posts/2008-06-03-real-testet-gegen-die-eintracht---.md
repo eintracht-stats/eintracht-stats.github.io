@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Real testet gegen die Eintracht :-)
+title: Real testet gegen die Eintracht --)
 
 ---
 

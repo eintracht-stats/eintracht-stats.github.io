@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Sieg! 3:0 gegen HSV
+title: Endlich ein Sieg! 3-0 gegen HSV
 subtitle: Meier trifft bei Comeback!
 ---
 

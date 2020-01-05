@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Paukenschlag: Idrissou geht nach Lautern
+title: Paukenschlag- Idrissou geht nach Lautern
 
 ---
 

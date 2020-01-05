@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hallenturnier in Frankfurt: Erneut frühes Ausscheiden
+title: Hallenturnier in Frankfurt- Erneut frühes Ausscheiden
 
 ---
 

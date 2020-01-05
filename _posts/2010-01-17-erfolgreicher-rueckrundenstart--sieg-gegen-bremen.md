@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolgreicher Rückrundenstart: Sieg gegen Bremen
+title: Erfolgreicher Rückrundenstart- Sieg gegen Bremen
 
 ---
 

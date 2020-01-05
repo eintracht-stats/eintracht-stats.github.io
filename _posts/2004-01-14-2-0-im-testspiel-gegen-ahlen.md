@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2:0 im Testspiel gegen Ahlen
+title: 2-0 im Testspiel gegen Ahlen
 subtitle: Reimann zufrieden
 ---
 

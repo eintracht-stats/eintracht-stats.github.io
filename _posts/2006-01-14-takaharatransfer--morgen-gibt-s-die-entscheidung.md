@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara-Transfer: Morgen gibt's die Entscheidung
+title: Takahara-Transfer- Morgen gibt's die Entscheidung
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endspiel, Teil 1: Energie Cottbus-Eintracht Frankfurt 0:3, SpVgg Greuther Fürth-1860 München 2:3
+title: Endspiel, Teil 1- Energie Cottbus-Eintracht Frankfurt 0:3, SpVgg Greuther Fürth-1860 München 2:3
 
 ---
 

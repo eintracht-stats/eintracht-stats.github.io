@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Gladbach mit 2:0
+title: Eintracht gewinnt in Gladbach mit 2-0
 subtitle: Kreuz und Bürger treffen - Möller von Anfang an dabei
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Überzeugender Auftritt in Gladbach - 4:0!
+title: Überzeugender Auftritt in Gladbach - 4-0!
 
 ---
 

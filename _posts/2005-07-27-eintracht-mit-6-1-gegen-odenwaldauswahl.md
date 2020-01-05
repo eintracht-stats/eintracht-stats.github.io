@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit 6:1 gegen Odenwald-Auswahl
+title: Eintracht mit 6-1 gegen Odenwald-Auswahl
 
 ---
 

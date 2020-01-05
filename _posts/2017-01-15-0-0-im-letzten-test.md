@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 im letzten Test
+title: 0-0 im letzten Test
 
 ---
 

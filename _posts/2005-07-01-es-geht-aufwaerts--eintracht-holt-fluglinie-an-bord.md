@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Es geht aufwärts: Eintracht holt Fluglinie an Bord
+title: Es geht aufwärts- Eintracht holt Fluglinie an Bord
 
 ---
 

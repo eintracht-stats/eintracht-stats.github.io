@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauftakt ausgelost: Eintracht spielt in Wilhelmshaven
+title: Pokalauftakt ausgelost- Eintracht spielt in Wilhelmshaven
 
 ---
 

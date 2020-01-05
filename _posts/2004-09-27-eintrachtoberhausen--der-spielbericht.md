@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Oberhausen: Der Spielbericht
+title: Eintracht-Oberhausen- Der Spielbericht
 
 ---
 

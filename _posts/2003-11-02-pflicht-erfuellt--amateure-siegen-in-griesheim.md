@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflicht erfüllt: Amateure siegen in Griesheim
+title: Pflicht erfüllt- Amateure siegen in Griesheim
 subtitle: 6:2-Sieg beim Schlusslicht
 ---
 

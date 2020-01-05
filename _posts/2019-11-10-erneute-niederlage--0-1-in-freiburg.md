@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erneute Niederlage: 0:1 in Freiburg
+title: Erneute Niederlage- 0:1 in Freiburg
 
 ---
 

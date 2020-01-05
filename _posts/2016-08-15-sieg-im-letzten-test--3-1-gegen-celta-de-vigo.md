@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im letzten Test: 3:1 gegen Celta de Vigo
+title: Sieg im letzten Test- 3:1 gegen Celta de Vigo
 subtitle: Neuzugang für die Innenverteidigung
 ---
 

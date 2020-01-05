@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2:2 gegen Schalke- Sieg knapp verpasst
+title: 2-2 gegen Schalke- Sieg knapp verpasst
 
 ---
 

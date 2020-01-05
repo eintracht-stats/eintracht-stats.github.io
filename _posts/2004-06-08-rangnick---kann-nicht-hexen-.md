@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rangnick: "Kann nicht hexen!"
+title: Rangnick- "Kann nicht hexen!"
 subtitle: Funkel und Hach im Gespräch
 ---
 

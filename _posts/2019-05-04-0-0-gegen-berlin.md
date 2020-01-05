@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 gegen Berlin
+title: 0-0 gegen Berlin
 
 ---
 

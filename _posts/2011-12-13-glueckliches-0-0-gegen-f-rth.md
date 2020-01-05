@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glückliches 0:0 gegen Fürth
+title: Glückliches 0-0 gegen Fürth
 
 ---
 

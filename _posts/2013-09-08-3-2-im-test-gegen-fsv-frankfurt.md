@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3:2 im Test gegen FSV Frankfurt
+title: 3-2 im Test gegen FSV Frankfurt
 subtitle: Lange Pause für Schwegler
 ---
 

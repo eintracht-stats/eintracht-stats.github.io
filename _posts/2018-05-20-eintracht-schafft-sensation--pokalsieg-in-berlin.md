@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schafft Sensation: Pokalsieg in Berlin!
+title: Eintracht schafft Sensation- Pokalsieg in Berlin!
 subtitle: Rebic trifft doppelt 
 ---
 

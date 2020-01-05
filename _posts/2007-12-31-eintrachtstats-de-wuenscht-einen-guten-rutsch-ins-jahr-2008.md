@@ -10,99 +10,99 @@ Bei der Eintracht fehlten in diesem Jahr die ganz großen Highlights. Es gab kei
 
 Hier noch einmal eine stichwortartige Zusammenfassung des Sportjahres 2007:
 
-- Kaderbereinigungen im Januar: Cimen, Huber und Stroh-Engel gingen...
+\- Kaderbereinigungen im Januar: Cimen, Huber und Stroh-Engel gingen...
 
-- der Heimsieg beim Hallenturnier in Frankfurt
+\- der Heimsieg beim Hallenturnier in Frankfurt
 
-- das Jones-Eigentor gegen Leverkusen
+\- das Jones-Eigentor gegen Leverkusen
 
-- die Last-Minute-Punktverluste wie gegen Leverkusen, die uns noch mal in den Abstiegskampf beförderten
+\- die Last-Minute-Punktverluste wie gegen Leverkusen, die uns noch mal in den Abstiegskampf beförderten
 
-- die Akte Jones wurde aufgeschlagen
+\- die Akte Jones wurde aufgeschlagen
 
-- das Pokalspiel in Offenbach
+\- das Pokalspiel in Offenbach
 
-- literarische Meisterwerke wie das Erstlingswerk von JermaineJuniorJones: [Nichts als die Wahrheit](http://www.eintracht.de/meine_eintracht/forum/1/11117871/?page=1)...
+\- literarische Meisterwerke wie das Erstlingswerk von JermaineJuniorJones: [Nichts als die Wahrheit](http://www.eintracht.de/meine_eintracht/forum/1/11117871/?page=1)...
 
-- Markus Pröll und seine Achillesferse - seine geprellte Rippe...
+\- Markus Pröll und seine Achillesferse - seine geprellte Rippe...
 
-- Pablo Alvarez' Bank-Debüt
+\- Pablo Alvarez' Bank-Debüt
 
-- Ups, jetzt war es doch ein Rippenbruch...
+\- Ups, jetzt war es doch ein Rippenbruch...
 
-- der sensationelle Fallrückzieher von Christoph Preuß, der die Bayern in die Knie zwang
+\- der sensationelle Fallrückzieher von Christoph Preuß, der die Bayern in die Knie zwang
 
-- die Ewald-Lienen-Gedächtnis-Wunde von Christoph Preuß
+\- die Ewald-Lienen-Gedächtnis-Wunde von Christoph Preuß
 
-- das schmerzhafte Halbfinal-Aus im Pokal in Nürnberg
+\- das schmerzhafte Halbfinal-Aus im Pokal in Nürnberg
 
-- der Streit-Streik
+\- der Streit-Streik
 
-- Rehmers letzte unsägliche Auftritte...
+\- Rehmers letzte unsägliche Auftritte...
 
-- Jörg-Uwe Hahn (FDP) forderte die Trainerentlassung...
+\- Jörg-Uwe Hahn (FDP) forderte die Trainerentlassung...
 
-- der Befreiungsschlag gegen Aachen
+\- der Befreiungsschlag gegen Aachen
 
-- "Das war mein letztes Spiel für die Eintracht" (O-Ton Albert Streit im Mai)
+\- "Das war mein letztes Spiel für die Eintracht" (O-Ton Albert Streit im Mai)
 
-- der Überraschungs-Meister aus Stuttgart
+\- der Überraschungs-Meister aus Stuttgart
 
-- der Aufbau einer Weltauswahl mit Japanern, Iranern und Mexikanern
+\- der Aufbau einer Weltauswahl mit Japanern, Iranern und Mexikanern
 
-- es hat sich ausgehuggelt...
+\- es hat sich ausgehuggelt...
 
-- die Berliner Woche zum Saisonstart
+\- die Berliner Woche zum Saisonstart
 
-- die Verletztenmisere in der Vorbereitung
+\- die Verletztenmisere in der Vorbereitung
 
-- die Niederlage gegen Meppen
+\- die Niederlage gegen Meppen
 
-- das Abschiedsspiel für die alten Haudegen Zico und Schui
+\- das Abschiedsspiel für die alten Haudegen Zico und Schui
 
-- der Tod von Werner Hackmann und das damit verbundene Nachrücken von Heribert Bruchhagen in den DFL-Vorstand
+\- der Tod von Werner Hackmann und das damit verbundene Nachrücken von Heribert Bruchhagen in den DFL-Vorstand
 
-- die Erkenntnis, dass in dieser Saison die Eintracht gegen Spielende noch mal aufdrehen kann
+\- die Erkenntnis, dass in dieser Saison die Eintracht gegen Spielende noch mal aufdrehen kann
 
-- der Fenin-Transfer, der schon im Sommer seinen Anfang nahm
+\- der Fenin-Transfer, der schon im Sommer seinen Anfang nahm
 
-- der Aufschwung der Amateure, der zuletzt etwas an Fahrt verlor, was Petr Hubtschev den Job kostete
+\- der Aufschwung der Amateure, der zuletzt etwas an Fahrt verlor, was Petr Hubtschev den Job kostete
 
-- der Volley-Treffer von Alex Meier gegen den HSV (Er ist ein Juwel!)
+\- der Volley-Treffer von Alex Meier gegen den HSV (Er ist ein Juwel!)
 
-- Albert Streit, der sich an der Hose von Atouba festkrallte
+\- Albert Streit, der sich an der Hose von Atouba festkrallte
 
-- das Ende der Waffe Streit-Kyrgiakos...
+\- das Ende der Waffe Streit-Kyrgiakos...
 
-- die Rückkehr der Relegations-Spiele
+\- die Rückkehr der Relegations-Spiele
 
-- das ungewohnt frühe Pokal-Aus
+\- das ungewohnt frühe Pokal-Aus
 
-- die Titelverteidung unserer Fußball-Weltmeisterinnen und die Vergabe der nächsten WM nach Deutschland
+\- die Titelverteidung unserer Fußball-Weltmeisterinnen und die Vergabe der nächsten WM nach Deutschland
 
-- das ermauerte 0:0 bei den Bayern und die unmenschliche Leistung von Oka Nikolov
+\- das ermauerte 0:0 bei den Bayern und die unmenschliche Leistung von Oka Nikolov
 
-- Juwel Nr. 2 oder sollte ich besser Juvhel sagen? Tsoumou hätte der jüngste Bundesligaspieler werden können, blieb aber auf der Bank
+\- Juwel Nr. 2 oder sollte ich besser Juvhel sagen? Tsoumou hätte der jüngste Bundesligaspieler werden können, blieb aber auf der Bank
 
-- der Aufwärm-Streik von Sotirios Kyrgiakos
+\- der Aufwärm-Streik von Sotirios Kyrgiakos
 
-- die Anzeige gegen Ioannis Amanatidis
+\- die Anzeige gegen Ioannis Amanatidis
 
-- die Auslosung der leichtesten EM-Gruppe, die wir wohl erwischen konnten - und die Todesgruppe mit Holland, Frankreich und Italien
+\- die Auslosung der leichtesten EM-Gruppe, die wir wohl erwischen konnten - und die Todesgruppe mit Holland, Frankreich und Italien
 
-- die Erkenntnis, dass wir diesmal kein Elfmeterschießen gegen England bekommen werden...
+\- die Erkenntnis, dass wir diesmal kein Elfmeterschießen gegen England bekommen werden...
 
-- die Rückkehr von Jermaine Jones an seine alte Wirkungsstätte
+\- die Rückkehr von Jermaine Jones an seine alte Wirkungsstätte
 
-- die Mutter aller Rudelbildungen gegen Schalke
+\- die Mutter aller Rudelbildungen gegen Schalke
 
-- die Erkenntnis, dass Michael Thurk es immer noch schlechter kann
+\- die Erkenntnis, dass Michael Thurk es immer noch schlechter kann
 
-- das neue Eintracht-Museum
+\- das neue Eintracht-Museum
 
-- die Erkenntnis, dass die Bayern auch ohne Fernglas und selbst für Halbblinde noch in Sichtweite sind...
+\- die Erkenntnis, dass die Bayern auch ohne Fernglas und selbst für Halbblinde noch in Sichtweite sind...
 
-- und auch the one and only Dänemark fehlt in diesem Jahr nicht: Diesmal schlug ein Fan über die Stränge und attackierte Schiri Fandel auf dem Platz. Dieses Land ist verrückt. Gleich und gleich gesellt
+\- und auch the one and only Dänemark fehlt in diesem Jahr nicht: Diesmal schlug ein Fan über die Stränge und attackierte Schiri Fandel auf dem Platz. Dieses Land ist verrückt. Gleich und gleich gesellt
 
 sich eben doch gern...
 
@@ -127,47 +127,47 @@ Im November hatte ich noch weniger Zeit für die Seite, aber der Job geht halt v
 
 Ein paar Stichworte sollten aber dennoch nicht fehlen. Auch das steht für das Jahr 2007:
 
-- die Hoffnung, dass Alex Meier mir doch noch eine Pizza beschert (der Kollege unterschätzt unser Mittelfeld-Ass eben immer noch)
+\- die Hoffnung, dass Alex Meier mir doch noch eine Pizza beschert (der Kollege unterschätzt unser Mittelfeld-Ass eben immer noch)
 
-- ein Arbeitstag von acht Uhr bis 9 Uhr dreißig (morgens bzw. abends)
+\- ein Arbeitstag von acht Uhr bis 9 Uhr dreißig (morgens bzw. abends)
 
-- riesige Gummibärchen-Boxen
+\- riesige Gummibärchen-Boxen
 
-- das Ende meiner Ablage-Tätigkeiten
+\- das Ende meiner Ablage-Tätigkeiten
 
-- die lobenswerte Erkenntnis, dass mein Arbeitgeber seit dieser Saison nicht mehr nur mit einer Loge im Waldstadion vertreten ist
+\- die lobenswerte Erkenntnis, dass mein Arbeitgeber seit dieser Saison nicht mehr nur mit einer Loge im Waldstadion vertreten ist
 
-- der unsägliche Bahn-Streik mit einem untragbaren Herrn Schell
+\- der unsägliche Bahn-Streik mit einem untragbaren Herrn Schell
 
-- Chris unsägliche Durchhalteparolen
+\- Chris unsägliche Durchhalteparolen
 
-- erhöhtes Hundesteueraufkommen in gewissen Taunus-Städten (was die oben erwähnte mangelnde Arbeitsmoral in gewissen öffentlichen Einrichtungen wieder etwas kompensiert): Danke, dass ich von dieser Sippe verschont wurde!!!
+\- erhöhtes Hundesteueraufkommen in gewissen Taunus-Städten (was die oben erwähnte mangelnde Arbeitsmoral in gewissen öffentlichen Einrichtungen wieder etwas kompensiert): Danke, dass ich von dieser Sippe verschont wurde!!!
 
-- Aaron und Mehdi
+\- Aaron und Mehdi
 
-- Chris' Erkenntnis, dass Daily Flip ein echter Trendsetter war/ist. Und er hat Recht: Im Oktober 1999, vor über 8 Jahren (!) war der Begriff "Blog" völlig unbekannt und ein Internet-Tagebuch wie das meine eine ziemlich exotische Geschichte. Und heute macht es jeder (wie im letzten Jahresrückblick bereits festgestellt).
+\- Chris' Erkenntnis, dass Daily Flip ein echter Trendsetter war/ist. Und er hat Recht: Im Oktober 1999, vor über 8 Jahren (!) war der Begriff "Blog" völlig unbekannt und ein Internet-Tagebuch wie das meine eine ziemlich exotische Geschichte. Und heute macht es jeder (wie im letzten Jahresrückblick bereits festgestellt).
 
-- meine standhafte Verweigerung gegenüber dem StudiVZ
+\- meine standhafte Verweigerung gegenüber dem StudiVZ
 
-- Kyrill
+\- Kyrill
 
-- Knut
+\- Knut
 
-- der Oscar
+\- der Oscar
 
-- Maddie (auch Land 2 bestätigt meine schlechten Erinnerungen)
+\- Maddie (auch Land 2 bestätigt meine schlechten Erinnerungen)
 
-- die Erkenntnis, dass nicht nur Volker Finke, sondern auch Angie einen tollen Strandkorb besitzt...
+\- die Erkenntnis, dass nicht nur Volker Finke, sondern auch Angie einen tollen Strandkorb besitzt...
 
-- der Zaun von Heiligendamm
+\- der Zaun von Heiligendamm
 
-- das Rauchverbot in Hessens Kneipen
+\- das Rauchverbot in Hessens Kneipen
 
-- Eva Herman
+\- Eva Herman
 
-- die weltweite Finanzkrise
+\- die weltweite Finanzkrise
 
-- die Klimadebatte
+\- die Klimadebatte
 
 und bestimmt noch vieles mehr............
 

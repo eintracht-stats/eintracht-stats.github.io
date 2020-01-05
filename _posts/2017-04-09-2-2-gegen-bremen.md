@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2:2 gegen Bremen
+title: 2-2 gegen Bremen
 
 ---
 

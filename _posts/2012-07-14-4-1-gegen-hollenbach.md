@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4:1 gegen Hollenbach
+title: 4-1 gegen Hollenbach
 
 ---
 

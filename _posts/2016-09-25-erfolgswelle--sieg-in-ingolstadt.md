@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolgswelle: Sieg in Ingolstadt
+title: Erfolgswelle- Sieg in Ingolstadt
 
 ---
 

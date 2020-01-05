@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel: Auswertung ist verfügbar, neuer Spieltag online
+title: Tippspiel- Auswertung ist verfügbar, neuer Spieltag online
 
 ---
 

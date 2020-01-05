@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Bayern: Eintracht dreht das Spiel
+title: Sieg gegen Bayern- Eintracht dreht das Spiel
 
 ---
 

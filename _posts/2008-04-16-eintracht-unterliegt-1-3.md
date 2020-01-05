@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht unterliegt 1:3
+title: Eintracht unterliegt 1-3
 subtitle: Sieg wäre möglich gewesen
 ---
 

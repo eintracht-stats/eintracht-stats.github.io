@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trauer bei Eintracht Frankfurt: Alfred Pfaff ist tot!
+title: Trauer bei Eintracht Frankfurt- Alfred Pfaff ist tot!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schickhardt: 5 Spiele Sperre zu viel / Schur bleibt gelassen
+title: Schickhardt- 5 Spiele Sperre zu viel / Schur bleibt gelassen
 subtitle: Eintracht schlägt Rot-Weiß
 ---
 

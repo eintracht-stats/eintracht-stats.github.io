@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wochenupdate: Zwei Testspiele
+title: Wochenupdate- Zwei Testspiele
 
 ---
 

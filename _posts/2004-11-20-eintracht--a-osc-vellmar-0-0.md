@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A)-OSC Vellmar 0:0
+title: Eintracht (A)-OSC Vellmar 0-0
 
 ---
 

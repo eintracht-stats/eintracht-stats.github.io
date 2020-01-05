@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert mit 1:3
+title: Eintracht verliert mit 1-3
 subtitle: Bayern klar überlegen
 ---
 

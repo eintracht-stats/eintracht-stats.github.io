@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A)-FSV Frankfurt 1:1
+title: Eintracht (A)-FSV Frankfurt 1-1
 
 ---
 

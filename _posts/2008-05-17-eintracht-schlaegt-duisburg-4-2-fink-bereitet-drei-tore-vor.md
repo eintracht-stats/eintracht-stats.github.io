@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Duisburg 4:2 - Fink bereitet drei Tore vor
+title: Eintracht schlägt Duisburg 4-2 - Fink bereitet drei Tore vor
 subtitle: Platz 9 am Saisonende
 ---
 

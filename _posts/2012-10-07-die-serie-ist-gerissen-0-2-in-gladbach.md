@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Serie ist gerissen! 0:2 in Gladbach
+title: Die Serie ist gerissen! 0-2 in Gladbach
 
 ---
 

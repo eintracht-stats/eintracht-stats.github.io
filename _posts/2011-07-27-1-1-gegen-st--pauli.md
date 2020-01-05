@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1:1 gegen St. Pauli
+title: 1-1 gegen St. Pauli
 
 ---
 

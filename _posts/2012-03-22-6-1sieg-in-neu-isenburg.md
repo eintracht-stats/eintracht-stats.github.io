@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 6:1-Sieg in Neu-Isenburg
+title: 6-1-Sieg in Neu-Isenburg
 
 ---
 

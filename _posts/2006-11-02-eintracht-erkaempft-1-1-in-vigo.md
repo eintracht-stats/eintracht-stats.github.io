@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erkämpft 1:1 in Vigo
+title: Eintracht erkämpft 1-1 in Vigo
 subtitle: Ungerechtfertigter Platzverweis für Meier
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet gegen Paderborn: Wieder ein 1:1
+title: Eintracht testet gegen Paderborn- Wieder ein 1:1
 
 ---
 

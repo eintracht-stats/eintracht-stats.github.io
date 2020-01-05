@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich wieder ein Sieg! 1:0 gegen Mönchengladbach
+title: Endlich wieder ein Sieg! 1-0 gegen Mönchengladbach
 
 ---
 

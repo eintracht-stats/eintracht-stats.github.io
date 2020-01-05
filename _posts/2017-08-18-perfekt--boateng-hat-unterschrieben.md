@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Perfekt: Boateng hat unterschrieben
+title: Perfekt- Boateng hat unterschrieben
 
 ---
 

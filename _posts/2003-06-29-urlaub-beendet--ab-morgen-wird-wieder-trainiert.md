@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Urlaub beendet: Ab morgen wird wieder trainiert
+title: Urlaub beendet- Ab morgen wird wieder trainiert
 subtitle: Madza verlängert - Jones mit Verletzungssorgen
 ---
 

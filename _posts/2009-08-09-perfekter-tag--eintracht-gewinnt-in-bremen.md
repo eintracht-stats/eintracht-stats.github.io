@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Perfekter Tag: Eintracht gewinnt in Bremen
+title: Perfekter Tag- Eintracht gewinnt in Bremen
 subtitle: Aachen nächster Pokalgegner
 ---
 

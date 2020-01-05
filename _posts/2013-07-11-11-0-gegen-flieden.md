@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 11:0 gegen Flieden
+title: 11-0 gegen Flieden
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Das müsste es sein: 4:1 gegen Gladbach
+title: Das müsste es sein- 4:1 gegen Gladbach
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 7:0 gegen Wetzlar
+title: 7-0 gegen Wetzlar
 
 ---
 

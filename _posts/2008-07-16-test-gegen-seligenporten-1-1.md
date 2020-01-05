@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Test gegen Seligenporten 1:1
+title: Test gegen Seligenporten 1-1
 
 ---
 

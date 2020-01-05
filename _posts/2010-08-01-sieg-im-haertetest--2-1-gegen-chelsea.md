@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im Härtetest: 2:1 gegen Chelsea
+title: Sieg im Härtetest- 2:1 gegen Chelsea
 
 ---
 

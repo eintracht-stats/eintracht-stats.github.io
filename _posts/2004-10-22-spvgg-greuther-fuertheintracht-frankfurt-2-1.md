@@ -1,6 +1,6 @@
 ---
 layout: post
-title: SpVgg Greuther Fürth-Eintracht Frankfurt 2:1
+title: SpVgg Greuther Fürth-Eintracht Frankfurt 2-1
 subtitle: Eintracht muss sich nach unten orientieren...
 ---
 

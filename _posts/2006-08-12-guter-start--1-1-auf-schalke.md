@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Guter Start: 1:1 auf Schalke
+title: Guter Start- 1:1 auf Schalke
 subtitle: Pröll hält Elfmeter
 ---
 

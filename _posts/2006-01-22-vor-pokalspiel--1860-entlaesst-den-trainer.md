@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vor Pokalspiel: 1860 entlässt den Trainer!
+title: Vor Pokalspiel- 1860 entlässt den Trainer!
 
 ---
 

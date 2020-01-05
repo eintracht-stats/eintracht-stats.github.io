@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lockeres 12:1 gegen Urberach
+title: Lockeres 12-1 gegen Urberach
 
 ---
 

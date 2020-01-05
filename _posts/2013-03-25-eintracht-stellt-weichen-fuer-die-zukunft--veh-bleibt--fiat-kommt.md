@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht stellt Weichen für die Zukunft: Veh bleibt, Fiat kommt
+title: Eintracht stellt Weichen für die Zukunft- Veh bleibt, Fiat kommt
 
 ---
 

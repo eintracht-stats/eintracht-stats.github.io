@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt mit 6:2
+title: Eintracht siegt mit 6-2
 subtitle: Schalke ist nächster Pokalgegner
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4:0 - Eintracht fegt Bröndby vom Platz
+title: 4-0 - Eintracht fegt Bröndby vom Platz
 
 ---
 

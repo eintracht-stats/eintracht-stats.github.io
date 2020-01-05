@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Halbfinale: Eintracht empfängt Bielefeld
+title: Halbfinale- Eintracht empfängt Bielefeld
 
 ---
 

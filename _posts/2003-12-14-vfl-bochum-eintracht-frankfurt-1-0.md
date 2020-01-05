@@ -1,6 +1,6 @@
 ---
 layout: post
-title: VfL Bochum - Eintracht Frankfurt 1:0
+title: VfL Bochum - Eintracht Frankfurt 1-0
 subtitle: Chancenauswertung mal wieder ungenügend
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jetzt ist es amtlich: Rehmer kommt! Jones bleibt!
+title: Jetzt ist es amtlich- Rehmer kommt! Jones bleibt!
 subtitle: Huggel forciert seinen Wechsel
 ---
 

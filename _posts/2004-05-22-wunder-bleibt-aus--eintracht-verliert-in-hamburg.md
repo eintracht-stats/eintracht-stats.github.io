@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wunder bleibt aus: Eintracht verliert in Hamburg
+title: Wunder bleibt aus- Eintracht verliert in Hamburg
 subtitle: Eintracht zum dritten Male abgestiegen
 ---
 

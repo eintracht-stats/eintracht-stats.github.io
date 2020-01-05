@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2:3 gegen Wolfsburg
+title: 2-3 gegen Wolfsburg
 
 ---
 

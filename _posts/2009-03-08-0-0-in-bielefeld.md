@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:0 in Bielefeld
+title: 0-0 in Bielefeld
 
 ---
 

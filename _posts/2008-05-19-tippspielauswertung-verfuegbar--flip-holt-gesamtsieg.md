@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspielauswertung verfügbar: Flip holt Gesamtsieg!
+title: Tippspielauswertung verfügbar- Flip holt Gesamtsieg!
 
 ---
 

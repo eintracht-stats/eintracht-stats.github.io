@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Test in der Länderspielpause: 9:0 in Traisa
+title: Test in der Länderspielpause- 9:0 in Traisa
 
 ---
 

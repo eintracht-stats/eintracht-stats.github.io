@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Heimsieg: 4:1 gegen Rostock
+title: Endlich ein Heimsieg- 4:1 gegen Rostock
 
 ---
 

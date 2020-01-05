@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich wieder ein Sieg: 3:2 in Fürth1
+title: Endlich wieder ein Sieg- 3:2 in Fürth1
 
 ---
 

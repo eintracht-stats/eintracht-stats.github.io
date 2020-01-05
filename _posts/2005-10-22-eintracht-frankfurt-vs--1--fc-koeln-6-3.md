@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt vs. 1. FC Köln 6:3
+title: Eintracht Frankfurt vs. 1. FC Köln 6-3
 
 ---
 

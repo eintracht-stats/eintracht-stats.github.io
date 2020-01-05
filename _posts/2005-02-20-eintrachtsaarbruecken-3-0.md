@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Saarbrücken 3:0
+title: Eintracht-Saarbrücken 3-0
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 9:0 in der Länderspielpause
+title: 9-0 in der Länderspielpause
 
 ---
 

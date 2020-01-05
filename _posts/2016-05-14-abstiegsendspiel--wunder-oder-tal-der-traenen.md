@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstiegsendspiel: Wunder oder Tal der Tränen?
+title: Abstiegsendspiel- Wunder oder Tal der Tränen?
 
 ---
 

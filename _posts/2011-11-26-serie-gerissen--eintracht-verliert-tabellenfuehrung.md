@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Serie gerissen: Eintracht verliert Tabellenführung
+title: Serie gerissen- Eintracht verliert Tabellenführung
 
 ---
 

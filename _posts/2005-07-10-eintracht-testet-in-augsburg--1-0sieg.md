@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet in Augsburg: 1:0-Sieg
+title: Eintracht testet in Augsburg- 1:0-Sieg
 
 ---
 

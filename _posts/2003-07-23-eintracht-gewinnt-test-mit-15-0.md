@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Test mit 15:0
+title: Eintracht gewinnt Test mit 15-0
 subtitle: Pokalknaller doch live im TV?
 ---
 

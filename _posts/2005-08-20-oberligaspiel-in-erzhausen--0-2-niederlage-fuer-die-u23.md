@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Oberliga-Spiel in Erzhausen: 0:2-Niederlage für die U23
+title: Oberliga-Spiel in Erzhausen- 0:2-Niederlage für die U23
 
 ---
 

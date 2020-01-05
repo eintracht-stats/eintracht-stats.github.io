@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offenbar Wechsel bei Trikotsponsor: Seat statt Fraport
+title: Offenbar Wechsel bei Trikotsponsor- Seat statt Fraport
 
 ---
 

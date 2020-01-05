@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0:3 gegen Karlsruhe
+title: 0-3 gegen Karlsruhe
 
 ---
 

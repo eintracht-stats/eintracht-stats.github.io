@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 12:2 im Test gegen JFG Kickers Bachgau
+title: 12-2 im Test gegen JFG Kickers Bachgau
 subtitle: Amateure mit erneuter Klatsche
 ---
 

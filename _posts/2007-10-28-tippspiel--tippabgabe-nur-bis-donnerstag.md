@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel: Tippabgabe nur bis Donnerstag!
+title: Tippspiel- Tippabgabe nur bis Donnerstag!
 
 ---
 

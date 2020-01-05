@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nächster Schock: 0:3 gegen Timisoara
+title: Nächster Schock- 0:3 gegen Timisoara
 
 ---
 

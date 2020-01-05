@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tranferliste schließt: Passiert noch was?
+title: Tranferliste schließt- Passiert noch was?
 
 ---
 

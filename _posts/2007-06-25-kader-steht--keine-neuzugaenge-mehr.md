@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kader steht: Keine Neuzugänge mehr
+title: Kader steht- Keine Neuzugänge mehr
 subtitle: Friedensgipfel Funkel - Streit geplant
 ---
 

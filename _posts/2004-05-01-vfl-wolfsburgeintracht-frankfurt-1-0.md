@@ -1,6 +1,6 @@
 ---
 layout: post
-title: VfL Wolfsburg-Eintracht Frankfurt 1:0
+title: VfL Wolfsburg-Eintracht Frankfurt 1-0
 subtitle: Der Abstieg rückt näher...
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wir sind wieder da: Nie mehr 2. Liga!!!
+title: Wir sind wieder da- Nie mehr 2. Liga!!!
 
 ---
 

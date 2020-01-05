@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lockeres 5:2 gegen den FSV
+title: Lockeres 5-2 gegen den FSV
 
 ---
 

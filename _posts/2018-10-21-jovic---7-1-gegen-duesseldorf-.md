@@ -1,6 +1,6 @@
 ---
 layout: post
-title: JOVIC!!! 7:1 gegen Düsseldorf!
+title: JOVIC!!! 7-1 gegen Düsseldorf!
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB-Pokal: Eintracht fährt nach Aue
+title: DFB-Pokal- Eintracht fährt nach Aue
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen: Pokalspiel gegen Köln
+title: Morgen- Pokalspiel gegen Köln
 
 ---
 

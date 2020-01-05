@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Das Endspiel: Eintracht in Dortmund
+title: Das Endspiel- Eintracht in Dortmund
 
 ---
 

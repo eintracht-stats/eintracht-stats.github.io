@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wegen Protest: Mahdavikia fliegt aus Nationalelf
+title: Wegen Protest- Mahdavikia fliegt aus Nationalelf
 
 ---
 

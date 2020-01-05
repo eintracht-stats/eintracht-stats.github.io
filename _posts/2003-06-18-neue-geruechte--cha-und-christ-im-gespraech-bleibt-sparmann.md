@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Gerüchte: Cha und Christ im Gespräch/Bleibt Sparmann?
+title: Neue Gerüchte- Cha und Christ im Gespräch/Bleibt Sparmann?
 subtitle: Enttäuschung über Spielplan
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel: Drei Spieltage auf einmal tippen
+title: Tippspiel- Drei Spieltage auf einmal tippen
 
 ---
 
