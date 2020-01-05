@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht gelingt der Befreiungsschlag
-subtitle: 5:2 gegen Duisburg
+subtitle: 5-2 gegen Duisburg
 ---
 
 Was für eine Partie: Das 5:2 gegen den MSV Duisburg war eine Achterbahnfahrt der Gefühle. Die Eintracht - mit dem wieder genesenen Spycher sowie Amanatidis - legte los wie die Feuerwehr: Bereits in der ersten Minute gelang Ioannis Amanatidis nach Vorlage von Alex Meier die Führung. In der 11. Minute erhöhte Köhler auf 2:0. Er hatte sich den Ball im Mittelfeld erobert. Alle rechneten mit einem Abspiel, doch Köhler ging alleine und ließ Koch im Kasten der Duisburger keine Chance.

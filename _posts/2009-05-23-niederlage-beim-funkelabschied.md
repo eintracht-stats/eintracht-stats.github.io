@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Niederlage beim Funkel-Abschied
-subtitle: 2:3 gegen den HSV
+subtitle: 2-3 gegen den HSV
 ---
 
 Die Ära Friedhelm Funkel ist Geschichte. Heute saß der Trainer nach 5 Jahren und 170 Ligaspielen zum letzten Mal auf der Eintracht-Bank. Leider konnte seine Mannschaft ihm kein sportliches Abschiedsgeschenk machen: Gegen den HSV, der sich damit die Uefa-Cup-Qualifikation sicherte, fiel in letzter Minute der Treffer zum 2:3...

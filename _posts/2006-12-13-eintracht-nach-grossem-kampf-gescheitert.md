@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht nach großem Kampf gescheitert
-subtitle: 2:2 in Istanbul
+subtitle: 2-2 in Istanbul
 ---
 
 Ich bin fix und fertig: Die Eintracht ist nach einer 90-minütigen Abwehrschlacht bei Fenerbahce Istanbul denkbar knapp aus dem Uefa-Cup ausgeschieden. Nach einem Traumstart mit dem 1:0 durch Takahara nach acht Minuten begann ein unfassbarer Sturmlauf von Fenerbahce. Die Eintracht konnte sich bei ihrem Glück, bei der Latte und bei Markus Pröll bedanken, dass es zur Pause immer noch 1:0 stand...

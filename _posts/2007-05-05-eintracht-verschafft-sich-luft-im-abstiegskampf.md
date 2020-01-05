@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht verschafft sich Luft im Abstiegskampf
-subtitle: 4:0 gegen Aachen
+subtitle: 4-0 gegen Aachen
 ---
 
 Mit 4:0 hat die Eintracht heute Alemannia Aachen besiegt und damit einen großen Schritt in Richtung Klassenerhalt gemacht. Benjamin Huggel traf bereits in der 3. Minute mit einem Distanzschuss zur Führung. Auch danach bestimmte die Eintracht das Geschehen auf dem Platz klar. Amanatidis hatte in der 26. Minute das 2:0 auf Fuß. Doch sein Schuss ins lange Eck prallte an den Innenpfosten, rollte auf der Linie entlang und sprang vom anderen Pfosten ins Feld zurück. Da fehlten wirklich nur die berühmten Millimeter...

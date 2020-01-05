@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht ermauert sich einen Punkt bei den Bayern!
-subtitle: Aufopferungsvoller Kampf beschert ein 0:0
+subtitle: Aufopferungsvoller Kampf beschert ein 0-0
 ---
 
 Ohne Streit, ohne Kyrgiakos, ohne Pröll, ohne Mahdavikia, sogar ohne den angeschlagenen Meier war die Eintracht zum Auswärtsspiel bei den Bayern angetreten. Neu im Team waren dafür die zuletzt eher selten eingesetzten Galindo, Chris, Nikolov und Preuß - und in der zentralen Abwehrposition eine gehörige Portion Beton und Glück...

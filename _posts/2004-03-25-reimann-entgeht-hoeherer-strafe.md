@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Reimann entgeht höherer Strafe
-subtitle: Hilpert: "Verfrühtes Ostergeschenk"
+subtitle: Hilpert- "Verfrühtes Ostergeschenk"
 ---
 
 Willi Reimann ist offenbar nur knapp einer noch härteren Strafe entgangen. Der Vorsitzende des Kontrollausschusses, Horst Hilpert, erklärte im Anschluss an die gestrige Verhandlung, dass er hart mit sich gerungen habe, nicht ein befristetes Berufsverbot für 6-8 Wochen zu fordern. Eine solche Strafe hätte fast zwangsläufig die Entlassung Reimanns zur Folge gehabt, da er in dieser Zeit keinen Kontakt zur Mannschaft hätte haben dürfen...

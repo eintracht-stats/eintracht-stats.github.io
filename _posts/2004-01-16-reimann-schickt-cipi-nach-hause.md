@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Reimann schickt Cipi nach Hause
-subtitle: Das neueste Gerücht: Michael Thurk
+subtitle: Das neueste Gerücht- Michael Thurk
 ---
 
 Willi Reimann hat Geri Cipi heute suspendiert und sofort aus dem Trainingslager nach Hause geschickt. Er hatte Uwe Bindewald grob gefoult, was nach Ansicht des Trainers mit voller Absicht geschah. "Es ging um die Gesundheit der Spieler, da musste ich reagieren. Cipi ist raus aus meinem Kopf", so Reimann weiter. Ob Cipi überhaupt noch eine Zukunft bei der Eintracht hat, wird nächste Woche bei einem Gespräch mit Heribert Bruchhagen entschieden.

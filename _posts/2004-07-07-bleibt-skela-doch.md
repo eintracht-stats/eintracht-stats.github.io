@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Bleibt Skela doch?
-subtitle: Eintracht siegt gegen Zillertaler Auswahlmannschaft mit 7:0
+subtitle: Eintracht siegt gegen Zillertaler Auswahlmannschaft mit 7-0
 ---
 
 Ein Verbleib von Ervin Skela in Frankfurt ist wohl doch nicht mehr ausgeschlossen. Wie es aussieht, hat sich der Albaner verpokert und zumindest keine Angebot aus der 1. Liga vorliegen. Da sein Nachfolger Markus Weissenberger noch verletzt ist, könnte es nun aber doch noch zu einer Vertragsverlängerung kommen. Vor 10 Tagen gab es das letzte Gespräch. Das Angebot wurde seitdem allerdings nicht aufgestockt. Aber vielleicht nimmt Skela es mangels Alternativen ja doch noch an...

@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht präsentiert sich wie ein Absteiger
-subtitle: 0:3-Niederlage lässt Abstieg näherrücken
+subtitle: 0-3-Niederlage lässt Abstieg näherrücken
 ---
 
 Mit einer erschreckend schwachen Leistung hat die Eintracht heute eine Riesenchance vertan, sich Luft im Abstiegskampf zu verschaffen: Die Konkurrenten Berlin und Gladbach steckten die erwartet hohen Niederlagen gegen Leverkusen bzw. Bayern ein, Hannover ergatterte zuhause einen Punkt gegen Dortmund. Bei einem Sieg wäre die Eintracht auf Platz 12 gerutscht, drei Punkte vor dem Abstiegsplatz...

@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Keine Unstimmigkeiten zwischen Möller und Reimann
-subtitle: Stadionbetreiber: Verhandlungen vor dem Aus!
+subtitle: Stadionbetreiber- Verhandlungen vor dem Aus!
 ---
 
 Wegen der Sperre von Ervin Skela wird Andreas Möller bei seiner Rückkehr nach Schalke offensiver spielen. Der Trainer sieht Möllers Stärken zwar nicht in der Position hinter den Spitzen. Dennoch erwartet er, dass Möller "öfter im Strafraum auftaucht".Möller zeigte sich verärger über Spekulation, das Verhältnis zu Willi Reimann sei durch seine Auswechslung gegen Kaiserslautern belastet. Er werde jede Entscheidung des Trainers akzeptieren, auch wenn er mal gar nicht spiele.

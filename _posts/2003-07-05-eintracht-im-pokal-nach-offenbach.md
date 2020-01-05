@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht im Pokal nach Offenbach!
-subtitle: Wieder ein hoher Sieg im Test: 15:0 gegen Norderstedt
+subtitle: Wieder ein hoher Sieg im Test- 15:0 gegen Norderstedt
 ---
 
 Da haben wir doch unseren Kracher...  Die Eintracht trifft in der 1. DFB-Pokalhauptrunde auf Kickers Offenbach!!! Antje Buschschulte und Thomas Rupprath zogen die Lose und führten die Lokalrivalen damit erstmals seit Jahren in einem Pflichtspiel zusammen. Die erste Runde wird vom 29. August bis zum 01. September ausgetragen! Das wird ein brisantes Derby, soviel ist klar...

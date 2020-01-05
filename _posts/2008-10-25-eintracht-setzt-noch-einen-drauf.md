@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht setzt noch einen drauf
-subtitle: 3:2 nach 0:2-Rückstand in Cottbus
+subtitle: 3-2 nach 0:2-Rückstand in Cottbus
 ---
 
 Was macht diese Mannschaft mit meinen Nerven??? Erst diese unglaubliche Partie gegen Karlsruhe. Und jetzt DAS: Mit dem letzten Aufgebot musste die Eintracht in Cottbus antreten. Friedhelm Funkel brachte Ljubicic und Caio von Beginn an. Das sagt schon sehr viel über die personelle Situation aus...

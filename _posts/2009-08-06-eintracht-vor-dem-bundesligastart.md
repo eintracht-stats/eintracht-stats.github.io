@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Eintracht vor dem Bundesligastart
-subtitle: Ziel: Obere Tabellenhälfte
+subtitle: Ziel- Obere Tabellenhälfte
 ---
 
 Am Samstag beginnt für die Eintracht auch in der Bundesliga der Ernst des Lebens. Michael Skibbe kündigte bereits an, dass in Bremen nur wenige Veränderungen gegenüber dem Pokalauftakt zu erwarten sind. Fenin, Chris und Franz seien jedoch Alternativen. Für die Regionalliga-Mannschaft abgestellt werden Titsch-Rivero, Alvarez, Tosun, Heller, Toski und - auf eigenen Wunsch, um Spielpraxis zu sammeln - Zlatan Bajramovic.

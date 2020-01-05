@@ -1,7 +1,7 @@
 ---
 layout: post
 title: eintracht-stats.de macht Urlaub!
-subtitle: Tippspiel: 2 Spieltage zu tippen, Abgabeschluss bereits Donnerstag, 19 Uhr!!!
+subtitle: Tippspiel- 2 Spieltage zu tippen, Abgabeschluss bereits Donnerstag, 19 Uhr!!!
 ---
 
 Chris und ich werden heute nach Portugal fliegen und dort unseren Urlaub verbringen. Aller Voraussicht nach können wir in dieser Zeit unsere Seite nicht aktualisieren. Ab 18. April findet ihr hier aber wieder tägliche News und aktuelle Statistiken. Wir bedauern, dass wir in dieser entscheidenden Saisonphase nicht für euch da sein können. Aber irgendwann muss man ja mal ausspannen... :-)
