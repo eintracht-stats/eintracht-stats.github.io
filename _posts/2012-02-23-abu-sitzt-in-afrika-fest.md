@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abu sitzt in Afrika fest
+title: "Abu sitzt in Afrika fest"
 
 ---
 

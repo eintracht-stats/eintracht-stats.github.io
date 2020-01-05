@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kann noch gewinnen
+title: "Eintracht kann noch gewinnen"
 
 ---
 

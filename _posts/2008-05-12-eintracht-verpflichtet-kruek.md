@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Krük
+title: "Eintracht verpflichtet Krük"
 
 ---
 

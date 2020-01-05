@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit rabenschwarzem Tag
+title: "Eintracht mit rabenschwarzem Tag"
 
 ---
 

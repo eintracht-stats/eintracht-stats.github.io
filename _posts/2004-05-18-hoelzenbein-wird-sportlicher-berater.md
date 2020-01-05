@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hölzenbein wird sportlicher Berater
+title: "Hölzenbein wird sportlicher Berater"
 
 ---
 

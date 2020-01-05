@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann äußert sich zur aktuellen Kritik
-subtitle: Bleibt Sparmann weiter im Amt?
+title: "Reimann äußert sich zur aktuellen Kritik"
+subtitle: "Bleibt Sparmann weiter im Amt?"
 ---
 
 In einem FR-Interview fand Willi Reimann deutliche Worte zur aktuellen Situation. Er erklärte, dass er sich seine Arbeit nicht durch die aktuellen Streitigkeiten kaputt machen oder anzweifeln lasse. Die Eintracht sei aufgestiegen, weil im engsten Kreis (er meint an dieser Stelle wohl den Trainerstab und den Vorstand) gut zusammen gearbeitet wurde. Er selber werde weiterhin seriös und verlässlich arbeiten. 

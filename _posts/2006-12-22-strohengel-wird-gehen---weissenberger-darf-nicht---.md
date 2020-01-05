@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stroh-Engel wird gehen - Weissenberger darf nicht...
+title: "Stroh-Engel wird gehen - Weissenberger darf nicht..."
 
 ---
 

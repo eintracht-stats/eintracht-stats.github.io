@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris meldet sich - und will weg...
+title: "Chris meldet sich - und will weg..."
 
 ---
 

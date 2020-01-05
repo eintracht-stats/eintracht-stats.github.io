@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß wird operiert
+title: "Preuß wird operiert"
 
 ---
 

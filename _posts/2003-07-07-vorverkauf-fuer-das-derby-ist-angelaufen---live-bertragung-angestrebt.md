@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Vorverkauf für das Derby ist angelaufen / Live-Übertragung angestrebt
-subtitle: Jones' Spezialschuh jetzt da
+title: "Vorverkauf für das Derby ist angelaufen / Live-Übertragung angestrebt"
+subtitle: "Jones' Spezialschuh jetzt da"
 ---
 
 Die Frage, die wahrscheinlich viele von euch bewegt, werde ich gleich mal zu Beginn beantworten: Wie komme ich an Karten für das Derby??? Wenn man bei der Eintracht bestellen will, geht das nur schriftlich per Fax, E-Mail oder Post. Noch ist allerdings unklar, wieviele Tickets bereitgestellt werden. Natürlich kann man auch beim OFC bestellen, allerdings kommt man dann logischerweise nicht in den Eintracht-Block. Und außerdem gewährt der OFC seinen Dauerkartenkunden erstmal ein Vorkaufsrecht. Viele Karten werden deshalb nicht übrig bleiben...

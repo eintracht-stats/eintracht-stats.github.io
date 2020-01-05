@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Pröll ist die Nummer 1
-subtitle: Lenze fehlt drei Wochen/Lexas Einsatz fraglich
+title: "Pröll ist die Nummer 1"
+subtitle: "Lenze fehlt drei Wochen/Lexas Einsatz fraglich"
 ---
 
 Friedhelm Funkel hat sich entschieden: Auf der heutigen Pressekonferenz gab er bekannt, dass Markus Pröll als Torwart Nummer 1 in die Saison geht. Pröll stand bereits in den letzten drei Spielen der vergangenen Saison im Kasten und zeigte eine ansprechende Leistung. Seinen Platz hat er nun also verteidigt, wenngleich Konkurrent Oka Nikolov ebenfalls eine gute Saisonvorbereitung bescheinigt wird.

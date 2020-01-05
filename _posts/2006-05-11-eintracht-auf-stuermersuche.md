@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht auf Stürmersuche
+title: "Eintracht auf Stürmersuche"
 
 ---
 

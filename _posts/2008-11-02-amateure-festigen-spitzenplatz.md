@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure festigen Spitzenplatz
+title: "Amateure festigen Spitzenplatz"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs bekommt Gips
+title: "Ochs bekommt Gips"
 
 ---
 

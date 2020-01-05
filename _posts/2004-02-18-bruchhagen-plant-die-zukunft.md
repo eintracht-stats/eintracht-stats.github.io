@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen plant die Zukunft
-subtitle: Cha trifft für Korea
+title: "Bruchhagen plant die Zukunft"
+subtitle: "Cha trifft für Korea"
 ---
 
 Heribert Bruchhagen ist zur Zeit dabei, die Planungen für die neue Saison voranzutreiben. So sieht er die Verhandlungen mit Sportfive über den Stadionbetrieb in der "finalen Phase". Der Vertrag soll zwar erst ab Mitte 2005 laufen. Doch der Verkauf von Bandenwerbung, die Anwerbung von Sponsoren sowie vor allen Dingen der Verkauf der neuen Logen müssten schon in diesem Sommer beginnen, weshalb ein gewisser Zeitdruck besteht...

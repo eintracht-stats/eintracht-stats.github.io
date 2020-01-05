@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis operiert - lange Pause...
+title: "Amanatidis operiert - lange Pause..."
 
 ---
 

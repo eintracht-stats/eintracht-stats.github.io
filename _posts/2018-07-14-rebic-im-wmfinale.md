@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rebic im WM-Finale
+title: "Rebic im WM-Finale"
 
 ---
 

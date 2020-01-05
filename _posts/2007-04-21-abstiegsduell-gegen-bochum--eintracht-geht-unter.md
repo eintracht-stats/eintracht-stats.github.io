@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstiegsduell gegen Bochum- Eintracht geht unter
+title: "Abstiegsduell gegen Bochum: Eintracht geht unter"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorstand in Paris
+title: "Vorstand in Paris"
 
 ---
 

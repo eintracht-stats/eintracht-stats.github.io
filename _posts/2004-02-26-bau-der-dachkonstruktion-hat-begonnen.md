@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bau der Dachkonstruktion hat begonnen
+title: "Bau der Dachkonstruktion hat begonnen"
 
 ---
 

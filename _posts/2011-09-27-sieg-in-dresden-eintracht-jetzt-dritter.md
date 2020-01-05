@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Dresden - Eintracht jetzt Dritter!
+title: "Sieg in Dresden - Eintracht jetzt Dritter!"
 
 ---
 

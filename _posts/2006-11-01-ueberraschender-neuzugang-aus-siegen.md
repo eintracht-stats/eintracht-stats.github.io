@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Überraschender Neuzugang aus Siegen
+title: "Überraschender Neuzugang aus Siegen"
 
 ---
 

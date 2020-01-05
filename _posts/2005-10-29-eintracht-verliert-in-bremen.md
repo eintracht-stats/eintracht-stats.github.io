@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert in Bremen
-subtitle: Auch die Amateure holen keine Punkte
+title: "Eintracht verliert in Bremen"
+subtitle: "Auch die Amateure holen keine Punkte"
 ---
 
 Wir sind wieder auf dem Boden der Tatsachen angelangt. Beim Meisterschaftskandidaten in Bremen unterlag die Eintracht heute deutlich mit 1:4. Amanatidis hatte die Eintracht in der ersten Hälfte sogar in Führung gebracht. Aber Frings gelang noch vor der Pause der Ausgleich. Borowski (2) und Klose schossen dann in Halbzeit 2 den verdienten Sieg für die Gastgeber heraus.

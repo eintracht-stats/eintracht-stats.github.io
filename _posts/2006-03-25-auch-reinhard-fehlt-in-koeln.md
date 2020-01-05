@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Reinhard fehlt in Köln
+title: "Auch Reinhard fehlt in Köln"
 
 ---
 

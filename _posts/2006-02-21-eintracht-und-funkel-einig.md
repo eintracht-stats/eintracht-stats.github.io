@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht und Funkel einig
-subtitle: Klopp äußert sich zur Eintracht...
+title: "Eintracht und Funkel einig"
+subtitle: "Klopp äußert sich zur Eintracht..."
 ---
 
 Heribert Bruchhagen hat klargestellt, dass man sich mit Friedhelm Funkel über eine weitere Zusammenarbeit einig ist. Im März sollen die Gespräche über eine Vertragsverlängerung vorangetrieben werden. Zuletzt gab es Meldungen, dass der Vertrag des Trainers erst dann verlängert wird, wenn der Klassenerhalt feststeht.

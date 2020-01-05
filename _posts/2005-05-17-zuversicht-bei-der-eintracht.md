@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Zuversicht bei der Eintracht
-subtitle: Die neuesten Gerüchte...
+title: "Zuversicht bei der Eintracht"
+subtitle: "Die neuesten Gerüchte..."
 ---
 
 Die Zuversicht vor dem letzten Spieltag ist groß. Trotz des Störfeuers aus München (siehe untenstehenden Bericht), ist man bei der Eintracht von einem Sieg gegen Burghausen und dem damit verbundenen Aufstieg überzeugt. Wohl mit dabei sein wird auch Torben Hoffmann. Der Innenverteidiger, der nach der Saison zum derzeitigen Hauptkonkurrenten nach München wechseln wird, war in Cottbus verletzt ausgewechselt worden. Er glaubt aber trotz seiner Knieprellung im letzten Spiel für die Eintracht auflaufen zu können.

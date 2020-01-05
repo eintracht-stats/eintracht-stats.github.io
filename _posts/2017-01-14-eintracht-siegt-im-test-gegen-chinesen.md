@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt im Test gegen Chinesen
+title: "Eintracht siegt im Test gegen Chinesen"
 
 ---
 

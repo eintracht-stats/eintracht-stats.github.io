@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippabgabe nicht vergessen!
+title: "Tippabgabe nicht vergessen!"
 
 ---
 

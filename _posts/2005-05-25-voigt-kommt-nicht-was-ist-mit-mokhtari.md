@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Voigt kommt nicht - Was ist mit Mokhtari?
-subtitle: VIP-Plätze sind begehrt
+title: "Voigt kommt nicht - Was ist mit Mokhtari?"
+subtitle: "VIP-Plätze sind begehrt"
 ---
 
 Für Christoph Spycher muss die Eintracht eine Ablösesumme von umgerechnet etwa 300.000 Euro an Grasshoppers Zürich überweisen. Benjamin Huggel vom FC Basel, der nach wie vor ein heißer Kandidat ist, würde 650.000 Euro kosten. Nicht zur Eintracht kommen wird Alexander Voigt vom 1. FC Köln. Seine Position ist nach Meinung der Eintracht-Verantwortlichen durch Spycher gut besetzt.

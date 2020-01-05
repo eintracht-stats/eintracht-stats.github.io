@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler noch angeschlagen
+title: "Schwegler noch angeschlagen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im Test gegen Würges
+title: "Sieg im Test gegen Würges"
 
 ---
 

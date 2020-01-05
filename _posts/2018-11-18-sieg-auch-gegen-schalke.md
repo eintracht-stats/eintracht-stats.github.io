@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg auch gegen Schalke
+title: "Sieg auch gegen Schalke"
 
 ---
 

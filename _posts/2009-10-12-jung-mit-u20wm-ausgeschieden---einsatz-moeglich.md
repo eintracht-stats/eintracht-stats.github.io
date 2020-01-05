@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung mit U20-WM ausgeschieden - Einsatz möglich
+title: "Jung mit U20-WM ausgeschieden - Einsatz möglich"
 
 ---
 

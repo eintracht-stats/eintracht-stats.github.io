@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Betreiber-Vertrag noch nicht unterschrieben
-subtitle: Verhandlungen zwischen Eintracht und Sportfive
+title: "Betreiber-Vertrag noch nicht unterschrieben"
+subtitle: "Verhandlungen zwischen Eintracht und Sportfive"
 ---
 
 Ich muss etwas zurückrudern, was den Stadionbetreiber angeht: Die Stadt hat mit den Firmen Sportfive und HSG bislang lediglich eine Absichtserklärung unterschrieben. Eine endgültige Einigung über den Vertrieb des Stadions, der den Verkauf des Namensrechts, der Logen und Parkplätze sowie das Catering umfassen würde, ist noch nicht erfolgt.

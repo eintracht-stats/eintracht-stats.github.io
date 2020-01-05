@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung bleibt bis 2014
+title: "Jung bleibt bis 2014"
 
 ---
 

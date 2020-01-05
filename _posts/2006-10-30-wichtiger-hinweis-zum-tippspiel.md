@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wichtiger Hinweis zum Tippspiel
+title: "Wichtiger Hinweis zum Tippspiel"
 
 ---
 

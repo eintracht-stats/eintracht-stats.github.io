@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will expandieren
+title: "Eintracht will expandieren"
 
 ---
 

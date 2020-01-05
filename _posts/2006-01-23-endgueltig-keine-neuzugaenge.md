@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Endgültig keine Neuzugänge
-subtitle: Köhler hilft in Abwehr aus
+title: "Endgültig keine Neuzugänge"
+subtitle: "Köhler hilft in Abwehr aus"
 ---
 
 Die Eintracht wird endgültig ohne Neuzugänge die Saison zu Ende spielen. HSV-Trainer Doll hat erklärt, dass Naohiro Takahara auch dann beim HSV bleiben muss, wenn (und danach sieht es aus) Ailton an die Elbe wechselt. Da ein Transfer des Brasilianers Rafael Augusto Sobis aus Porto Alegre nicht finanzierbar scheint - 3 Millionen Euro sind doch ein wenig zu viel - muss eben der vorhandene Kader den Klassenerhalt schaffen. Allemal machbar...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hasebe bis Saisonende gesperrt
+title: "Hasebe bis Saisonende gesperrt"
 
 ---
 

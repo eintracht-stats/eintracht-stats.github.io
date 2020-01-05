@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reutershahn und Nikolov verlängern
+title: "Reutershahn und Nikolov verlängern"
 
 ---
 

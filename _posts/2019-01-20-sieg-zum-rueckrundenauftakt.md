@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg zum Rückrundenauftakt
+title: "Sieg zum Rückrundenauftakt"
 
 ---
 

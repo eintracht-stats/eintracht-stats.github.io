@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Profis und Amateure am Ball
+title: "Profis und Amateure am Ball"
 
 ---
 

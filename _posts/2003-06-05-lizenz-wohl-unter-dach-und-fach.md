@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Lizenz wohl unter Dach und Fach
-subtitle: Reimann wegen Hauptausschuss verstimmt
+title: "Lizenz wohl unter Dach und Fach"
+subtitle: "Reimann wegen Hauptausschuss verstimmt"
 ---
 
 Spätestens am Freitag wird die Eintracht die fehlenden Lizenzunterlagen bei der DFL einreichen. Volker Sparmann machte deutlich, dass man bei der Eintracht in diesem Jahr keine Probleme erwartet. Das war im letzten Jahr allerdings nicht anders...

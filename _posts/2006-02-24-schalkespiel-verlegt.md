@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schalke-Spiel verlegt
+title: "Schalke-Spiel verlegt"
 
 ---
 

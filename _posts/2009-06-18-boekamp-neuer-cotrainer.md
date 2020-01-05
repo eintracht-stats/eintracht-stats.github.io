@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Boekamp neuer Co-Trainer
-subtitle: Kein Stürmer wird kommen
+title: "Boekamp neuer Co-Trainer"
+subtitle: "Kein Stürmer wird kommen"
 ---
 
 Eddy Boekamp hat bestätigt, dass er zur neuen Saison Co-Trainer von Michael Skibbe wird. Ihm liege ein unterschriftsreifer Vertrag der Eintracht vor. Noch offen ist die Zukunft des bisherigen Assistenztrainers Armin Reuterhahn. Zwar ist Skibbe grundsätzlich zu einer Zusammenarbeit bereit. Er möchte allerdings die Zusage, dass Reutershahn nicht bei nächster Gelegenheit gemeinsam mit Friedhelm Funkel woanders unterschreibt. 

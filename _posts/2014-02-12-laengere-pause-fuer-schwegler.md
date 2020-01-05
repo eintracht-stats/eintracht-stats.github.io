@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Längere Pause für Schwegler
+title: "Längere Pause für Schwegler"
 
 ---
 

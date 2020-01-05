@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Skelas Abgang schon perfekt?
-subtitle: Noch kein Angebot für Schur
+title: "Skelas Abgang schon perfekt?"
+subtitle: "Noch kein Angebot für Schur"
 ---
 
 Natürlich steht auch heute Ervin Skela und sein möglicher Wechsel nach Leverkusen im Mittelpunkt. Laut Sport-Bild ist der Transfer zu Bayer bereits so gut wie perfekt. Skela soll dort Nachfolger von Yildiray Bastürk werden. Der Albaner erklärte aber auch, dass er sich in Frankfurt wohlfühle. Er dementierte, dass die Trennung von Klaus Gerster erfolgt sei, weil er wechseln wolle und sein Berater ihm zu einem Verbleib bei der Eintracht geraten habe. In den kommenden Tagen werden die Verhandlungen weitergehen...

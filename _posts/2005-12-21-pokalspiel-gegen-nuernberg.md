@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalspiel gegen Nürnberg
+title: "Pokalspiel gegen Nürnberg"
 
 ---
 

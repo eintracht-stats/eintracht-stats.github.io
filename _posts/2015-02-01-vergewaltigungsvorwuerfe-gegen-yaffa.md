@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vergewaltigungsvorwürfe gegen Yaffa
+title: "Vergewaltigungsvorwürfe gegen Yaffa"
 
 ---
 

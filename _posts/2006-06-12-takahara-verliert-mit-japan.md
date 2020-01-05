@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara verliert mit Japan
+title: "Takahara verliert mit Japan"
 
 ---
 

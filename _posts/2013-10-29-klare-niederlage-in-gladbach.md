@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klare Niederlage in Gladbach
+title: "Klare Niederlage in Gladbach"
 
 ---
 

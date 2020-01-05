@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel bei Ausschreitungen verletzt
+title: "Huggel bei Ausschreitungen verletzt"
 
 ---
 

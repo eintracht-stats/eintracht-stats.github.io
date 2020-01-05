@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schmidt will weg
+title: "Schmidt will weg"
 
 ---
 

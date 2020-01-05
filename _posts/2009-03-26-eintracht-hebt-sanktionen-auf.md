@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht hebt Sanktionen auf
+title: "Eintracht hebt Sanktionen auf"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hasebe-Verlängerung jetzt offiziell
+title: "Hasebe-Verlängerung jetzt offiziell"
 
 ---
 

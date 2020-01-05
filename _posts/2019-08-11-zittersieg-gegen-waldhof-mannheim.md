@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zittersieg gegen Waldhof Mannheim
+title: "Zittersieg gegen Waldhof Mannheim"
 
 ---
 

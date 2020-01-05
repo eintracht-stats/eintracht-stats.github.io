@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erstes Training- Meier und Chris wieder dabei
+title: "Erstes Training: Meier und Chris wieder dabei"
 
 ---
 

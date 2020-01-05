@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht heute auf Schalke
+title: "Eintracht heute auf Schalke"
 
 ---
 

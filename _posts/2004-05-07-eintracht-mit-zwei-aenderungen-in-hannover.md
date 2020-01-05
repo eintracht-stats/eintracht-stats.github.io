@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit zwei Änderungen in Hannover
+title: "Eintracht mit zwei Änderungen in Hannover"
 
 ---
 

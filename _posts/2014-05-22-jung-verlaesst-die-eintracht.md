@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung verlässt die Eintracht
+title: "Jung verlässt die Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alle Jahre wieder- Der Laktattest...
+title: "Alle Jahre wieder: Der Laktattest..."
 
 ---
 

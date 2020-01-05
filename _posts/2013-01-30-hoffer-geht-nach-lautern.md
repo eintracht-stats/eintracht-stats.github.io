@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffer geht nach Lautern
+title: "Hoffer geht nach Lautern"
 
 ---
 

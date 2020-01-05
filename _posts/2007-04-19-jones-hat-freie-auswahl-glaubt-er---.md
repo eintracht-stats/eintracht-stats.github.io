@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones hat freie Auswahl - glaubt er...
+title: "Jones hat freie Auswahl - glaubt er..."
 
 ---
 

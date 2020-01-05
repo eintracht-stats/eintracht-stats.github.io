@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Spiele Sperre für Hoffmann
+title: "Drei Spiele Sperre für Hoffmann"
 
 ---
 

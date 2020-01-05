@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Altintop!!!
+title: "Eintracht holt Altintop!!!"
 
 ---
 

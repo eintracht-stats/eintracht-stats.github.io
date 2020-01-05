@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Kaufoption auf Jermaine Jones
+title: "Keine Kaufoption auf Jermaine Jones"
 
 ---
 

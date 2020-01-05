@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Weis dran
+title: "Eintracht an Weis dran"
 
 ---
 

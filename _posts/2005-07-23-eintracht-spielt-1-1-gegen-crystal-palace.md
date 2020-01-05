@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt 1-1 gegen Crystal Palace
+title: "Eintracht spielt 1:1 gegen Crystal Palace"
 
 ---
 

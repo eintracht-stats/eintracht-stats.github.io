@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Derby-Sieg für die Eintracht
+title: "Klarer Derby-Sieg für die Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht startet auf Schalke
+title: "Eintracht startet auf Schalke"
 
 ---
 

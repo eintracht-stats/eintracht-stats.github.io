@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov ist krank
+title: "Nikolov ist krank"
 
 ---
 

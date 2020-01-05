@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Cipi geht nach Oberhausen!
-subtitle: Kommt Nascimento doch noch?
+title: "Cipi geht nach Oberhausen!"
+subtitle: "Kommt Nascimento doch noch?"
 ---
 
 Pünktlich zum Start des Winterschlussverkaufs "mistet" auch die Eintracht ihren Kader aus. Gestern bat Geri Cipi um die Auflösung seines Vertrags. Mit Zustimmung der Eintracht wechselt der Albaner nun zu Rot-Weiß Oberhausen, das nach der Aufnahme von David Montero langsam zum Sammelbecken der in Frankfurt Aussortierten wird... Zudem wird der im Winter aus Brasilien zurückgekehrte Matheus Vivian nach Spanien zu Union Las Palmas (2. Liga) wechseln.

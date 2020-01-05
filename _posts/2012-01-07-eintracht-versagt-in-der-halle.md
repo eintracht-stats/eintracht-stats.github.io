@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht versagt in der Halle
+title: "Eintracht versagt in der Halle"
 
 ---
 

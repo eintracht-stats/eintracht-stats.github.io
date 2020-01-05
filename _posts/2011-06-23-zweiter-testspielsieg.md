@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zweiter Testspielsieg
+title: "Zweiter Testspielsieg"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Umfrage zum Thema Sportsponsoring
-subtitle: Zeitaufwand von wenigen Minuten, bitte teilnehmen!
+title: "Umfrage zum Thema Sportsponsoring"
+subtitle: "Zeitaufwand von wenigen Minuten, bitte teilnehmen!"
 ---
 
 Im Rahmen einer Bachelorarbeit führt ein Freund von uns eine Umfrage zum Thema Sportsponsoring durch. Dabei stehen die Sponsoren von Eintracht Frankfurt im Mittelpunkt der Arbeit. Bitte nehmt zahlreich an dieser Umfrage teil. Es dauert nur wenige Minuten. Danke! Hier geht es zur Umfrage

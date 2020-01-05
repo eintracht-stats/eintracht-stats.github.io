@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glücklicher Sieg im Pokal
+title: "Glücklicher Sieg im Pokal"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schafft Tallinn
+title: "Eintracht schafft Tallinn"
 
 ---
 

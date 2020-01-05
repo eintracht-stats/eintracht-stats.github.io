@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara wartet auf Freigabe
+title: "Takahara wartet auf Freigabe"
 
 ---
 

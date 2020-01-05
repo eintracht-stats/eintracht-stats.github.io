@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Definitiv- Fink geht
+title: "Definitiv: Fink geht"
 
 ---
 

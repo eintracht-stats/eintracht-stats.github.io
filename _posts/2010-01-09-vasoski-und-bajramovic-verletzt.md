@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vasoski und Bajramovic verletzt
+title: "Vasoski und Bajramovic verletzt"
 
 ---
 

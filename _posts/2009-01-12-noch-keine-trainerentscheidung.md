@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch keine Trainer-Entscheidung
+title: "Noch keine Trainer-Entscheidung"
 
 ---
 

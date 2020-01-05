@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Trainingslager in Österreich
+title: "Zwei Trainingslager in Österreich"
 
 ---
 

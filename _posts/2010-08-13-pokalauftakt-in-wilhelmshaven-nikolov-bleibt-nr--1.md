@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauftakt in Wilhelmshaven - Nikolov bleibt Nr. 1
+title: "Pokalauftakt in Wilhelmshaven - Nikolov bleibt Nr. 1"
 
 ---
 

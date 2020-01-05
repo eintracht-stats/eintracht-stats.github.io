@@ -1,7 +1,7 @@
 ---
 layout: post
-title: VfL Bochum - Eintracht Frankfurt 1-0
-subtitle: Chancenauswertung mal wieder ungenügend
+title: "VfL Bochum - Eintracht Frankfurt 1:0"
+subtitle: "Chancenauswertung mal wieder ungenügend"
 ---
 
 Da unser liebestoller Flip anscheinend mal wieder besseres zu tun hat, als einen Spielbericht zu schreiben, möchte ich wenigstens kurz auf die Partie von gestern eingehen ;-).Gegenüber dem Spiel gegen Hannover rückten Bürger, Günther und Pulijz neu in die Anfangsformation der Eintracht. Nach 13. Minuten Einstellung auf den Gegner und das widrige Wetter hatte die Eintracht gleich zweimal beste Chancen zur Führung...

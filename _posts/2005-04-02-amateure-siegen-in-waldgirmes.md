@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure siegen in Waldgirmes!
+title: "Amateure siegen in Waldgirmes!"
 
 ---
 

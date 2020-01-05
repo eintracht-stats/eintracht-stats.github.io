@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trio fällt gegen Bremen aus
+title: "Trio fällt gegen Bremen aus"
 
 ---
 

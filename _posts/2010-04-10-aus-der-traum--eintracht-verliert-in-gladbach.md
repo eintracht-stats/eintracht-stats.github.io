@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aus der Traum- Eintracht verliert in Gladbach
+title: "Aus der Traum: Eintracht verliert in Gladbach"
 
 ---
 

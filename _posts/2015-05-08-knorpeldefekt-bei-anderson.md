@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knorpeldefekt bei Anderson
+title: "Knorpeldefekt bei Anderson"
 
 ---
 

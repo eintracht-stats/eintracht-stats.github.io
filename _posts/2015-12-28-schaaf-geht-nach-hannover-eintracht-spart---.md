@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schaaf geht nach Hannover - Eintracht spart...
+title: "Schaaf geht nach Hannover - Eintracht spart..."
 
 ---
 

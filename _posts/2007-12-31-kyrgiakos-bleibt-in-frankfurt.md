@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos bleibt in Frankfurt
+title: "Kyrgiakos bleibt in Frankfurt"
 
 ---
 

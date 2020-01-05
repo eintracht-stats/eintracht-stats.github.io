@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abraham bleibt Kapitän
+title: "Abraham bleibt Kapitän"
 
 ---
 

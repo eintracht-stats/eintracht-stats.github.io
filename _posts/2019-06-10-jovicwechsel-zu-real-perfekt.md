@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jovic-Wechsel zu Real perfekt
+title: "Jovic-Wechsel zu Real perfekt"
 
 ---
 

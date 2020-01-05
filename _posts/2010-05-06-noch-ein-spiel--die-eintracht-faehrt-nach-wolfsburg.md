@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch ein Spiel- Die Eintracht fährt nach Wolfsburg
+title: "Noch ein Spiel: Die Eintracht fährt nach Wolfsburg"
 
 ---
 

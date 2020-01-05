@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht weiterhin ohne Punkte
-subtitle: Amateure fahren Sieg ein
+title: "Eintracht weiterhin ohne Punkte"
+subtitle: "Amateure fahren Sieg ein"
 ---
 
 Die Eintracht ist noch nicht in der Bundesliga angekommen. Auch im dritten Spiel gab es keine Punkte. Durch drei Tore von Martin Max behielt Hansa Rostock im Ostseestadion die Oberhand. Die größte Chance für die Eintracht vergab dabei Ervin Skela mit einem Elfmeter. So wird das nichts mit dem Klassenerhalt... Ein Spielbericht folgt!

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwache Eintracht verliert gegen Gladbach
+title: "Schwache Eintracht verliert gegen Gladbach"
 
 ---
 

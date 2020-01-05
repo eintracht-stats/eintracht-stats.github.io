@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren in Fulda
+title: "Amateure verlieren in Fulda"
 
 ---
 

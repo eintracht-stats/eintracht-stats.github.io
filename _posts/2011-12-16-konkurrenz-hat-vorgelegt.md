@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Konkurrenz hat vorgelegt
+title: "Konkurrenz hat vorgelegt"
 
 ---
 

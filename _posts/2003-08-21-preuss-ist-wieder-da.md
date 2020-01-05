@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Preuß ist wieder da!
-subtitle: Hölzenbein schließt mit der Eintracht ab
+title: "Preuß ist wieder da!"
+subtitle: "Hölzenbein schließt mit der Eintracht ab"
 ---
 
 Christoph Preuß ist wieder zu Hause! Die Eintracht leiht den 22jährigen Defensiv-Allrounder, der erst vor der vergangenen Saison nach Leverkusen gewechselt war, bis Saisonende aus. Die Eintracht muss keine Leihgebühren bezahlen und trägt auch weniger als ein Drittel des Grundgehalts des Spielers. Herzlichen Willkommen zurück, kann ich da nur sagen! Preuß hat zwar kaum Spielpraxis, aber vielleicht kann er unserer Mannschaft ja doch helfen. Es wäre ihm und uns zu wünschen...Zur möglichen Verpflichtung des Brasilianers Chris gibt es zur Stunde übrigens keine weiteren Neuigkeiten.

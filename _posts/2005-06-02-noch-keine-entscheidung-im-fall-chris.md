@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch keine Entscheidung im Fall Chris
-subtitle: Rehmer kommt wohl zur Eintracht
+title: "Noch keine Entscheidung im Fall Chris"
+subtitle: "Rehmer kommt wohl zur Eintracht"
 ---
 
 Wir müssen weiter auf eine Entscheidung im Fall Chris warten. Der internationale Sportgerichtshof beendete die für heute angesetzte Verhandlung ohne Urteil. Zuvor hatten Chris und der brasilianische Verein Prudentopolis SC ihren Standpunkt deutlich gemacht. Das Urteil wird in den kommenden Wochen schriftlich zugestellt.

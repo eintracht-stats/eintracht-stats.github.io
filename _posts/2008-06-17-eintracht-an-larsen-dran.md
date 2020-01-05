@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Larsen dran?
+title: "Eintracht an Larsen dran?"
 
 ---
 

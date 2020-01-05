@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Petkovic
+title: "Eintracht verpflichtet Petkovic"
 
 ---
 

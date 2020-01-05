@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht dank Bayern eine Runde weiter
+title: "Eintracht dank Bayern eine Runde weiter"
 
 ---
 

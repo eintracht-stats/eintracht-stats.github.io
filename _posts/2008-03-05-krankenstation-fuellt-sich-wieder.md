@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krankenstation füllt sich wieder
+title: "Krankenstation füllt sich wieder"
 
 ---
 

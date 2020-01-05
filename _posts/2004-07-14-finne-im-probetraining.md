@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Finne im Probetraining
-subtitle: Erste Spieltage terminiert
+title: "Finne im Probetraining"
+subtitle: "Erste Spieltage terminiert"
 ---
 
 Die Suche nach einem Abwehrspieler geht voran: Ab heute absolviert der 12-malige finnische Nationalspieler Markus Heikkinen vom FC Aberdeen ein dreitägiges Probetraining. Er wird wohl auch am Freitag im Test gegen Bayer Leverkusen auflaufen.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Celozzi soll gehen
+title: "Celozzi soll gehen"
 
 ---
 

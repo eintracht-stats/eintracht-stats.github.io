@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gegen Allgäu-Auswahl nur remis
+title: "Eintracht gegen Allgäu-Auswahl nur remis"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht stellt Dauerkartenverkauf ein
+title: "Eintracht stellt Dauerkartenverkauf ein"
 
 ---
 

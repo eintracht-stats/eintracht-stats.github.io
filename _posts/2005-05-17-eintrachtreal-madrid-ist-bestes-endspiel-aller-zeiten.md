@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Real Madrid ist bestes Endspiel aller Zeiten!
+title: "Eintracht-Real Madrid ist bestes Endspiel aller Zeiten!"
 
 ---
 

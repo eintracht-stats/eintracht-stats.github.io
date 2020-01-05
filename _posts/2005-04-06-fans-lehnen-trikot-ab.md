@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fans lehnen Trikot ab
+title: "Fans lehnen Trikot ab"
 
 ---
 

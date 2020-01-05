@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Stunde der Wahrheit...
+title: "Die Stunde der Wahrheit..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gibt Winterfahrplan bekannt
+title: "Eintracht gibt Winterfahrplan bekannt"
 
 ---
 

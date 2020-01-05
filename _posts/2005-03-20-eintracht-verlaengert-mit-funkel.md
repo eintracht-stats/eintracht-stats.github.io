@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlängert mit Funkel
+title: "Eintracht verlängert mit Funkel"
 
 ---
 

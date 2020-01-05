@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stuttgart lockt Pröll
+title: "Stuttgart lockt Pröll"
 
 ---
 

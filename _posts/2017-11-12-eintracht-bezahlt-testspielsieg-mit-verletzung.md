@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bezahlt Testspielsieg mit Verletzung
+title: "Eintracht bezahlt Testspielsieg mit Verletzung"
 
 ---
 

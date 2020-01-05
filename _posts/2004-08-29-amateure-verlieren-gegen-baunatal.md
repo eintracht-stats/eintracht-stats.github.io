@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren gegen Baunatal
+title: "Amateure verlieren gegen Baunatal"
 
 ---
 

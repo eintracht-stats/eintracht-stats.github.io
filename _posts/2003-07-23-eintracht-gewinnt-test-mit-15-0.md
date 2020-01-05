@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht gewinnt Test mit 15-0
-subtitle: Pokalknaller doch live im TV?
+title: "Eintracht gewinnt Test mit 15:0"
+subtitle: "Pokalknaller doch live im TV?"
 ---
 
 Im vorletzten Test gegen die SpVgg Steinefrenz-Weroth präsentierte sich die Eintracht wieder in Torlaune. Cha (3), Montero, Schur, Beierle, Jones, Dragusha (je 2) sowie Keller und Günther schossen ein klares 15:0 heraus. Am Samstag wird noch einmal gegen den 1. FC Nürnberg der Ernstfall geprobt. Spätestens dann wird Willi Reimann seine Startelf für München im Kopf haben...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hertzsch bricht sich die Nase
+title: "Hertzsch bricht sich die Nase"
 
 ---
 

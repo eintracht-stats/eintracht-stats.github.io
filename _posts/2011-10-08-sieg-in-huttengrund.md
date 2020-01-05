@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Huttengrund
+title: "Sieg in Huttengrund"
 
 ---
 

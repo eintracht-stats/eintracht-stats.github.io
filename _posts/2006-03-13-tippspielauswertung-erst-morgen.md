@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel-Auswertung erst morgen
+title: "Tippspiel-Auswertung erst morgen"
 
 ---
 

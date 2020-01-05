@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Pauli
+title: "Eintracht gewinnt in Pauli"
 
 ---
 

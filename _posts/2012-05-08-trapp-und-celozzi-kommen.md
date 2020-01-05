@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp und Celozzi kommen
+title: "Trapp und Celozzi kommen"
 
 ---
 

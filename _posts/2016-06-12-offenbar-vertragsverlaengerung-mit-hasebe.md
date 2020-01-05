@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offenbar Vertragsverlängerung mit Hasebe
+title: "Offenbar Vertragsverlängerung mit Hasebe"
 
 ---
 

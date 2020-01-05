@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zweites Spiel - zweite Niederlage
+title: "Zweites Spiel - zweite Niederlage"
 
 ---
 

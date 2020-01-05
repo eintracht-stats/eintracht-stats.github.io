@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Portugal
+title: "Trainingslager in Portugal"
 
 ---
 

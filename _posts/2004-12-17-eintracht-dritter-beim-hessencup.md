@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Dritter beim Hessen-Cup
+title: "Eintracht Dritter beim Hessen-Cup"
 
 ---
 

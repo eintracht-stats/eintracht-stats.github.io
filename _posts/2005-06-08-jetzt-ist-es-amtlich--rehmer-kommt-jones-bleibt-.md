@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jetzt ist es amtlich- Rehmer kommt! Jones bleibt!
-subtitle: Huggel forciert seinen Wechsel
+title: "Jetzt ist es amtlich: Rehmer kommt! Jones bleibt!"
+subtitle: "Huggel forciert seinen Wechsel"
 ---
 
 Nachdem Marko Rehmer die gestrige sportmedizinische Untersuchung bestanden hatte, unterzeichnete der Ex-Nationalspieler heute einen Einjahresvertrag. Die Laufzeit verlängert sich um ein weiteres Jahr, wenn Rehmer 25 Spiele von Beginn an bestreitet.Eine weitere Entscheidung ist gefallen: Jermaine Jones bleibt in Frankfurt. Er war ja bekanntlich von Bayer Leverkusen nur ausgeliehen und kommt jetzt ablösefrei. Ich denke mal, dass die Eintracht durch die gesparte Ablösesumme Jones' Gehalt etwas nach oben korrigieren konnte. Jones erhält einen Zweijahresvertrag.

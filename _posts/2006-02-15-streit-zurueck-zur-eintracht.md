@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit zurück zur Eintracht?
+title: "Streit zurück zur Eintracht?"
 
 ---
 

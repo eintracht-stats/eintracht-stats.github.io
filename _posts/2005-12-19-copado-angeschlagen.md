@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Copado angeschlagen
-subtitle: Wohl keine Neuen im Winter
+title: "Copado angeschlagen"
+subtitle: "Wohl keine Neuen im Winter"
 ---
 
 Im Pokalspiel am Mittwoch muss die Eintracht möglicherweise ohne Francisco Copado auskommen. Er zog sich gegen Gladbach eine Adduktorenzerrung zu. Auch Alex Meier fehlt wegen seines Muskelfaserrisses weiterhin. Wieder im Team ist Jermaine Jones, der wegen der fünften gelben Karte zuletzt gesperrt war. Aber man merkt langsam, dass wir eine Pause brauchen. Es sind doch einige Spieler angeschlagen oder verletzt...

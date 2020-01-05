@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Torwart ist da
+title: "Neuer Torwart ist da"
 
 ---
 

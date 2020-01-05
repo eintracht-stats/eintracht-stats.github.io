@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verpasst wichtigen Sieg
-subtitle: Ausgleich zum 1-1 kurz vor Schluss
+title: "Eintracht verpasst wichtigen Sieg"
+subtitle: "Ausgleich zum 1:1 kurz vor Schluss"
 ---
 
 Die Eintracht hat heute eine große Chance verpasst, zum einen die Abstiegsränge zu verlassen und zum anderen Gegner Hansa Rostock tief in den Abstiegsstrudel hineinzuziehen. Am Ende reichte es gegen die Norddeutschen nur zu einem 1:1...

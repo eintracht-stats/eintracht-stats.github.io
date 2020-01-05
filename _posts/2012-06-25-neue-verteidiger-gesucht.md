@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Verteidiger gesucht
+title: "Neue Verteidiger gesucht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Mann verlassen die Eintracht
+title: "Drei Mann verlassen die Eintracht"
 
 ---
 

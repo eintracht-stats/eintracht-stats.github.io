@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel gegen Gladbach endet mit Niederlage
+title: "Testspiel gegen Gladbach endet mit Niederlage"
 
 ---
 

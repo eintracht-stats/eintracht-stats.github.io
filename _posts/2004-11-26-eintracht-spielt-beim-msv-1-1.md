@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt beim MSV 1-1
+title: "Eintracht spielt beim MSV 1:1"
 
 ---
 

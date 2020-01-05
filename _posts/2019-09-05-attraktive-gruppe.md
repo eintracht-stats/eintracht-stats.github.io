@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Attraktive Gruppe
+title: "Attraktive Gruppe"
 
 ---
 

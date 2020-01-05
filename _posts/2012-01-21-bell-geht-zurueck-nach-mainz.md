@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bell geht zurück nach Mainz
+title: "Bell geht zurück nach Mainz"
 
 ---
 

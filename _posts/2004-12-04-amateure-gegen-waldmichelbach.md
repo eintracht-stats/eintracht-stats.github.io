@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gegen Wald-Michelbach
+title: "Amateure gegen Wald-Michelbach"
 
 ---
 

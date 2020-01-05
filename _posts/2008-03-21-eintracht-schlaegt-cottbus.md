@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt Cottbus
-subtitle: Caio trifft erstmals
+title: "Eintracht schlägt Cottbus"
+subtitle: "Caio trifft erstmals"
 ---
 
 Mit einem 2:1-Sieg gegen Energie Cottbus hat sich die Eintracht zwischenzeitlich auf Rang 6 vorgeschoben. Die Partie nahm zunächst den erwarteten Verlauf: Cottbus konzentrierte sich auf die Defensive, während die Eintracht Mühe hatte zu Torchancen zu kommen. So endete die erste Halbzeit ohne große Höhepunkte. Zur Pause blieb Junichi Inamoto mit einem Muskelfaserriss in der Kabine...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WM-Qualifikation mit Eintracht-Spielern
+title: "WM-Qualifikation mit Eintracht-Spielern"
 
 ---
 

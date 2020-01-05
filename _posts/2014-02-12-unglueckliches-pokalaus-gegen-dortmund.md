@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unglückliches Pokal-Aus gegen Dortmund
+title: "Unglückliches Pokal-Aus gegen Dortmund"
 
 ---
 

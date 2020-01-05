@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Titsch-Rivero wird Profi
+title: "Titsch-Rivero wird Profi"
 
 ---
 

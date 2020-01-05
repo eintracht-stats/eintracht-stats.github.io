@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager beginnt
+title: "Trainingslager beginnt"
 
 ---
 

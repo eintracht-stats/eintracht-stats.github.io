@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Amateurauswahl
+title: "Eintracht schlägt Amateurauswahl"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison-Aus für Kittel
+title: "Saison-Aus für Kittel"
 
 ---
 

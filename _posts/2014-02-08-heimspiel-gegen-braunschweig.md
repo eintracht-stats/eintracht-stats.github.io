@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heimspiel gegen Braunschweig
+title: "Heimspiel gegen Braunschweig"
 
 ---
 

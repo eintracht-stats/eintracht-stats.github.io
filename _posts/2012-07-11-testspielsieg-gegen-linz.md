@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielsieg gegen Linz
+title: "Testspielsieg gegen Linz"
 
 ---
 

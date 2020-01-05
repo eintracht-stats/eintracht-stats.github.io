@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schwächelt
+title: "Eintracht schwächelt"
 
 ---
 

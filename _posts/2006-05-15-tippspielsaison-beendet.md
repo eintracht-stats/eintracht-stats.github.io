@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel-Saison beendet
+title: "Tippspiel-Saison beendet"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alle Finalkarten vergriffen
+title: "Alle Finalkarten vergriffen"
 
 ---
 

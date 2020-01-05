@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara meldet sich zu Wort
+title: "Takahara meldet sich zu Wort"
 
 ---
 

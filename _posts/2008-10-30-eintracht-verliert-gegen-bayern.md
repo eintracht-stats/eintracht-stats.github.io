@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Bayern 
+title: "Eintracht verliert gegen Bayern "
 
 ---
 

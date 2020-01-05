@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Traum geht weiter
+title: "Der Traum geht weiter"
 
 ---
 

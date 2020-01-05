@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aktuelle Statistiken erst mit Verspätung
+title: "Aktuelle Statistiken erst mit Verspätung"
 
 ---
 

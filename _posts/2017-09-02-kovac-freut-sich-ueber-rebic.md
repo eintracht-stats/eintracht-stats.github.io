@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kovac freut sich über Rebic
+title: "Kovac freut sich über Rebic"
 
 ---
 

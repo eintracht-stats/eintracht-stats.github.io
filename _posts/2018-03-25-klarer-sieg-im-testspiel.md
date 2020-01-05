@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg im Testspiel
+title: "Klarer Sieg im Testspiel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht muss Strafe zahlen
+title: "Eintracht muss Strafe zahlen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht startet die Saisonvorbereitung
+title: "Eintracht startet die Saisonvorbereitung"
 
 ---
 

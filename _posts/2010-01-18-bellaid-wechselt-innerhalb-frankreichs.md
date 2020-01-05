@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bellaid wechselt innerhalb Frankreichs
+title: "Bellaid wechselt innerhalb Frankreichs"
 
 ---
 

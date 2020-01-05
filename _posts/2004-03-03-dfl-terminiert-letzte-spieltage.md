@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFL terminiert letzte Spieltage
+title: "DFL terminiert letzte Spieltage"
 
 ---
 

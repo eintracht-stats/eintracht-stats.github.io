@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur hofft auf volles Haus
+title: "Schur hofft auf volles Haus"
 
 ---
 

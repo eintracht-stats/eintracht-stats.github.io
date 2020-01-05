@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bangt um Europa League
+title: "Eintracht bangt um Europa League"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht U23 verliert gegen Steinbach
+title: "Eintracht U23 verliert gegen Steinbach"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Husterer bricht sich Nasenbein
-subtitle: Geschäftsstelle zieht ins Stadion
+title: "Husterer bricht sich Nasenbein"
+subtitle: "Geschäftsstelle zieht ins Stadion"
 ---
 
 Markus Husterer hat sich im heutigen Training einen Nasenbeinbruch zugezogen. Die Nase wird nun unter Narkose gerichtet und danach mit einer Maske stabilisiert. Husterer fällt für das Spiel in Karlsruhe wohl aus.

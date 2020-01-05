@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die WM ist vorbei - ein Rückblick...
+title: "Die WM ist vorbei - ein Rückblick..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wer kommt? Und wer darf bleiben?
+title: "Wer kommt? Und wer darf bleiben?"
 
 ---
 

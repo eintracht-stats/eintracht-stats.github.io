@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert auch gegen Stuttgart
+title: "Eintracht verliert auch gegen Stuttgart"
 
 ---
 

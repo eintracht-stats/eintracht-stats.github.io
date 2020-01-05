@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht sucht Chris-Nachfolger
-subtitle: Keller macht Fortschritte
+title: "Eintracht sucht Chris-Nachfolger"
+subtitle: "Keller macht Fortschritte"
 ---
 
 Auch heute gibt es noch keine Nachrichten von Chris. Allerdings hält man bei der Eintracht einen Wechsel zum FC Sevilla, von dem in Gerüchten die Rede war, für ausgeschlossen. Dies hätte der einflussreichste brasilianische Spielervermittler, Juan Figer, erklärt, der zuletzt wegen eines anderen Spielers mit Sevilla in Kontakt war.Unterdessen hat die Eintracht die Bemühungen um einen neuen Innenverteidiger verschärft. Die Scouts Ralf Weber und Bernd Hölzenbein werden am Wochenende bei Liga- und UI-Cup-Spielen in Skandinavien, Österreich und der Schweiz Spieler beobachten.

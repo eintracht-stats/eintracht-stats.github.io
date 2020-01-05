@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht klarer Derbysieger
-subtitle: Hungriger Hund löst Bombenalarm aus...
+title: "Eintracht klarer Derbysieger"
+subtitle: "Hungriger Hund löst Bombenalarm aus..."
 ---
 
 Die Eintracht ist im Pokalviertelfinale wieder in die Erfolgsspur zurückgekehrt. Das Spiel auf dem Bieberer Berg endete mit einem klaren 3:0 für die Frankfurter. Michael Fink hatte die Mannschaft bereits nach 10 Minuten im Anschluss an einen Eckball in Führung gebracht. Die Offenbacher Hintermannschaft befand sich dabei im kollektiven Tiefschlaf...

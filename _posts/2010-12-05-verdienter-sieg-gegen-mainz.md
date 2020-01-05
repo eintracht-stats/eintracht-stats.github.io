@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Verdienter Sieg gegen Mainz
-subtitle: Hinrunden-Aus für Nikolov
+title: "Verdienter Sieg gegen Mainz"
+subtitle: "Hinrunden-Aus für Nikolov"
 ---
 
 Die Eintracht ist mit einem 2:1 gegen den Tabellenzweiten aus Mainz in die Erfolgsspur zurückgekehrt. Russ hatte die Eintracht in der 35. Minute in Führung gebracht: Nach einer Ochs-Hereingabe brachten die Mainzer den Ball nicht aus dem Strafraum und der aufgerückte Innenverteidiger schoss den Ball aus 15 Metern volley ins Netz. Die Führung war zu diesem Zeitpunkt verdient, da die Eintracht das Spiel ziemlich im Griff hatte...

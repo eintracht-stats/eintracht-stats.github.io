@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torhüter bereits im Training
+title: "Torhüter bereits im Training"
 
 ---
 

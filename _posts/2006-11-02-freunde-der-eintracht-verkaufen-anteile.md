@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Freunde der Eintracht verkaufen Anteile
+title: "Freunde der Eintracht verkaufen Anteile"
 
 ---
 

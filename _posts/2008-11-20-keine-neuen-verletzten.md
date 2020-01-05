@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine neuen Verletzten
+title: "Keine neuen Verletzten"
 
 ---
 

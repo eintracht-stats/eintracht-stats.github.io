@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 20-0 gegen Hofheim
+title: "20:0 gegen Hofheim"
 
 ---
 

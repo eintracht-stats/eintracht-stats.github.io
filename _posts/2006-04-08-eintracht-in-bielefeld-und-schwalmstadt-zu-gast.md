@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Bielefeld und Schwalmstadt zu Gast
+title: "Eintracht in Bielefeld und Schwalmstadt zu Gast"
 
 ---
 

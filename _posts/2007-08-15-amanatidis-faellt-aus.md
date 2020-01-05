@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis fällt aus!
+title: "Amanatidis fällt aus!"
 
 ---
 

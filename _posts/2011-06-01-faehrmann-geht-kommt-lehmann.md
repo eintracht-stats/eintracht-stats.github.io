@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fährmann geht - Kommt Lehmann?
+title: "Fährmann geht - Kommt Lehmann?"
 
 ---
 

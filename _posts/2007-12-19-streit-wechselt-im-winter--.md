@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit wechselt im Winter!!!
+title: "Streit wechselt im Winter!!!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht droht erneut Geisterspiel
+title: "Eintracht droht erneut Geisterspiel"
 
 ---
 

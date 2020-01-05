@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel
+title: "Eintracht gewinnt Testspiel"
 
 ---
 

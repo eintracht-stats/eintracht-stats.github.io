@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Bad Vilbel bringt Klassenerhalt
+title: "Sieg in Bad Vilbel bringt Klassenerhalt"
 
 ---
 

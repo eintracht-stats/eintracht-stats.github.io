@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nationalspieler im Einsatz
-subtitle: Waldstadion ist "angeschlagen"
+title: "Nationalspieler im Einsatz"
+subtitle: "Waldstadion ist angeschlagen"
 ---
 
 Gestern hat die Eintracht aufgrund der Witterungsbedingungen mal wieder in der Wintersporthalle trainiert. Da die Eintracht aber erst am Sonntag gegen Wolfsburg antritt, dürfte es zu verschmerzen sein. Erspart blieb diese Einheit den drei Nationalspielern: Amanatidis und Vasoski spielen heute mit ihren Mannschaften, Patrick Ochs bereits gestern mit der U21. 

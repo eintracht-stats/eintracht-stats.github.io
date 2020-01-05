@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kadlec geht nach Prag
+title: "Kadlec geht nach Prag"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Duisburg
+title: "Eintracht empfängt Duisburg"
 
 ---
 

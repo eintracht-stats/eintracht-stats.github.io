@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will mit Bruchhagen verlängern
+title: "Eintracht will mit Bruchhagen verlängern"
 
 ---
 

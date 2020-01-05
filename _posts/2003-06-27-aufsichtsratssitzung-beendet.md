@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Aufsichtsratssitzung beendet
-subtitle: Sportschau-Comeback jetzt sicher
+title: "Aufsichtsratssitzung beendet"
+subtitle: "Sportschau-Comeback jetzt sicher"
 ---
 
 Die ersten Ergebnisse der mit Spannung erwarteten Aufsichtsratssitzung sind da: Die Eintracht wird Du-Ri Cha verpflichten. Der Koreaner, der schon im letzten Jahr im Gespräch war, wird in Kürze einen Vertrag in Frankfurt unterschreiben. Darüberhinaus steht die Eintracht kurz vor der Verpflichtung von Geri Cipi.

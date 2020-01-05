@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Boateng geht!
+title: "Auch Boateng geht!"
 
 ---
 

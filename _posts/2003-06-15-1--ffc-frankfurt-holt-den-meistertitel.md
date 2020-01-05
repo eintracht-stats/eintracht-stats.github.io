@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1. FFC Frankfurt holt den Meistertitel
+title: "1. FFC Frankfurt holt den Meistertitel"
 
 ---
 

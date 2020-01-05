@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frommer und Husterer haben Vereine gefunden
+title: "Frommer und Husterer haben Vereine gefunden"
 
 ---
 

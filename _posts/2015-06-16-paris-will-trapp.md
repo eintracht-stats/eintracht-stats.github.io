@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Paris will Trapp!
+title: "Paris will Trapp!"
 
 ---
 

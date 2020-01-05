@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mannschaft trifft sich zur Aussprache
+title: "Mannschaft trifft sich zur Aussprache"
 
 ---
 

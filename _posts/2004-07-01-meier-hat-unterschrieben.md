@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Meier hat unterschrieben
-subtitle: Kreuz-Wechsel ist ins Stocken geraten
+title: "Meier hat unterschrieben"
+subtitle: "Kreuz-Wechsel ist ins Stocken geraten"
 ---
 
 Wie erwartet hat die Eintracht heute Alexander Meier vom HSV unter Vertrag genommen. Die Offensivkraft wird für ein Jahr ausgeliehen.

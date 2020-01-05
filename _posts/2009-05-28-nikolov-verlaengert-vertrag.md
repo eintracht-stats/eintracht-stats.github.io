@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nikolov verlängert Vertrag
-subtitle: Kommt Franz?
+title: "Nikolov verlängert Vertrag"
+subtitle: "Kommt Franz?"
 ---
 
 Die Eintracht hat den Vertrag mit Oka Nikolov um ein Jahr verlängert. Damit stehen mit Nikolov, Pröll und Neuzugang Fährmann drei Torhüter unter Vertrag. Gerüchten, wonach Fährmann in Schalke bleibt, da die Gelsenkirchener eventuell Manuel Neuer an Bayern München verkaufen, trat Heribert Bruchhagen entgegen.

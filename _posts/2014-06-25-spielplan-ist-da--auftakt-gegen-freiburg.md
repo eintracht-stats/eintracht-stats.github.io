@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielplan ist da- Auftakt gegen Freiburg
+title: "Spielplan ist da: Auftakt gegen Freiburg"
 
 ---
 

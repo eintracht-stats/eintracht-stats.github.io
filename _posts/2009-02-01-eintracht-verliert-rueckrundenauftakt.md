@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert Rückrundenauftakt
-subtitle: Glück im Unglück bei Pröll
+title: "Eintracht verliert Rückrundenauftakt"
+subtitle: "Glück im Unglück bei Pröll"
 ---
 
 Die Eintracht hat das erste Spiel nach der Winterpause mit 1:2 bei Hertha BSC Berlin verloren. Trainer Funkel brachte Neuzugang Petkovic links in der Viererkette. Zudem kehrten Chris und Meier in die Mannschaft zurück. Leonard Kweuke blieb zunächst auf der Bank. Nach gut einer Viertelstunde gingen die Gastgeber durch Pantelic in Führung...

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht erkämpft Unentschieden gegen Bayern!
-subtitle: Skela trifft per Elfmeter
+title: "Eintracht erkämpft Unentschieden gegen Bayern!"
+subtitle: "Skela trifft per Elfmeter"
 ---
 
 Mit einem 1:1 gegen Bayern München ist die Eintracht gut in die Rückrunde gestartet. Dabei fing das Spiel katastrophal an: Preuß hatte einen langen Ball unterlaufen, Ballack legte für Makaay ab - und der traf nach 39 Sekunden zum 0:1...

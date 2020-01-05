@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Möller wird Nachwuchschef
+title: "Möller wird Nachwuchschef"
 
 ---
 

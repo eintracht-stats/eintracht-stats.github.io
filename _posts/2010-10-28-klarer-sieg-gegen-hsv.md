@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Klarer Sieg gegen HSV
-subtitle: Meier fällt 4 Wochen aus
+title: "Klarer Sieg gegen HSV"
+subtitle: "Meier fällt 4 Wochen aus"
 ---
 
 Mit einer alles in allem überzeugenden Leistung hat sich die Eintracht ins DFB-Pokalachtelfinale geschossen. Das 5:2 gegen den HSV sieht allerdings klarer aus als es eigentlich war. Zwar begann die Eintracht gut - Gekas scheiterte nach Pass von Meier frei vor Drobny. Kurz darauf musste Meier vom Platz. Diagnose: Muskelfaserriss! 4 Wochen Pause....

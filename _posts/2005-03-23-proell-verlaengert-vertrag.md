@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll verlängert Vertrag!
+title: "Pröll verlängert Vertrag!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffenheim zu Gast
+title: "Hoffenheim zu Gast"
 
 ---
 

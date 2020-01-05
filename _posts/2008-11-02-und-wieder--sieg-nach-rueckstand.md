@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Und wieder- Sieg nach Rückstand!
+title: "Und wieder: Sieg nach Rückstand!"
 
 ---
 

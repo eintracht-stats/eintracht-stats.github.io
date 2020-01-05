@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erklärung für Prölls Beschwerden gefunden
+title: "Erklärung für Prölls Beschwerden gefunden"
 
 ---
 

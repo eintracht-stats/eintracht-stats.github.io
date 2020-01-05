@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zu Gast in Neuenhain
+title: "Eintracht zu Gast in Neuenhain"
 
 ---
 

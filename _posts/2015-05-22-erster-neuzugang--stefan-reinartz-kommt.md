@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Neuzugang- Stefan Reinartz kommt
+title: "Erster Neuzugang: Stefan Reinartz kommt"
 
 ---
 

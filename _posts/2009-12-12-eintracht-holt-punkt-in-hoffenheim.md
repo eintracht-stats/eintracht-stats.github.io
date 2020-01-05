@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Hoffenheim
-subtitle: Preuß mit Kurz-Einsatz
+title: "Eintracht holt Punkt in Hoffenheim"
+subtitle: "Preuß mit Kurz-Einsatz"
 ---
 
 Mit einer ansprechenden Leistung hat die Eintracht bei der TSG Hoffenheim einen Punkt entführt. Salihovic traf in der 9. Minute per Foulelfmeter zum 1:0. Eine umstrittene Entscheidung, da Tebers Aktion wohl nicht elfmeterwürdig war. Bereits zur Pause hätte die Eintracht aufgrund ihrer Feldüberlegenheit den Ausgleich verdient gehabt. Den erzielte Schwegler mit einem sehenswerten Schuss nach gut einer Stunde. Alles in allem ein gutes Ergebnis...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Galindo geht sofort - Wechsel nach Guadalajara
+title: "Galindo geht sofort - Wechsel nach Guadalajara"
 
 ---
 

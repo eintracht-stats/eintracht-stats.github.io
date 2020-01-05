@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knappe Niederlage in München
+title: "Knappe Niederlage in München"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht siegt knapp gegen FC Eddersheim
-subtitle: Hartes Training macht sich bemerkbar...
+title: "Eintracht siegt knapp gegen FC Eddersheim"
+subtitle: "Hartes Training macht sich bemerkbar..."
 ---
 
 Mit einem knappen 2:1 siegte die Eintracht heute gegen den FC Eddersheim. Nach 6 Minuten lag die Mannschaft bereits mit 0:1 zurück... Mehmet Dragusha erzielte nach einer halben Stunde den Ausgleich. 8 Minuten vor dem Ende sorgte Jermaine Jones dafür, dass wenigstens noch ein Sieg heraussprang.

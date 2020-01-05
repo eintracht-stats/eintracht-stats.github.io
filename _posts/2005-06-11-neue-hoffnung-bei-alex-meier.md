@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Hoffnung bei Alex Meier
+title: "Neue Hoffnung bei Alex Meier"
 
 ---
 

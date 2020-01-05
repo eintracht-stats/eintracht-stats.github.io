@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel ist online
+title: "Tippspiel ist online"
 
 ---
 

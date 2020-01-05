@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem Spiel in Dortmund
+title: "Eintracht vor dem Spiel in Dortmund"
 
 ---
 

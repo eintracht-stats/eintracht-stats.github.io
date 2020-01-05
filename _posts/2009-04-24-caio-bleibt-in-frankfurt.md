@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Caio bleibt in Frankfurt
+title: "Caio bleibt in Frankfurt"
 
 ---
 

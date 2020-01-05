@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiele der Eintracht
+title: "Testspiele der Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Innenbandriss bei Blum
+title: "Innenbandriss bei Blum"
 
 ---
 

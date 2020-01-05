@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalhalbfinale auf Schalke
+title: "Pokalhalbfinale auf Schalke"
 
 ---
 

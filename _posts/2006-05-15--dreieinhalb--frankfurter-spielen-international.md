@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Dreieinhalb" Frankfurter spielen international
+title: "Dreieinhalb Frankfurter spielen international"
 
 ---
 

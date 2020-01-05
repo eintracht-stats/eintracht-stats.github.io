@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure wollen Aufstiegsplatz verteidigen
+title: "Amateure wollen Aufstiegsplatz verteidigen"
 
 ---
 

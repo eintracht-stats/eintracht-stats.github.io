@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kapitel Kreuz ist beendet- Wechsel nach Erfurt
-subtitle: Testspiel in Ober-Roden
+title: "Kapitel Kreuz ist beendet: Wechsel nach Erfurt"
+subtitle: "Testspiel in Ober-Roden"
 ---
 
 Heute wurde ein Schluss-Strich unter den Fall Markus Kreuz gezogen: Der Vertrag mit dem Mittelfeldspieler wurde aufgelöst. Kreuz, der die Eintracht verlassen wollte, seitdem Friedhelm Funkel den Trainerposten übernahm, wechselt zu unserem Pokalgegner Rot-Weiß Erfurt. Wie einige Thüringer Zeitungen melden, soll er sich selbst an der Ablösesumme beteiligt haben, um die Eintracht verlassen zu können...

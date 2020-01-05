@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris bleibt zu Hause
+title: "Chris bleibt zu Hause"
 
 ---
 

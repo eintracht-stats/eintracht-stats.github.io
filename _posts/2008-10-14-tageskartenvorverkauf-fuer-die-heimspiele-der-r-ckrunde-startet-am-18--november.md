@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tageskartenvorverkauf für die Heimspiele der Rückrunde startet am 18. November
+title: "Tageskartenvorverkauf für die Heimspiele der Rückrunde startet am 18. November"
 
 ---
 

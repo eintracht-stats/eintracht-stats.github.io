@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bundesliga weiterhin mit 18 Mannschaften
+title: "Bundesliga weiterhin mit 18 Mannschaften"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spitzentrio hält sich schadlos
+title: "Spitzentrio hält sich schadlos"
 
 ---
 

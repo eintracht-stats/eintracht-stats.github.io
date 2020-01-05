@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stendera erfolgreich operiert
+title: "Stendera erfolgreich operiert"
 
 ---
 

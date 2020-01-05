@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Uefa-Cup-Auslosung beginnt um 13 Uhr
-subtitle: 5 mögliche Gegner
+title: "Uefa-Cup-Auslosung beginnt um 13 Uhr"
+subtitle: "5 mögliche Gegner"
 ---
 
 Heute um 13 Uhr ist es endlich soweit: In Monaco wird die erste Runde im diesjährigen Uefa-Cup ausgelost. Die Eintracht ist eine von 40 ungesetzten Mannschaften. Da die Mannschaften im Vorfeld auf unterschiedliche Töpfe aufgeteilt wurden, gibt es nur noch 5 mögliche Gegner für die Eintracht: RC Lens, AZ Alkmaar, Slovan Liberec, FC Parma und Bröndby IF Kopenhagen. Ganz ehrlich, ist ahne jetzt schon wo die Reise hingeht...

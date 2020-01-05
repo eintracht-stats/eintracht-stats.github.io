@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris verlängerte Urlaub, Cha bei der Armee
+title: "Chris verlängerte Urlaub, Cha bei der Armee"
 
 ---
 

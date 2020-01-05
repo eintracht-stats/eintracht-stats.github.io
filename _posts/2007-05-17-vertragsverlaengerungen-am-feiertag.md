@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsverlängerungen am Feiertag
+title: "Vertragsverlängerungen am Feiertag"
 
 ---
 

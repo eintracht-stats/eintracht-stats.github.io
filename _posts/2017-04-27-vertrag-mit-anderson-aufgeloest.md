@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertrag mit Anderson aufgelöst
+title: "Vertrag mit Anderson aufgelöst"
 
 ---
 

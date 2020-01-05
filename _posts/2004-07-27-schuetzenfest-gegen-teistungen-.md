@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schützenfest gegen Teistungen.
+title: "Schützenfest gegen Teistungen."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im Abwärtstrend
+title: "Eintracht im Abwärtstrend"
 
 ---
 

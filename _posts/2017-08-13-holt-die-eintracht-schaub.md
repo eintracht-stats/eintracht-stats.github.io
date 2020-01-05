@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Holt die Eintracht Schaub?
+title: "Holt die Eintracht Schaub?"
 
 ---
 

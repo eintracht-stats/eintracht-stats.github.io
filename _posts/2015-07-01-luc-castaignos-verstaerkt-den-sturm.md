@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Luc Castaignos verstärkt den Sturm
+title: "Luc Castaignos verstärkt den Sturm"
 
 ---
 

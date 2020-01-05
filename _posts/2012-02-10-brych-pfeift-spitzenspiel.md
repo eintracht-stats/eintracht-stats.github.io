@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Brych pfeift Spitzenspiel
+title: "Brych pfeift Spitzenspiel"
 
 ---
 

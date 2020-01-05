@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weitere Durchsuchungen im Wettskandal
+title: "Weitere Durchsuchungen im Wettskandal"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Folgen des Pokalsiegs
+title: "Die Folgen des Pokalsiegs"
 
 ---
 

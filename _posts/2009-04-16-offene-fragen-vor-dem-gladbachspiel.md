@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offene Fragen vor dem Gladbach-Spiel
+title: "Offene Fragen vor dem Gladbach-Spiel"
 
 ---
 

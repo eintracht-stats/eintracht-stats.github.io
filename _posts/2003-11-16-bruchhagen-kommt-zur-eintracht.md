@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen kommt zur Eintracht!
-subtitle: DFL erteilt Freigabe zum 1. Dezember
+title: "Bruchhagen kommt zur Eintracht!"
+subtitle: "DFL erteilt Freigabe zum 1. Dezember"
 ---
 
 Heribert Bruchhagen hat gestern in einem Gespräch mit dem DFL-Vorsitzenden Werner Hackmann seine Freigabe aus seinem bis Mitte 2004 laufenden Vertrag erwirkt. Er erklärte daraufhin: "Ja, ich gehe zur Eintracht. Das ist jetzt kein Staatsgeheimnis mehr." Er tritt sein Amt als Vorstandsvorsitzender am 1. Dezember an. Bis dahin wird er noch seine Aufgaben bei der DFL erledigen. Ob er der richtige Mann für die Eintracht ist, kann man natürlich jetzt noch nicht sagen. Solche Prognosen wären - sofern es um Eintracht Frankfurt geht - wirklich unseriös. Aber es ist ja schon eine unglaubliche Leistung, dass wir wieder einen Mann an der Spitze der AG haben...

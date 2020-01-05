@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Nürnberg!
+title: "Eintracht gewinnt in Nürnberg!"
 
 ---
 

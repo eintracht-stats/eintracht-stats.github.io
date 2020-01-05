@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Geldstrafe für die Eintracht und den Club
+title: "Geldstrafe für die Eintracht und den Club"
 
 ---
 

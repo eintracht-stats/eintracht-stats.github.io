@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Amedick
+title: "Eintracht holt Amedick"
 
 ---
 

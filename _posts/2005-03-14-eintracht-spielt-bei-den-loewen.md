@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt bei den Löwen
+title: "Eintracht spielt bei den Löwen"
 
 ---
 

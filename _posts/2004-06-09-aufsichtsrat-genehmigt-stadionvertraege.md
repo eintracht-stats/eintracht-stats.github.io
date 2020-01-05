@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aufsichtsrat genehmigt Stadionverträge
+title: "Aufsichtsrat genehmigt Stadionverträge"
 
 ---
 

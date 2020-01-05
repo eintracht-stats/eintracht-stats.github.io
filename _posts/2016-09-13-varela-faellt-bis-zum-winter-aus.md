@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Varela fällt bis zum Winter aus
+title: "Varela fällt bis zum Winter aus"
 
 ---
 

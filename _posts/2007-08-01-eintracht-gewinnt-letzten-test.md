@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt letzten Test
+title: "Eintracht gewinnt letzten Test"
 
 ---
 

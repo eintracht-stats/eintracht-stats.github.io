@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verhandlung vor dem Sportgericht steht an
+title: "Verhandlung vor dem Sportgericht steht an"
 
 ---
 

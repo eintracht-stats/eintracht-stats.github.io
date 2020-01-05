@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel in Oberstedten
+title: "Testspiel in Oberstedten"
 
 ---
 

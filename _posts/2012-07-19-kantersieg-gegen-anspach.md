@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kantersieg gegen Anspach
+title: "Kantersieg gegen Anspach"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rückschlag für Pröll
+title: "Rückschlag für Pröll"
 
 ---
 

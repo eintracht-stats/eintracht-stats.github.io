@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp-Verhandlungen laufen
+title: "Trapp-Verhandlungen laufen"
 
 ---
 

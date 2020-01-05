@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht stellt Chris ein Ultimatum
-subtitle: Gütliche Einigung fast ausgeschlossen
+title: "Eintracht stellt Chris ein Ultimatum"
+subtitle: "Gütliche Einigung fast ausgeschlossen"
 ---
 
 Auch heute steht natürlich der Fall Chris im Mittelpunkt des Geschehens: Wie berichtet, weigert sich der Brasilianer zur Eintracht zurückzukehren, da ihm sein Vertrag bei der Unterschrift nicht übersetzt worden sei. Eine Version, der sein (mittlerweile wohl ehemaliger) Berater Paulo Hansen widerspricht. Die Eintracht hatte den Vertrag vor dieser Saison per Option bis 2006 verlängert und muss dafür 250.000 Euro an ein brasilianisches Konsortium zahlen. Das ist bisher noch nicht geschehen, da keine Rechnung gestellt wurde. Aber die Eintracht wird zahlen, um endgültig die Transferrechte zu erhalten...

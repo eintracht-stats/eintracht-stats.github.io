@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kovac-Brüder übernehmen!
+title: "Kovac-Brüder übernehmen!"
 
 ---
 

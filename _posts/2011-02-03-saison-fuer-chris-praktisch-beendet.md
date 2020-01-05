@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison für Chris praktisch beendet
+title: "Saison für Chris praktisch beendet"
 
 ---
 

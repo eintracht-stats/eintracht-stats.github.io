@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Copado kommt wohl nicht - Skela geht
-subtitle: Wird Henke neuer Trainer?
+title: "Copado kommt wohl nicht - Skela geht"
+subtitle: "Wird Henke neuer Trainer?"
 ---
 
 Wir müssen uns weiter in Geduld üben: Während die meisten anderen Vereine fleißig an ihren Kadern basteln, steht bei uns als Neuzugang weiterhin nur Arie van Lent fest. Francisco Copado wird wohl nicht schon zu dieser Saison nach Frankfurt kommen. Unterhachings Manager Hartmann will gar nicht erst mit Heribert Bruchhagen verhandeln, da man den Spieler nicht vorzeitig abgeben will. Wie die FR berichtet, gilt Copados Vertrag mit der Eintracht ab 2005 übrigens nur für die erste Liga. Vielleicht kommt er also auch gar nicht...

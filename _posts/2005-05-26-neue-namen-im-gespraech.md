@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Neue Namen im Gespräch
-subtitle: Weissenberger operiert
+title: "Neue Namen im Gespräch"
+subtitle: "Weissenberger operiert"
 ---
 
 Zur Zeit erscheinen fast täglich neue Namen in der Presse, die mit der Eintracht in Verbindung gebracht werden. Neu dabei sind nun die beiden Hamburger Bernardo Romeo und Björn Schlicke. Vom HSV will ich aber erstmal nur Alex Meier, danach kann man weitersehen ;-) Gut sieht es mit der Verpflichtung von Jermaine Jones aus: Bayer Leverkusen lässt den Spieler offenbar ziehen. 

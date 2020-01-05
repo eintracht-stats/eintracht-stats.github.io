@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3 Spieler sind angeschlagen
+title: "3 Spieler sind angeschlagen"
 
 ---
 

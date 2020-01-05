@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gekas wurde vorgestellt
+title: "Gekas wurde vorgestellt"
 
 ---
 

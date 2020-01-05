@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knorpelschaden bei Rode!
+title: "Knorpelschaden bei Rode!"
 
 ---
 

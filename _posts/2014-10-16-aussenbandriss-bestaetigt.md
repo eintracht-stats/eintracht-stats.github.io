@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Außenbandriss bestätigt!
+title: "Außenbandriss bestätigt!"
 
 ---
 

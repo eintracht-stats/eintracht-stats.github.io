@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Personalplanungen gehen weiter
-subtitle: Keller bleibt für weitere zwei Jahre
+title: "Personalplanungen gehen weiter"
+subtitle: "Keller bleibt für weitere zwei Jahre"
 ---
 
 Die Personalplanungen bei der Eintracht gehen natürlich auch in dieserWoche weiter. Jetzt wurde mit Abwehrchef Jens Keller Einigkeit übereinen neuen Zweijahresvertrag erzielt. Für die Position im Sturm istder jetzige Stuttgarter Viorel Ganea ein ernsthafter Kandidat.Weiterhin Interesse besteht auch am Wolfsburger Dorinel Munteanu. Mirist allerdings nicht ganz klar, warum wir auf der Position imoffensiven Mittelfeld einen so alten Spieler brauchen...

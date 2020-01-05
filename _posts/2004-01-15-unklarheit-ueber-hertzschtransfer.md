@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Unklarheit über Hertzsch-Transfer
-subtitle: Neuste Meldungen von den Verletzten
+title: "Unklarheit über Hertzsch-Transfer"
+subtitle: "Neuste Meldungen von den Verletzten"
 ---
 
 Derzeit ist unklar, wie die Chancen auf eine Verpflichtung des Leverkuseners Ingo Hertzsch stehen. Einerseits soll er der Eintracht abgesagt haben, andererseits zitiert der Kicker Hertzsch' Berater dahingehend, dass jeder Transfer mit Aussicht auf Spielpraxis für Hertzsch interessant sei. Weiter abwarten müssen wir auch bei der Stürmersuche. Ioannis Amanatidis soll der neueste Kandidat sein...

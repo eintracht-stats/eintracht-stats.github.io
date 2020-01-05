@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ein Punkt in Wolfsburg
+title: "Ein Punkt in Wolfsburg"
 
 ---
 

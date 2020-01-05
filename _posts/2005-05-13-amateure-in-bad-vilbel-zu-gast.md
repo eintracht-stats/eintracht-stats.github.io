@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure in Bad Vilbel zu Gast
+title: "Amateure in Bad Vilbel zu Gast"
 
 ---
 

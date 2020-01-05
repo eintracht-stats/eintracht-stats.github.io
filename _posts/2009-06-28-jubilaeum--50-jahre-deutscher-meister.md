@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jubiläum- 50 Jahre Deutscher Meister!
+title: "Jubiläum: 50 Jahre Deutscher Meister!"
 
 ---
 

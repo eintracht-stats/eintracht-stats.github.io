@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Später Ausgleich durch Bremen
+title: "Später Ausgleich durch Bremen"
 
 ---
 

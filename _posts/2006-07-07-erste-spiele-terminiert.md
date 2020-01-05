@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Spiele terminiert
+title: "Erste Spiele terminiert"
 
 ---
 

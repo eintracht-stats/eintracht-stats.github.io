@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dopingverfahren eingestellt
+title: "Dopingverfahren eingestellt"
 
 ---
 

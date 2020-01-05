@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kempf geht nach Freiburg
+title: "Kempf geht nach Freiburg"
 
 ---
 

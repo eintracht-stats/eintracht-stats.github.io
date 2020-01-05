@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 schlägt Bad Vilbel
+title: "U23 schlägt Bad Vilbel"
 
 ---
 

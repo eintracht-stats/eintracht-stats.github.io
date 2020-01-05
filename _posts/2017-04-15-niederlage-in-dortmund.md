@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Dortmund
+title: "Niederlage in Dortmund"
 
 ---
 

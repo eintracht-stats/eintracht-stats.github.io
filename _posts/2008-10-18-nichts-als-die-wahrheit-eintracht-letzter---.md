@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nichts als die Wahrheit - Eintracht Letzter...
+title: "Nichts als die Wahrheit - Eintracht Letzter..."
 
 ---
 

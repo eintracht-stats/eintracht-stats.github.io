@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsgespräche mit Veh verschoben
+title: "Vertragsgespräche mit Veh verschoben"
 
 ---
 

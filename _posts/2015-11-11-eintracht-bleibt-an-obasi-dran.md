@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bleibt an Obasi dran
+title: "Eintracht bleibt an Obasi dran"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lenze-Wechsel perfekt
+title: "Lenze-Wechsel perfekt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg und Niederlage in englischer Woche
+title: "Sieg und Niederlage in englischer Woche"
 
 ---
 

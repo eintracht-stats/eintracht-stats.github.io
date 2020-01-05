@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielplan ist da- Eintracht beginnt gegen Hertha!
+title: "Spielplan ist da: Eintracht beginnt gegen Hertha!"
 
 ---
 

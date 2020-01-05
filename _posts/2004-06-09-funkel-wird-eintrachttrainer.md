@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Funkel wird Eintracht-Trainer
-subtitle: Kocian verlässt die Eintracht
+title: "Funkel wird Eintracht-Trainer"
+subtitle: "Kocian verlässt die Eintracht"
 ---
 
 Heute wurde mit Friedhelm Funkel endlich ein neuer Trainer präsentiert. Dass Funkel gegen viele Vorbehalte bei den Fans (und auch bei mir) wird ankämpfen müssen, lasse ich jetzt erstmal außen vor und konzentriere mich auf das Wesentliche: Er erhält einen Einjahresvertrag ohne Optionen auf Verlängerung für eine der beiden Seiten. Das ist schon mal eine gute Sache. Wenn es nicht laufen sollte, würde der Eintracht bei einer etwaigen Trennung am Saisonende kein finanzieller Schaden zugefügt.

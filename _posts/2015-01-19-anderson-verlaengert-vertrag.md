@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anderson verlängert Vertrag
+title: "Anderson verlängert Vertrag"
 
 ---
 

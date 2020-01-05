@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schur vor dem Abgang?
-subtitle: Kritik an Reimann wächst
+title: "Schur vor dem Abgang?"
+subtitle: "Kritik an Reimann wächst"
 ---
 
 Langsam wäre es mal wieder Zeit für ein paar positive Nachrichten, um so etwas wie Aufbruchstimmung zu erzeugen. Doch im Moment sieht es eher düster aus: Von Neuzugängen ist bis auf Arie van Lent nichts zu sehen. Und die Verhandlungen mit den eigenen Spielern stocken. Alexander Schur liegt von der Eintracht nur ein Ein-Jahresvertrag vor. Er soll aber Angebote für besser dotierte und vor allem längere Verträge aus dem In- und Ausland haben. Mainz 05 ist wie bei Christoph Preuß ein heißer Kandidat.

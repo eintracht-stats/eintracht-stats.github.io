@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren Spitzenplatz
+title: "Amateure verlieren Spitzenplatz"
 
 ---
 

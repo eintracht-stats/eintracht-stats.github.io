@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis verletzt
+title: "Amanatidis verletzt"
 
 ---
 

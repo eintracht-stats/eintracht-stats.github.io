@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones trainiert schmerzfrei
-subtitle: Stürmerverpflichtung damit erst einmal auf Eis
+title: "Jones trainiert schmerzfrei"
+subtitle: "Stürmerverpflichtung damit erst einmal auf Eis"
 ---
 
 Auch heute kann ich mich eher kurz fassen: Wie es aussieht, hat sich die Verpflichtung eines neuen Stürmers zunächst einmal erledigt. Willi Reimann erklärte gegenüber dem Kicker, dass nur im Falle eines längerfristigen Ausfalls des Stürmers Handlungsbedarf bestehe. Da Jones das Trainingslager auf Sylt dank seines Spezialschuhs jedoch schmerzfrei hinter sich gebracht hat, scheint er um eine weitere Operation herumzukommen. Es sieht also gut aus...

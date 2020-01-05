@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wer kommt für den Sturm?
-subtitle: Meier fällt wieder aus
+title: "Wer kommt für den Sturm?"
+subtitle: "Meier fällt wieder aus"
 ---
 
 Noch ist unklar, wer der weitere Neuzugang sein wird, der unseren Angriff verstärken soll. Zahlreiche Namen sind im Gespräch: Jan Schlaudraff, ein mir unbekannter Peruaner und seit heute auch der Grieche Evangelos Mantzios. Der spielt bei Panathinaikos Athen und würde etwa 2 Millionen Euro kosten. Warten wir's ab...

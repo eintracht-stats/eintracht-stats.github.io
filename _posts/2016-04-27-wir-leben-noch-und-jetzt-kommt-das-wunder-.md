@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wir leben noch! Und jetzt kommt das Wunder!
+title: "Wir leben noch! Und jetzt kommt das Wunder!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-U23 geht in Bruchköbel unter
+title: "Eintracht-U23 geht in Bruchköbel unter"
 
 ---
 

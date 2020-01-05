@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vier Spiele Sperre für Djakpa
+title: "Vier Spiele Sperre für Djakpa"
 
 ---
 

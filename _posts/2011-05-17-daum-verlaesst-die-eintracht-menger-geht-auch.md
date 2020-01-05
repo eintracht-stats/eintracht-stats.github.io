@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Daum verlässt die Eintracht - Menger geht auch
+title: "Daum verlässt die Eintracht - Menger geht auch"
 
 ---
 

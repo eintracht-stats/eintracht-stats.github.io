@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert Derby gegen Darmstadt
+title: "Eintracht verliert Derby gegen Darmstadt"
 
 ---
 

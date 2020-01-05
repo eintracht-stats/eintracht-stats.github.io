@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt erneut
+title: "Eintracht gewinnt erneut"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp hat verlängert!
+title: "Trapp hat verlängert!"
 
 ---
 

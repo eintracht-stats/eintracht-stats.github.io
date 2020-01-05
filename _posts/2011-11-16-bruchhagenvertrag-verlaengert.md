@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen-Vertrag verlängert
-subtitle: Hellmann rückt auf
+title: "Bruchhagen-Vertrag verlängert"
+subtitle: "Hellmann rückt auf"
 ---
 
 Der Aufsichtsrat der Eintracht Frankfurt Fußball AG hat unter Vorsitz von Professor Dr. Wilhelm Bender am gestrigen Abend in einer außerordentlichen Sitzung den Vorstand für die kommenden Jahre wie folgt bestellt. Der Vertrag des Vorstandsvorsitzenden Heribert Bruchhagen wird bis zum 30.06.2014 verlängert. Herr Bruchhagen ist verantwortlich für die Bereiche Sport, Marketing und Öffentlichkeitsarbeit...

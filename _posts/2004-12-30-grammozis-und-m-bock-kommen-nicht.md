@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Grammozis und M'Bock kommen nicht
-subtitle: Cha nun endgültig ein Frankfurter
+title: "Grammozis und M'Bock kommen nicht"
+subtitle: "Cha nun endgültig ein Frankfurter"
 ---
 
 Kurz vor Jahresende kommt Bewegung in die Transferpolitik der Eintracht. Dimitrios Grammozis, an dem die Eintracht Interesse gezeigt hatte, sagte ab. Zumindest in der Winterpause wird der Lauterer nicht nach Frankfurt wechseln. Den von Zeitungen ins Gespräch gebrachten Patrice M'Bock von den Amateuren des FC Bayern wird die Eintracht ebenfalls nicht verpflichten. Man habe weder mit dem Spieler noch mit dem Verein Kontakt gehabt, so Heribert Bruchhagen. Gleichzeitig bestätigte der Vorstandschef aber, dass ein neuer Spieler mit ins Trainingslager Anfang des Jahres fahren werde. Wir dürfen also gespannt sein...

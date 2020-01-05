@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Friede, Freude, Eierkuchen - oder was?
+title: "Friede, Freude, Eierkuchen - oder was?"
 
 ---
 

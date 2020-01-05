@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Tsoumou-Madza fällt weiter aus
-subtitle: Bruchhagen stellt sich der Mannschaft vor
+title: "Tsoumou-Madza fällt weiter aus"
+subtitle: "Bruchhagen stellt sich der Mannschaft vor"
 ---
 
 Jean Tsoumou-Madza wird auch im nächsten Spiel gegen Hannover 96 fehlen. Es ist nicht davon auszugehen, dass der Kongolese in dieser Woche noch ins Trainings einsteigt. Er leidet weiterhin unter einem Bluterguss im Kniegelenk. Definitiv erst nach der Winterpause kann Andreas Möller wieder ins Geschehen eingreifen. Er muss wegen seines Muskelfaserrisses zwei Wochen pausieren.

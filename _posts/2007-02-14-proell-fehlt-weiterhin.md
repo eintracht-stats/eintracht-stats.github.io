@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll fehlt weiterhin
+title: "Pröll fehlt weiterhin"
 
 ---
 

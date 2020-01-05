@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Toski rückt in Profikader auf
-subtitle: Ein Verteidiger soll noch kommen
+title: "Toski rückt in Profikader auf"
+subtitle: "Ein Verteidiger soll noch kommen"
 ---
 
 Mit Faton Toski hat die Eintracht einen weiteren Spieler aus der eigenen Jugend in den Profikader aufgenommen. Sein Vertrag läuft derzeit bis 2007, soll aber zu besseren Konditionen verlängert werden. Beim Trainingsauftakt dabei sein wird auch der zuletzt ausgeliehene Alexander Huber, dessen Verhandlungen mit Burghausen und Unterhaching wohl gescheitert sind.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Punkte in Hamburg
+title: "Drei Punkte in Hamburg"
 
 ---
 

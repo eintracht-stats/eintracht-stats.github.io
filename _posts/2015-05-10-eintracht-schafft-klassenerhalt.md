@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schafft Klassenerhalt
+title: "Eintracht schafft Klassenerhalt"
 
 ---
 

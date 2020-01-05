@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Inamoto muss gehen
+title: "Inamoto muss gehen"
 
 ---
 

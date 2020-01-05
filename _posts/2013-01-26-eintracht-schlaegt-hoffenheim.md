@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Hoffenheim
+title: "Eintracht schlägt Hoffenheim"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison-Aus für Flum
+title: "Saison-Aus für Flum"
 
 ---
 

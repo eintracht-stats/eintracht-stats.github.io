@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalaus in Dortmund
+title: "Pokalaus in Dortmund"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verwirrung um Gibbs
+title: "Verwirrung um Gibbs"
 
 ---
 

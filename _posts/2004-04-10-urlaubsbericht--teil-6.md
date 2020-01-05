@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Urlaubsbericht- Teil 6
+title: "Urlaubsbericht: Teil 6"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Skela vor dem Absprung?
+title: "Skela vor dem Absprung?"
 
 ---
 

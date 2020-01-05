@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bleibt 13.
+title: "Eintracht bleibt 13."
 
 ---
 

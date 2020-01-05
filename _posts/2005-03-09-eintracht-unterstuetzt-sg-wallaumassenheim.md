@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht unterstützt SG Wallau-Massenheim
+title: "Eintracht unterstützt SG Wallau-Massenheim"
 
 ---
 

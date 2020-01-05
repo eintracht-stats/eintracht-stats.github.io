@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen den VfB
+title: "Niederlage gegen den VfB"
 
 ---
 

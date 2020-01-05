@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Talent fährt mit nach Dortmund
+title: "Eintracht-Talent fährt mit nach Dortmund"
 
 ---
 

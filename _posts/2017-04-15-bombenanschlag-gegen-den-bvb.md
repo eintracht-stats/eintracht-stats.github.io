@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bombenanschlag gegen den BVB
+title: "Bombenanschlag gegen den BVB"
 
 ---
 

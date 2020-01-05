@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dreier-Spieltag im Tippspiel
+title: "Dreier-Spieltag im Tippspiel"
 
 ---
 

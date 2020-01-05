@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel billiger - aber vielleicht doch zu teuer?
+title: "Huggel billiger - aber vielleicht doch zu teuer?"
 
 ---
 

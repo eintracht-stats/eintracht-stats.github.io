@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bendtner-Poker beendet
+title: "Bendtner-Poker beendet"
 
 ---
 

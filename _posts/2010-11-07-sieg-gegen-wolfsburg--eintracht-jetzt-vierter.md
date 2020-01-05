@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Wolfsburg- Eintracht jetzt Vierter!
+title: "Sieg gegen Wolfsburg: Eintracht jetzt Vierter!"
 
 ---
 

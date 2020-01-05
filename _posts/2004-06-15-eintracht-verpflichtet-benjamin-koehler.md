@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Benjamin Köhler
+title: "Eintracht verpflichtet Benjamin Köhler"
 
 ---
 

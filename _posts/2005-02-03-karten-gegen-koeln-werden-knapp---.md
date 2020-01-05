@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Karten gegen Köln werden knapp...
+title: "Karten gegen Köln werden knapp..."
 
 ---
 

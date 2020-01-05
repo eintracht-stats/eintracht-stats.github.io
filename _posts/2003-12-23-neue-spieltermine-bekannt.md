@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Spieltermine bekannt
+title: "Neue Spieltermine bekannt"
 
 ---
 

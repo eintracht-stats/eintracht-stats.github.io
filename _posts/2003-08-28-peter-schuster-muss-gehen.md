@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Peter Schuster muss gehen
-subtitle: Monteros Vertrag aufgelöst
+title: "Peter Schuster muss gehen"
+subtitle: "Monteros Vertrag aufgelöst"
 ---
 
 Die Führungsgremien bei der Eintracht wollen Peter Schuster zum Rücktritt bewegen. Dieser möchte offenbar weitermachen, weshalb sein Rauswurf wohl kurz bevor steht. Über seine peinlichen Auftritte schüttelt nicht nur ganz Fußballdeutschland, sondern auch jedermann bei der Eintracht den Kopf. Erledigt zu sein scheint damit die Verpflichtung von Andreas Möller, der wohl eine Träumerei des Herrn Schuster war. Bernd Hölzenbein hingegen steht jetzt wieder ganz weit vorne auf der Liste der Kandidaten für den Managerposten.

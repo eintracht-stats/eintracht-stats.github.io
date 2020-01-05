@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Limassol
+title: "Sieg gegen Limassol"
 
 ---
 

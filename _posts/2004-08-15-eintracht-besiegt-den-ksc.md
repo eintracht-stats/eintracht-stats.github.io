@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht besiegt den KSC
+title: "Eintracht besiegt den KSC"
 
 ---
 

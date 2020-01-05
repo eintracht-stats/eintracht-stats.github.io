@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos fällt aus
+title: "Kyrgiakos fällt aus"
 
 ---
 

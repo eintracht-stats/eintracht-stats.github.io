@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Beierle, Puljiz und Tsoumou-Madza fit!
-subtitle: Amateure gewinnen in Klein-Karben
+title: "Beierle, Puljiz und Tsoumou-Madza fit!"
+subtitle: "Amateure gewinnen in Klein-Karben"
 ---
 
 Morgen steigt im Waldstadion das richtungsweisende Spiel gegen den 1. FC Köln. Noch ist allerdings unklar, mit welcher Aufstellung Willi Reimann in die Partie gehen wird. Gute Neuigkeiten gibt es bezüglich unserer Verletzten: Sowohl Tsoumou-Madza als auch Markus Beierle und Jurica Puljiz sind soweit wieder hergestellt, dass einem Einsatz nichts im Wege stehen würde.

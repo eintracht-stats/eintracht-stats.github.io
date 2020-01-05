@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Wolfsburg
-subtitle: Amanatidis und Russ verletzt
+title: "Eintracht holt Punkt in Wolfsburg"
+subtitle: "Amanatidis und Russ verletzt"
 ---
 
 Teuer bezahlen musste die Eintracht den Punktgewinn beim VfL Wolfsburg: Marco Russ fällt mit Muskelfaserriss bis zu drei Wochen aus, Ioannis Amanatidis mit Muskelbündelriss wohl noch länger. Der Grieche, Torschütze zum 1:0 beim VfL (vorausgegangen war ein katastrophaler Fehlpass von Josue), wird der Eintracht fehlen...

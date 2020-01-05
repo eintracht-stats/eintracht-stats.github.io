@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht muss Bußgeld zahlen
+title: "Eintracht muss Bußgeld zahlen"
 
 ---
 

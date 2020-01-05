@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht will Geld für neue Spieler auftreiben
-subtitle: Alles läuft auf Bruchhagen hinaus
+title: "Eintracht will Geld für neue Spieler auftreiben"
+subtitle: "Alles läuft auf Bruchhagen hinaus"
 ---
 
 Laut Vorstandsmitglied Heiko Beeck steht die Eintracht mit einer Person, "die der Eintracht emotional verbunden ist", in Kontakt, um über diesen Weg Geld für Verstärkungen in der Winterpause aufzutreiben. Besagte Person soll der Eintracht mit einem Darlehen aushelfen und als Gegenleistung Teile der Transferrechte des möglichen neuen Spielers erhalten. 

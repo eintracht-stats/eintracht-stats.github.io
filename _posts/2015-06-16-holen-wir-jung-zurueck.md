@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Holen wir Jung zurück?
+title: "Holen wir Jung zurück?"
 
 ---
 

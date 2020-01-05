@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DANKE für diese Saison!!!
+title: "DANKE für diese Saison!!!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rückrundenvorbereitung beginnt
+title: "Rückrundenvorbereitung beginnt"
 
 ---
 

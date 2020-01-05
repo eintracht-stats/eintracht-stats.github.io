@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Schalke verlegt
+title: "Eintracht-Schalke verlegt"
 
 ---
 

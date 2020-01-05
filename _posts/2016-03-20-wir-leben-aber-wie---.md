@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wir leben - aber wie...
+title: "Wir leben - aber wie..."
 
 ---
 

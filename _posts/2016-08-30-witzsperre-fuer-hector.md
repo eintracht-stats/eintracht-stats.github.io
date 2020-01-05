@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Witz-Sperre für Hector
+title: "Witz-Sperre für Hector"
 
 ---
 

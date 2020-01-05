@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tor-Gala gegen Hannover
+title: "Tor-Gala gegen Hannover"
 
 ---
 

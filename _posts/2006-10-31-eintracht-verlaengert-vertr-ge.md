@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlängert Verträge
+title: "Eintracht verlängert Verträge"
 
 ---
 

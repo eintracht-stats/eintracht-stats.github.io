@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Dritter in Mannheim
+title: "Eintracht Dritter in Mannheim"
 
 ---
 

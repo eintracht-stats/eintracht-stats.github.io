@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knappe Niederlage zum Auftakt
+title: "Knappe Niederlage zum Auftakt"
 
 ---
 

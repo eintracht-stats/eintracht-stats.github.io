@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kadlec vor dem Absprung
+title: "Kadlec vor dem Absprung"
 
 ---
 

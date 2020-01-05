@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Copado vor Wechsel
-subtitle: Mainz 05 entschuldigt sich
+title: "Copado vor Wechsel"
+subtitle: "Mainz 05 entschuldigt sich"
 ---
 
 Kurz vor Ende der Transferperiode bahnt sich noch ein Spielerwechsel an: Francisco Copado hat um die Freigabe für einen Wechsel zum Regionalligisten TSG Hoffenheim gebeten. Heribert Bruchhagen erklärte, dass der Transfer möglich sei. Bis zum 31. August müssen sich die Vereine nun über die Wechselmodalitäten einig werden.

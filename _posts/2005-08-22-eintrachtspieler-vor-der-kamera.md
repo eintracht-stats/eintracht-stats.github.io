@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Spieler vor der Kamera
+title: "Eintracht-Spieler vor der Kamera"
 
 ---
 

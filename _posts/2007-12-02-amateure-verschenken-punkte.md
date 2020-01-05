@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verschenken Punkte
+title: "Amateure verschenken Punkte"
 
 ---
 

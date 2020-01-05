@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nike-Vertrag verlängert
+title: "Nike-Vertrag verlängert"
 
 ---
 

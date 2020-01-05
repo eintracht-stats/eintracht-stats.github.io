@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pirmin Schwegler muss nicht operiert werden
+title: "Pirmin Schwegler muss nicht operiert werden"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommen Andric und Sichone?
+title: "Kommen Andric und Sichone?"
 
 ---
 

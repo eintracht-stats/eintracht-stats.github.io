@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Erstes Testspiel- Eintracht verliert gegen Wattens!
-subtitle: 
+title: "Erstes Testspiel: Eintracht verliert gegen Wattens!"
+subtitle: "
 ---
 
 Das geht ja gut los... Im ersten Testspiel gegen den österreichischen Drittligisten WGS Swarovski Wattens unterlag die Eintracht mit 1:2. Selim Teber hatte die Mannschaft in der ersten Hälfte in Führung geschossen. Nach dem Wechsel fielen dann zwei Treffer für den unterklassigen Gegner. Bei allem Verständnis für schwere Beine im Trainingslager - so was bringt mich immer auf die Palme!

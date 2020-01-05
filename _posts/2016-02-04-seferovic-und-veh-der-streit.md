@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Seferovic und Veh - der Streit!
+title: "Seferovic und Veh - der Streit!"
 
 ---
 

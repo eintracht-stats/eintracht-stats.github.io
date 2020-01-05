@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punkt für die Moral
+title: "Punkt für die Moral"
 
 ---
 

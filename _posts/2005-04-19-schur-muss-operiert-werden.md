@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur muss operiert werden
+title: "Schur muss operiert werden"
 
 ---
 

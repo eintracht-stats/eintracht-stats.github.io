@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bastelt am Team
+title: "Eintracht bastelt am Team"
 
 ---
 

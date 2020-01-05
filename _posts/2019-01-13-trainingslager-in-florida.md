@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Florida
+title: "Trainingslager in Florida"
 
 ---
 

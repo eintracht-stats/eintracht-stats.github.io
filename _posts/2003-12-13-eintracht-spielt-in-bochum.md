@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt in Bochum
+title: "Eintracht spielt in Bochum"
 
 ---
 

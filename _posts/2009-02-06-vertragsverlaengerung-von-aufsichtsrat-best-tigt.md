@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsverlängerung von Aufsichtsrat bestätigt!
+title: "Vertragsverlängerung von Aufsichtsrat bestätigt!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Körbel wird Berater des Vorstands
+title: "Körbel wird Berater des Vorstands"
 
 ---
 

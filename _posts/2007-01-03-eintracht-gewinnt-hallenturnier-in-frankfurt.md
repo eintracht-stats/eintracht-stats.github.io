@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht gewinnt Hallenturnier in Frankfurt
-subtitle: Finalsieg gegen OFC
+title: "Eintracht gewinnt Hallenturnier in Frankfurt"
+subtitle: "Finalsieg gegen OFC"
 ---
 
 Das erste Gruppenspiel beim Hallenturnier in Frankfurt endete mit einem 1:1 gegen Kickers Offenbach. Huggel konnte die OFC-Führung ausgleichen. Im zweiten Spiel gewann die Eintracht mit 3:1 gegen den MSV Duisburg. Köhler traf zum 1:0. Nach dem zwischenzeitlichen Ausgleich sorgte ein Doppelschlag von Neuzugang Marcel Heller für die Entscheidung. 

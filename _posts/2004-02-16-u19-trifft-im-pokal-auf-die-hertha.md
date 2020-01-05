@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U19 trifft im Pokal auf die Hertha
+title: "U19 trifft im Pokal auf die Hertha"
 
 ---
 

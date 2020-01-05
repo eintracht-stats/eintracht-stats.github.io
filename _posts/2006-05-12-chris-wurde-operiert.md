@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris wurde operiert
+title: "Chris wurde operiert"
 
 ---
 

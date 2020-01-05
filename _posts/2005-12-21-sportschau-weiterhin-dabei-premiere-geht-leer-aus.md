@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sportschau weiterhin dabei - Premiere geht leer aus
+title: "Sportschau weiterhin dabei - Premiere geht leer aus"
 
 ---
 

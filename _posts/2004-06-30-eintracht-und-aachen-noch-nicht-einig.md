@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht und Aachen noch nicht einig
-subtitle: Bindewald geht nach Eschborn
+title: "Eintracht und Aachen noch nicht einig"
+subtitle: "Bindewald geht nach Eschborn"
 ---
 
 Die Verhandlungen zwischen der Eintracht und Alemannia Aachen bezüglich der Ablösesumme für Markus Kreuz haben bisher zu keinem Ergebnis geführt. Die Eintracht fordert offenbar 150.000 Euro. Sollte es zu keiner Einigung kommen, würde Kreuz eben doch weiter bei uns spielen. Aber ich denke, da wird noch eine Lösung gefunden...

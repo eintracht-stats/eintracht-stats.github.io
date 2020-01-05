@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler hofft auf Einsatz
+title: "Schwegler hofft auf Einsatz"
 
 ---
 

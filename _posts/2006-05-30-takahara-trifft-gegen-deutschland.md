@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara trifft gegen Deutschland
+title: "Takahara trifft gegen Deutschland"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Das Comeback in Europa - Brøndby kommt ins Waldstadion
+title: "Das Comeback in Europa - Brøndby kommt ins Waldstadion"
 
 ---
 

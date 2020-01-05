@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröckl verabschiedet sich
+title: "Pröckl verabschiedet sich"
 
 ---
 

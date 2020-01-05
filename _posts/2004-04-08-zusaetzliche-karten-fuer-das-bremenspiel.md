@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zusätzliche Karten für das Bremen-Spiel
+title: "Zusätzliche Karten für das Bremen-Spiel"
 
 ---
 

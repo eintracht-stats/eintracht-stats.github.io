@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hängepartie vorbei- Peter Schuster ist neuer Vorstand
-subtitle: Becker folgt Neppe im Aufsichtsrat
+title: "Hängepartie vorbei: Peter Schuster ist neuer Vorstand"
+subtitle: "Becker folgt Neppe im Aufsichtsrat"
 ---
 
 Die Spatzen pfiffen es heute bereits von den Dächern - jetzt steht es fest: Dr. Peter Schuster, Wirtschaftsfachmann aus dem Hause Infraserv, wird neuer Vorstandsvorsitzender der Eintracht. Er schließt damit die Lücke, die nach dem Ausscheiden von Volker Sparmann entstanden war. Neuer Aufsichtsratsvorsitzender wird, wie ebenfalls erwartet, Herbert Becker von Fraport. Weitere Informationen folgen morgen...

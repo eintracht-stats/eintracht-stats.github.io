@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher ist neuer Kapitän
+title: "Spycher ist neuer Kapitän"
 
 ---
 

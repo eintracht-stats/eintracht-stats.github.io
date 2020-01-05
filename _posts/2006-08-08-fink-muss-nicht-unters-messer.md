@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fink muss nicht unters Messer
+title: "Fink muss nicht unters Messer"
 
 ---
 

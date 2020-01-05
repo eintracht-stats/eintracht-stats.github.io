@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verpatzen Saisonstart
+title: "Amateure verpatzen Saisonstart"
 
 ---
 

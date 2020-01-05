@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punktgewinn im Norden
+title: "Punktgewinn im Norden"
 
 ---
 

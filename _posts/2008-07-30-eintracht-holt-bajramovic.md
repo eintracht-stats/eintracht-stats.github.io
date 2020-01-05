@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Bajramovic
+title: "Eintracht holt Bajramovic"
 
 ---
 

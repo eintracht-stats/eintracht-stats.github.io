@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit torlosem Unentschieden
+title: "Eintracht mit torlosem Unentschieden"
 
 ---
 

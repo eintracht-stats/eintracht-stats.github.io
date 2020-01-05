@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones bestätigt Wechsel
+title: "Jones bestätigt Wechsel"
 
 ---
 

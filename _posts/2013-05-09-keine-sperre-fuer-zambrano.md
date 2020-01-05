@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Sperre für Zambrano
+title: "Keine Sperre für Zambrano"
 
 ---
 

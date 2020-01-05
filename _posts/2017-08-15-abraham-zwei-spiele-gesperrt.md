@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abraham zwei Spiele gesperrt
+title: "Abraham zwei Spiele gesperrt"
 
 ---
 

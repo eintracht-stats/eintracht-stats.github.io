@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis dreht den Spieß um
+title: "Amanatidis dreht den Spieß um"
 
 ---
 

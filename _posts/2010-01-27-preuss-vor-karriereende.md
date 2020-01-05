@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß vor Karriereende
+title: "Preuß vor Karriereende"
 
 ---
 

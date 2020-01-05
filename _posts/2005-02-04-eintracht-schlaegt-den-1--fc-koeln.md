@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt den 1. FC Köln
+title: "Eintracht schlägt den 1. FC Köln"
 
 ---
 

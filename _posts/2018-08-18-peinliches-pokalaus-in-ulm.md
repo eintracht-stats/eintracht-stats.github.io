@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Peinliches Pokalaus in Ulm
+title: "Peinliches Pokalaus in Ulm"
 
 ---
 

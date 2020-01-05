@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Freiburg!
+title: "Eintracht gewinnt in Freiburg!"
 
 ---
 

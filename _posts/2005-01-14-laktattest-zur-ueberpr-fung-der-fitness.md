@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Laktat-Test zur Überprüfung der Fitness
+title: "Laktat-Test zur Überprüfung der Fitness"
 
 ---
 

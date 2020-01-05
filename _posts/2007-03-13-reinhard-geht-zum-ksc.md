@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reinhard geht zum KSC
+title: "Reinhard geht zum KSC"
 
 ---
 

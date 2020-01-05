@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frankfurt empfängt seine Helden
+title: "Frankfurt empfängt seine Helden"
 
 ---
 

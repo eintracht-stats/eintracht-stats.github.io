@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht legt Berufung ein
+title: "Eintracht legt Berufung ein"
 
 ---
 

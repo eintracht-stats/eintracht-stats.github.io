@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Neue Gerüchte- Cha und Christ im Gespräch/Bleibt Sparmann?
-subtitle: Enttäuschung über Spielplan
+title: "Neue Gerüchte: Cha und Christ im Gespräch/Bleibt Sparmann?"
+subtitle: "Enttäuschung über Spielplan"
 ---
 
 Bei der Eintracht gehen die Personalplanungen für die neue Saison weiter. Großes Interesse hat die Eintracht am albanischen Abwehrspieler Geri Cipi von AA Gent. Hier versucht Volker Sparmann jedoch die Ablösesumme herunterzuhandeln. Außerdem möchte man wohl Du-Ri Cha verpflichten, der schon vor der letzten Saison im Gespräch war, sich dann aber für Arminia Bielefeld entschied. Während das Interesse am Cottbuser Reghecampf sowie an Mike Barten wohl verflacht ist (wenn es denn überhaupt vorhanden war), buhlt die Eintracht nun auch um den Mainzer Verteidiger Sven Christ. Der Schweizer Nationalspieler möchte jedoch noch in dieser Woche eine Entscheidung.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krombacher neuer Sponsor?
+title: "Krombacher neuer Sponsor?"
 
 ---
 

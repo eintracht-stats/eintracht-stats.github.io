@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris nach Wolfsburg?
+title: "Chris nach Wolfsburg?"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saisonrückblick 2010/2011 - der unnötigste Abstieg aller Zeiten
+title: "Saisonrückblick 2010/2011 - der unnötigste Abstieg aller Zeiten"
 
 ---
 

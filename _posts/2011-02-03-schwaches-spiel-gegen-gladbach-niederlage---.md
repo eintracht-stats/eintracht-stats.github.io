@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwaches Spiel gegen Gladbach - Niederlage...
+title: "Schwaches Spiel gegen Gladbach - Niederlage..."
 
 ---
 

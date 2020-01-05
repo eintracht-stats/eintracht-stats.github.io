@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rangnick sagt der Eintracht ab
+title: "Rangnick sagt der Eintracht ab"
 
 ---
 

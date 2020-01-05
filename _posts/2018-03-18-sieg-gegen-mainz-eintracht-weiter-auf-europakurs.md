@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Mainz - Eintracht weiter auf Europakurs
+title: "Sieg gegen Mainz - Eintracht weiter auf Europakurs"
 
 ---
 

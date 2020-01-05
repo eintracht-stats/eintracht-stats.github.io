@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Geldstrafe für die Eintracht
+title: "Geldstrafe für die Eintracht"
 
 ---
 

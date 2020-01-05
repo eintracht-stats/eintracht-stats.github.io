@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielverlegung- Hoffenheim erst Samstags
+title: "Spielverlegung: Hoffenheim erst Samstags"
 
 ---
 

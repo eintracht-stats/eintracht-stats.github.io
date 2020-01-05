@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffmann bekommt Geldstrafe
+title: "Hoffmann bekommt Geldstrafe"
 
 ---
 

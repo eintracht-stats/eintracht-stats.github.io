@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Sieg!
+title: "Endlich ein Sieg!"
 
 ---
 

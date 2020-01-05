@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stendera verlängert
+title: "Stendera verlängert"
 
 ---
 

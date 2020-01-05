@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rode ist zurück - kommt auch Boateng?
+title: "Rode ist zurück - kommt auch Boateng?"
 
 ---
 

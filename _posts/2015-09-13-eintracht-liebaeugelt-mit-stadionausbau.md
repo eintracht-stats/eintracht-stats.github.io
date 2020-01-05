@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht liebäugelt mit Stadionausbau
+title: "Eintracht liebäugelt mit Stadionausbau"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lexa verletzt sich im Training
+title: "Lexa verletzt sich im Training"
 
 ---
 

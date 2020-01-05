@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen Showdown in Bremen
+title: "Morgen Showdown in Bremen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffmann steht vor Wechsel
+title: "Hoffmann steht vor Wechsel"
 
 ---
 

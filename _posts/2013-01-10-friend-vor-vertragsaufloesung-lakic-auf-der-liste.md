@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Friend vor Vertragsauflösung - Lakic auf der Liste
+title: "Friend vor Vertragsauflösung - Lakic auf der Liste"
 
 ---
 

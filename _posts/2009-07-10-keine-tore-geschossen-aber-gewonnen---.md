@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Tore geschossen - aber gewonnen...
+title: "Keine Tore geschossen - aber gewonnen..."
 
 ---
 

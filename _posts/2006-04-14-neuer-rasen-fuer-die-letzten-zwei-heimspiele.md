@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Rasen für die letzten zwei Heimspiele
+title: "Neuer Rasen für die letzten zwei Heimspiele"
 
 ---
 

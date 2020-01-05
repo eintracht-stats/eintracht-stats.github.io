@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert erneut
+title: "Eintracht verliert erneut"
 
 ---
 

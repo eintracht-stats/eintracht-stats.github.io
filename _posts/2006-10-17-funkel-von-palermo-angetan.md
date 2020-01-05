@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel von Palermo angetan
+title: "Funkel von Palermo angetan"
 
 ---
 

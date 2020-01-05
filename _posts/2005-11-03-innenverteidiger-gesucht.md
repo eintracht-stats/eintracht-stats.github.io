@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Innenverteidiger gesucht
+title: "Innenverteidiger gesucht"
 
 ---
 

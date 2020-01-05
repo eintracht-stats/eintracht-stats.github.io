@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletzungsmisere geht weiter
+title: "Verletzungsmisere geht weiter"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rummenigge in typischer Bayern-Manier
+title: "Rummenigge in typischer Bayern-Manier"
 
 ---
 

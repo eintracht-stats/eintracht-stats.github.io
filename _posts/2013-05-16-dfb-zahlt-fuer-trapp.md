@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB zahlt für Trapp
+title: "DFB zahlt für Trapp"
 
 ---
 

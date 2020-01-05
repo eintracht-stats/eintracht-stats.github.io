@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Viel Lob für Möller
-subtitle: Eintracht im Aufwind!?
+title: "Viel Lob für Möller"
+subtitle: "Eintracht im Aufwind!?"
 ---
 
 Am Tag nach dem ersten Bundesliga-Sieg unserer Eintracht sind die Zeitungen voll des Lobes über Andreas Möller. Der Rückkehrer machte sicherlich kein großes Spiel, konnte aber dennoch überzeugen. Und allein seine Anwesenheit auf dem Platz schien die Mannschaft schon zu beflügeln. Der erste Teil des "Experiments Möller" ist also geglückt. Aber es wird sich zeigen müssen, ob der Aufwärtstrend der letzten Wochen anhält...

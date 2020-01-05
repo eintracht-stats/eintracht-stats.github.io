@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure straucheln erneut
+title: "Amateure straucheln erneut"
 
 ---
 

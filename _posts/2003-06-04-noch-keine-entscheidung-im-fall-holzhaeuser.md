@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch keine Entscheidung im Fall Holzhäuser
-subtitle: FFH plant Freundschaftsspiel SGE-OFC!
+title: "Noch keine Entscheidung im Fall Holzhäuser"
+subtitle: "FFH plant Freundschaftsspiel SGE-OFC!"
 ---
 
 Weiterhin ist nicht klar, ob Wolfgang Holzhäuser neuer Vorstandsvorsitzender bei der Eintracht wird. Die Eintracht ist sich mit dem Leverkusener Finanzexperten zwar offenbar einig geworden. Aber der Sportbeauftragte von Bayer, Meinolf Sprink, gab an, dass Holzhäuser noch gar nicht um die Auflösung seines Vertrages gebeten habe. Gleichzeitig deutete er an, dass er im Falles des Falles wohl die Freigabe erhalten werde. Wir müssen aber erstmal weiter Geduld haben...

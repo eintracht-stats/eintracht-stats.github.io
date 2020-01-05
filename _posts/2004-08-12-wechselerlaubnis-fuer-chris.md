@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wechselerlaubnis für Chris?
+title: "Wechselerlaubnis für Chris?"
 
 ---
 

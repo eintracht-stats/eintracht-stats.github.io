@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Preuß hat Bandscheibenvorfall
-subtitle: Chris und Jones fallen auch aus
+title: "Preuß hat Bandscheibenvorfall"
+subtitle: "Chris und Jones fallen auch aus"
 ---
 
 Die Befürchtungen haben sich nun doch bestätigt: Christoph Preuß hat einen Bandscheibenvorfall. Im schlimmsten Fall droht dem Mittelfeldspieler eine Operation. Eine längere Pause dürfte ihm allemal bevorstehen. Damit sind die Personalsorgen vor dem Spiel in Köln noch einmal verschärft worden. Zwar steht einem Einsatz von Marko Rehmer nichts im Wege. Doch neben dem gesperrten Vasoski fehlen Chris und Jones. Die Schwellung an Chris' Fuß ist zwar zurückgegangen. Ein Einsatz ist aber dennoch frühestens in einer Woche gegen Bremen möglich...

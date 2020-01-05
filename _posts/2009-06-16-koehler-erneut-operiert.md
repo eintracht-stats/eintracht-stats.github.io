@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Köhler erneut operiert
-subtitle: Skibbe in Südamerika unterwegs
+title: "Köhler erneut operiert"
+subtitle: "Skibbe in Südamerika unterwegs"
 ---
 
 Benjamin Köhler ist bereits vor zwei Wochen erneut am Knie, genauer gesagt am Meniskus, operiert worden. Um wieder auf die Beine zu kommen, beginnt der Mittelfeldspieler bereits am kommenden Montag gemeinsam mit Fitnesstrainer Fabacher mit Laufeinheiten.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Demidov geht nach Spanien - Russ kommt
+title: "Demidov geht nach Spanien - Russ kommt"
 
 ---
 

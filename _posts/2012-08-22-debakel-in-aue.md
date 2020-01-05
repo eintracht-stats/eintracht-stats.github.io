@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Debakel in Aue
+title: "Debakel in Aue"
 
 ---
 

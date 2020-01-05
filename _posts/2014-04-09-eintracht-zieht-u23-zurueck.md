@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zieht U23 zurück
+title: "Eintracht zieht U23 zurück"
 
 ---
 

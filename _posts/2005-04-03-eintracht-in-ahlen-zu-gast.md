@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Ahlen zu Gast
+title: "Eintracht in Ahlen zu Gast"
 
 ---
 

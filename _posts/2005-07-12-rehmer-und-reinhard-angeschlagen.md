@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rehmer und Reinhard angeschlagen
+title: "Rehmer und Reinhard angeschlagen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ehre für Alfred Pfaff
+title: "Ehre für Alfred Pfaff"
 
 ---
 

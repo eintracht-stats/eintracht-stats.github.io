@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klage vor Verwaltungsgericht läuft
+title: "Klage vor Verwaltungsgericht läuft"
 
 ---
 

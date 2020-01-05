@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht beginnt Trainingslager
+title: "Eintracht beginnt Trainingslager"
 
 ---
 

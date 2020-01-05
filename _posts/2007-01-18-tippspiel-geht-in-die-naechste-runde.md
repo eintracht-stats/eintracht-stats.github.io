@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel geht in die nächste Runde
+title: "Tippspiel geht in die nächste Runde"
 
 ---
 

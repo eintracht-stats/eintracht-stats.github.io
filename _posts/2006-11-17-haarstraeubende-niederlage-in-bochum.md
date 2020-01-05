@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Haarsträubende Niederlage in Bochum
-subtitle: Eintracht bricht nach Platzverweis auseinander
+title: "Haarsträubende Niederlage in Bochum"
+subtitle: "Eintracht bricht nach Platzverweis auseinander"
 ---
 
 Mir fehlen die Worte... Die Eintracht hat die Partie beim VfL Bochum mit 3:4 verloren. Dabei begann das Spiel einfach nur traumhaft: Albert Streit verwandelte in der ersten Spielminute einen Freistoß zum 1:0. In der 5. verwertete er dann sogar noch einen Meier-Pass zum 2:0. Die Wende bekam das Spiel in der 28. Minute...

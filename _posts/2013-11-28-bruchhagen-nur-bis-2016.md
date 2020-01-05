@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen nur bis 2016
+title: "Bruchhagen nur bis 2016"
 
 ---
 

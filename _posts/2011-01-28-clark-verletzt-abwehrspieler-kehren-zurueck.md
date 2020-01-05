@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Clark verletzt - Abwehrspieler kehren zurück
+title: "Clark verletzt - Abwehrspieler kehren zurück"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nicht Fisch, nicht Fleisch- Wieder nur ein Punkt
-subtitle: Zwei Platzverweise im Derby
+title: "Nicht Fisch, nicht Fleisch: Wieder nur ein Punkt"
+subtitle: "Zwei Platzverweise im Derby"
 ---
 
 Was soll man davon halten? Im dritten Spiel holte die Eintracht das dritte Unentschieden. Im Derby bei Mainz 05 gab es am Ende ein 1:1. Michael Thurk, der über 90 Minuten ausgepfiffen wurde, blieb blass. Für das Führungstor sorgte nach 25 Spielminuten Ioannis Amanatidis nach einer Flanke von Albert Streit.

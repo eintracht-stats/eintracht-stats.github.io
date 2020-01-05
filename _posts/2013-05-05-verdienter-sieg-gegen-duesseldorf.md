@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verdienter Sieg gegen Düsseldorf
+title: "Verdienter Sieg gegen Düsseldorf"
 
 ---
 

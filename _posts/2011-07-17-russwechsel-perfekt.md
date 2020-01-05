@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Russ-Wechsel perfekt
+title: "Russ-Wechsel perfekt"
 
 ---
 

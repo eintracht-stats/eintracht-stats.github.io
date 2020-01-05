@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt gegen Haibach
+title: "Eintracht gewinnt gegen Haibach"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Sieg- 3:0 gegen Sevilla
+title: "Endlich ein Sieg: 3:0 gegen Sevilla"
 
 ---
 

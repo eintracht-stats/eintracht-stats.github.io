@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertrag unterschrieben- Franz kommt
+title: "Vertrag unterschrieben: Franz kommt"
 
 ---
 

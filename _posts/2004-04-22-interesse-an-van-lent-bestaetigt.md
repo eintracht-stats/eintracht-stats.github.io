@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an van Lent bestätigt
+title: "Interesse an van Lent bestätigt"
 
 ---
 

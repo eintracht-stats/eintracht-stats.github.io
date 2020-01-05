@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel muss Geldstrafe zahlen
+title: "Funkel muss Geldstrafe zahlen"
 
 ---
 

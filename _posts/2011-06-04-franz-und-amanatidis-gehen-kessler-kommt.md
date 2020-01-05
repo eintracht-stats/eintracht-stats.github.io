@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Franz und Amanatidis gehen - Kessler kommt
+title: "Franz und Amanatidis gehen - Kessler kommt"
 
 ---
 

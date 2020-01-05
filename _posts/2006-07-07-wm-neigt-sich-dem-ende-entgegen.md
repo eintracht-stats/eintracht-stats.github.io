@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WM neigt sich dem Ende entgegen
+title: "WM neigt sich dem Ende entgegen"
 
 ---
 

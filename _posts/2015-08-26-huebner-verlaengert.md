@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hübner verlängert
+title: "Hübner verlängert"
 
 ---
 

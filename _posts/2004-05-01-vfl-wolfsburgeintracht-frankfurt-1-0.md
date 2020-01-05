@@ -1,7 +1,7 @@
 ---
 layout: post
-title: VfL Wolfsburg-Eintracht Frankfurt 1-0
-subtitle: Der Abstieg rückt näher...
+title: "VfL Wolfsburg-Eintracht Frankfurt 1:0"
+subtitle: "Der Abstieg rückt näher..."
 ---
 
 Die Eintracht bewegt sich immer weiter in Richtung 2. Liga. Nach dem 0:1 in Wolfsburg trennen die Eintracht nun schon drei Punkte vom rettenden Ufer. Jetzt hilft wirklich nur noch ein Wunder...

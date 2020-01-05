@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Zwei wichtige Gerichtstermine in dieser Woche
-subtitle: Bislang keine weiteren Neuzugänge
+title: "Zwei wichtige Gerichtstermine in dieser Woche"
+subtitle: "Bislang keine weiteren Neuzugänge"
 ---
 
 In dieser Woche stehen zwei Gerichtsverhandlungen an: Morgen geht es vor dem Arbeitsgericht um 120.000 Euro, die Willi Reimann einfordert. In seinem Vertrag stand offenbar eine Nichtabstiegsprämie und die fordert er nun ein - für die abgelaufene Saison. Die Eintracht sei schließlich nicht abgestiegen. Offenbar hatte Volker Sparmann, der den Vertrag seinerzeit aushandelte, versäumt die Prämie auf die 1. Liga zu beschränken. Dazu sage ich jetzt mal nix...

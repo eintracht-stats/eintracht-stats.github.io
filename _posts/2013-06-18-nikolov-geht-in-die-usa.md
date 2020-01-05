@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov geht in die USA!
+title: "Nikolov geht in die USA!"
 
 ---
 

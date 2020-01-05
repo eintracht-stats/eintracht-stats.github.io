@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov verletzt - Fährmann im Tor
+title: "Nikolov verletzt - Fährmann im Tor"
 
 ---
 

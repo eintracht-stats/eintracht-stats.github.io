@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Suche nach Abwehrspielern läuft
-subtitle: Keller, Kreuz und Pröll haben Vorbehalte gegenüber Funkel
+title: "Suche nach Abwehrspielern läuft"
+subtitle: "Keller, Kreuz und Pröll haben Vorbehalte gegenüber Funkel"
 ---
 
 Friedhelm Funkel sieht die Mannschaft in der Offensive bereits sehr gut besetzt. Markus Weissenberger, einen Tag vor der Verpflichtung des neuen Trainers geholt, bezeichnet er sogar als "erstklassige Verpflichtung". Funkel wird jetzt gemeinsam mit Heribert Bruchhagen die Suche nach neuen Abwehrspielern forcieren. Namen von Spielern, die es denn werden könnten, kursieren derzeit noch nicht. Vom 20. bis 25. Juni werden Funkel und Bruchhagen die EM in Portugal besuchen - dort allerdings nicht nach Verstärkungen Ausschau halten, da sie ohnehin nicht bezahlbar wären.

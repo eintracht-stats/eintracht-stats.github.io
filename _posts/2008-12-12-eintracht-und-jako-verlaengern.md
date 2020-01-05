@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht und Jako verlängern
+title: "Eintracht und Jako verlängern"
 
 ---
 

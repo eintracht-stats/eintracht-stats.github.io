@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris leicht angeschlagen
+title: "Chris leicht angeschlagen"
 
 ---
 

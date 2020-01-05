@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im WM-Dilemma
+title: "Eintracht im WM-Dilemma"
 
 ---
 

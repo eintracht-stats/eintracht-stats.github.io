@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Gehalt von Jones ist letzte Hürde
-subtitle: Meier immer noch nicht sicher in Frankfurt
+title: "Gehalt von Jones ist letzte Hürde"
+subtitle: "Meier immer noch nicht sicher in Frankfurt"
 ---
 
 Die Eintracht hat sich mit Bayer Leverkusen über die Ablösesumme für Jermaine Jones verständigt. Nun steht noch die Einigung mit dem Spieler aus. Jones erklärte, die Eintracht müsse ihm noch ein Stück entgegenkommen. Nach der Rückkehr aus seinem Urlaub hofft er auf eine Entscheidung.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amerell wettert gegen die Eintracht
+title: "Amerell wettert gegen die Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Börse wird Ärmelsponsor
+title: "Börse wird Ärmelsponsor"
 
 ---
 

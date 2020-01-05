@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Van Lent wieder dabei - Zimmermann rückt für Nikolov auf die Bank
+title: "Van Lent wieder dabei - Zimmermann rückt für Nikolov auf die Bank"
 
 ---
 

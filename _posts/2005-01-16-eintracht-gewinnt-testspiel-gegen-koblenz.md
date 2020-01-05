@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel gegen Koblenz
+title: "Eintracht gewinnt Testspiel gegen Koblenz"
 
 ---
 

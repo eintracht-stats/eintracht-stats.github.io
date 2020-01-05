@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Seferovic in der Verlosung
+title: "Seferovic in der Verlosung"
 
 ---
 

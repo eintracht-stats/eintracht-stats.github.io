@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht muss zahlen
+title: "Eintracht muss zahlen"
 
 ---
 

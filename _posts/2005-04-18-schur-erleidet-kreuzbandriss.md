@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur erleidet Kreuzbandriss
+title: "Schur erleidet Kreuzbandriss"
 
 ---
 

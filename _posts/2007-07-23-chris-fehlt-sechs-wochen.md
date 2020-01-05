@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris fehlt sechs Wochen
+title: "Chris fehlt sechs Wochen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 16-0 gegen Weyer bei Thurk-Debüt
+title: "16:0 gegen Weyer bei Thurk-Debüt"
 
 ---
 

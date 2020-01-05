@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel bei Waldhof Mannheim
+title: "Eintracht gewinnt Testspiel bei Waldhof Mannheim"
 
 ---
 

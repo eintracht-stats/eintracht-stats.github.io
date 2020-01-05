@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ermittlungen gegen Barkok und Boateng
+title: "Ermittlungen gegen Barkok und Boateng"
 
 ---
 

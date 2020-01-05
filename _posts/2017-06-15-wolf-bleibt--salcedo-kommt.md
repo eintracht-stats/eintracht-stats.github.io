@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wolf bleibt, Salcedo kommt
+title: "Wolf bleibt, Salcedo kommt"
 
 ---
 

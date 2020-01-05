@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht rehabilitiert sich gegen Bochum
+title: "Eintracht rehabilitiert sich gegen Bochum"
 
 ---
 

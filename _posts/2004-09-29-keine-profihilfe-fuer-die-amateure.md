@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Profi-Hilfe für die Amateure
+title: "Keine Profi-Hilfe für die Amateure"
 
 ---
 

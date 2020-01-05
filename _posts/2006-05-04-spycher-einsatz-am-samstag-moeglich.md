@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher Einsatz am Samstag möglich
+title: "Spycher Einsatz am Samstag möglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Rebic gegen Freiburg
+title: "Ohne Rebic gegen Freiburg"
 
 ---
 

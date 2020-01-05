@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris erhält Spielberechtigung
+title: "Chris erhält Spielberechtigung"
 
 ---
 

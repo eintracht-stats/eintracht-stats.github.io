@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Verhandlung im Fall Reimann am Mittwoch
-subtitle: Es drohen drastische Strafen
+title: "Verhandlung im Fall Reimann am Mittwoch"
+subtitle: "Es drohen drastische Strafen"
 ---
 
 Das Spiel in Dortmund ist an sich schon fast vergessen. Nur die "Affäre Reimann" bestimmt weiter die Schlagzeilen. Der Trainer hatte nach der gelb-roten Karte für Henning Bürger seine Coaching-Zone verlassen und den 4. Schiedsrichter, der sich ihm in den Weg stellte, zweimal weggestoßen. Daraufhin wurde er auf die Tribüne verwiesen. Nach dem Spiel hatte er sich wenig reumütig gezeigt und sich mit Matthias Sammer verglichen ("HB-Männchen, das die Linienrichter pausenlos attackiert") und sich dagegen als Waisenknabe bezeichnet und erklärt, er müsste dafür noch eine Medaille bekommen...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainerteam ist komplett
+title: "Trainerteam ist komplett"
 
 ---
 

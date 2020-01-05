@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Copado- Eintracht interessant
-subtitle: Interesse an Weigelt bekundet
+title: "Copado: Eintracht interessant"
+subtitle: "Interesse an Weigelt bekundet"
 ---
 
 Gegenüber der FR bestätigte Francisco Copado, dass die Eintracht für ihn ein interessanter Verein wäre. Gespräche mit Heribert Bruchhagen sollen auch schon stattgefunden haben. Er würde geschätzte 300.000 Euro Ablösesumme kosten. Bruchhagen erklärte jedoch (nicht ausdrücklich auf Copado bezogen) auch in "geringe Ablösesummen" investieren zu wollen.

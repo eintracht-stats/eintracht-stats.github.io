@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aufsichtsrat stellt den Jahresabschluss zum 31.12.2009 fest und genehmigt die Lizenzierungsplanung 2010/11
+title: "Aufsichtsrat stellt den Jahresabschluss zum 31.12.2009 fest und genehmigt die Lizenzierungsplanung 2010/11"
 
 ---
 

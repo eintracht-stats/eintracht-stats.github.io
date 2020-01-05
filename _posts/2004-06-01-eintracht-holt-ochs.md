@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Ochs
+title: "Eintracht holt Ochs"
 
 ---
 

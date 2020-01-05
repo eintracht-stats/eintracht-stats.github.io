@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gerüchte um Pröll und Jones
+title: "Gerüchte um Pröll und Jones"
 
 ---
 

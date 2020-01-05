@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Ausstiegsklausel bei Meier
+title: "Keine Ausstiegsklausel bei Meier"
 
 ---
 

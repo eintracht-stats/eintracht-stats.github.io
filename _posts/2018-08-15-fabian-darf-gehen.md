@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fabian darf gehen
+title: "Fabian darf gehen"
 
 ---
 

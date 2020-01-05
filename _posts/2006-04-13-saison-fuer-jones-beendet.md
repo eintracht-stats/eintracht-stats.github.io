@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison für Jones beendet
+title: "Saison für Jones beendet"
 
 ---
 

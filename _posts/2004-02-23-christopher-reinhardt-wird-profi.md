@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Christopher Reinhardt wird Profi
+title: "Christopher Reinhardt wird Profi"
 
 ---
 

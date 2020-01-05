@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Montag ist Trainingsauftakt
-subtitle: Testspiele sind schon terminiert
+title: "Montag ist Trainingsauftakt"
+subtitle: "Testspiele sind schon terminiert"
 ---
 
 Auch heute ist wieder nichts rund um die Eintracht passiert. Das wird sich vermutlich auch erst am Montag ändern: Dann bittet Willi Reimann seine Spieler zum ersten Training nach der Winterpause. Am 07. Januar folgt ein Testspiel bei Wormatia Worms. Zwei Tage später steht das Hallenturnier in Hannover auf dem Programm...

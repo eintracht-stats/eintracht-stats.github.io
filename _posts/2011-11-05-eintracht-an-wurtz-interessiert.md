@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Wurtz interessiert?
+title: "Eintracht an Wurtz interessiert?"
 
 ---
 

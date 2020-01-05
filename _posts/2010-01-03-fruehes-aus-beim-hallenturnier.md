@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frühes Aus beim Hallenturnier
+title: "Frühes Aus beim Hallenturnier"
 
 ---
 

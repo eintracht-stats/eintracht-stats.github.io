@@ -1,6 +1,6 @@
 ---
 layout: post
-title: HINWEIS ZUM TIPPSPIEL
+title: "HINWEIS ZUM TIPPSPIEL"
 
 ---
 

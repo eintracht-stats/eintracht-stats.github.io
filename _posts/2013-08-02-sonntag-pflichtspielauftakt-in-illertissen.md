@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sonntag Pflichtspielauftakt in Illertissen
+title: "Sonntag Pflichtspielauftakt in Illertissen"
 
 ---
 

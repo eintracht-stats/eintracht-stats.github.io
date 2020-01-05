@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt vs. Alemannia Aachen 1-0
+title: "Eintracht Frankfurt vs. Alemannia Aachen 1:0"
 
 ---
 

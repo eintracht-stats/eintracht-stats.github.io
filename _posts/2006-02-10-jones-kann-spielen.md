@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones kann spielen
-subtitle: Funkel vor Verlängerung
+title: "Jones kann spielen"
+subtitle: "Funkel vor Verlängerung"
 ---
 
 Jermaine Jones kann morgen im  Heimspiel gegen Hannover 96 auflaufen. Er musste in Nürnberg nach 70 Minuten ausgewechselt werden. Der zunächst befürchtete Rippenbruch bewahrheitete sich allerdings nicht. Es handelt sich "nur" um eine schmerzhafte Rippenprellung. Und Schmerzen können unseren Kapitän ja bekanntlich nicht aufhalten...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klatsche für die Eintracht
+title: "Klatsche für die Eintracht"
 
 ---
 

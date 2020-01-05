@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frohes neues Jahr!
+title: "Frohes neues Jahr!"
 
 ---
 

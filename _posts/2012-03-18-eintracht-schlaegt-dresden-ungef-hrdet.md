@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Dresden ungefährdet
+title: "Eintracht schlägt Dresden ungefährdet"
 
 ---
 

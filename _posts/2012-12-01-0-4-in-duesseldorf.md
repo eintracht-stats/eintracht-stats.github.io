@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0-4 in Düsseldorf
+title: "0:4 in Düsseldorf"
 
 ---
 

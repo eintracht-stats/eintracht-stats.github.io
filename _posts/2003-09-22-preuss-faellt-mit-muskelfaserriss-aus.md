@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß fällt mit Muskelfaserriss aus!
+title: "Preuß fällt mit Muskelfaserriss aus!"
 
 ---
 

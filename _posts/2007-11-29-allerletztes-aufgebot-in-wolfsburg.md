@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Allerletztes Aufgebot in Wolfsburg
+title: "Allerletztes Aufgebot in Wolfsburg"
 
 ---
 

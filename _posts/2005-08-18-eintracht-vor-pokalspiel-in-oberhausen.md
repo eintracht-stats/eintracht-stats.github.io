@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor Pokalspiel in Oberhausen
+title: "Eintracht vor Pokalspiel in Oberhausen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher mit der Schweiz weiter im Rennen
+title: "Spycher mit der Schweiz weiter im Rennen"
 
 ---
 

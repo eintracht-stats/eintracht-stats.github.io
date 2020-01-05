@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Duisburg
+title: "Eintracht schlägt Duisburg"
 
 ---
 

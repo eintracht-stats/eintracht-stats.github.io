@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schrammt knapp am Traumstart vorbei
+title: "Eintracht schrammt knapp am Traumstart vorbei"
 
 ---
 

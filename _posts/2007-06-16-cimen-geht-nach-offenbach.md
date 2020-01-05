@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cimen geht nach Offenbach
+title: "Cimen geht nach Offenbach"
 
 ---
 

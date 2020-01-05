@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert unglücklich
+title: "Eintracht verliert unglücklich"
 
 ---
 

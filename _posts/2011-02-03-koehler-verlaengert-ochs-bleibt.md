@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Köhler verlängert - Ochs bleibt
+title: "Köhler verlängert - Ochs bleibt"
 
 ---
 

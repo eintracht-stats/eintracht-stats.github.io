@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Weiter Aufregung um den Elfmeterpfiff
-subtitle: Eintracht sieht keine Probleme bei der Lizenzerteilung
+title: "Weiter Aufregung um den Elfmeterpfiff"
+subtitle: "Eintracht sieht keine Probleme bei der Lizenzerteilung"
 ---
 
 Bei der Eintracht herrscht immer noch Unverständnis über die Elfmeter-Entscheidung von Schiedsrichter Weiner im Spiel gegen 1860. Nach dem Studium der Fernsehbilder scheint ziemlich klar zu sein, dass Arie van Lent zwar mit einer "unnatürlichen" Armbewegung in den entscheidenden Zweikampf ging - der Ball sprang ihm jedoch erst an den Arm als dieser schon längst wieder eine "natürliche" Position eingenommen hatte. Und das ganze entstand auch noch aus einem Kopfball des Gegners aus einer Entfernung von 20 cm. Hier Absicht zu unterstellen ist einfach nicht möglich. Deshalb gab es auch ungewohnt scharfe Reaktionen...

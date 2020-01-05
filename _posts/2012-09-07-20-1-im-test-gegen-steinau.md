@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 20-1 im Test gegen Steinau
+title: "20:1 im Test gegen Steinau"
 
 ---
 

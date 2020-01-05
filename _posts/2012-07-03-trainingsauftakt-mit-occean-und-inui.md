@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingsauftakt mit Occean und Inui
+title: "Trainingsauftakt mit Occean und Inui"
 
 ---
 

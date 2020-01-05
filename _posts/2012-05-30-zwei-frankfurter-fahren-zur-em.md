@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Frankfurter fahren zur EM
+title: "Zwei Frankfurter fahren zur EM"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 gewinnt gegen Wörsdorf
+title: "U23 gewinnt gegen Wörsdorf"
 
 ---
 

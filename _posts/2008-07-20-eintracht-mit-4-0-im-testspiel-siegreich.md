@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit 4-0 im Testspiel siegreich
+title: "Eintracht mit 4:0 im Testspiel siegreich"
 
 ---
 

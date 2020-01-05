@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Franz fällt länger aus
+title: "Franz fällt länger aus"
 
 ---
 

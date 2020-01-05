@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Urlaub beendet- Ab morgen wird wieder trainiert
-subtitle: Madza verlängert - Jones mit Verletzungssorgen
+title: "Urlaub beendet: Ab morgen wird wieder trainiert"
+subtitle: "Madza verlängert - Jones mit Verletzungssorgen"
 ---
 
 Ab morgen rollt endlich wieder der Ball: Trainer Willi Reimann wird das erste Training nach der Sommerpause leiten. Hoffentlich rückt dadurch das ganze Theater der vergangenen Wochen etwas in den Hintergrund... Bis morgen ist nach Worten von Volker Sparmann auch der Wechsel des Albaners Geri Cipi perfekt....

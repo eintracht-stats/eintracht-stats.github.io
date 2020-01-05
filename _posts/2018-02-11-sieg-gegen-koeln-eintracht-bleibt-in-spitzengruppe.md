@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Köln - Eintracht bleibt in Spitzengruppe
+title: "Sieg gegen Köln - Eintracht bleibt in Spitzengruppe"
 
 ---
 

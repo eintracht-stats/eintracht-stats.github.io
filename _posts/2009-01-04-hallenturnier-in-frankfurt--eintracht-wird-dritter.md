@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hallenturnier in Frankfurt- Eintracht wird Dritter
+title: "Hallenturnier in Frankfurt: Eintracht wird Dritter"
 
 ---
 

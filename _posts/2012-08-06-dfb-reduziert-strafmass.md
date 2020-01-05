@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB reduziert Strafmaß
+title: "DFB reduziert Strafmaß"
 
 ---
 

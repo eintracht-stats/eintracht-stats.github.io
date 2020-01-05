@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Spycher gegen Stuttgart
+title: "Ohne Spycher gegen Stuttgart"
 
 ---
 

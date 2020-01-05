@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abschiedsspiel für Eintracht-Idole
+title: "Abschiedsspiel für Eintracht-Idole"
 
 ---
 

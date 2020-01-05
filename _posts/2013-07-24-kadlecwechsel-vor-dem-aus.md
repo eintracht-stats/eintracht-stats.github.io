@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kadlec-Wechsel vor dem Aus
+title: "Kadlec-Wechsel vor dem Aus"
 
 ---
 

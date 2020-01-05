@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der WM-Daily Flip- So war's in München
+title: "Der WM-Daily Flip: So war's in München"
 
 ---
 

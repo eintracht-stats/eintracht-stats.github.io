@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Dragusha fährt nicht zur Nationalmannschaft
-subtitle: Erneute Geldstrafe für die Eintracht
+title: "Dragusha fährt nicht zur Nationalmannschaft"
+subtitle: "Erneute Geldstrafe für die Eintracht"
 ---
 
 Mehmet Dragusha hat wegen muskulärer Probleme die Reise zu seiner Nationalmannschaft abgesagt. Damit fehlen jetzt noch Skela, Cha, Amanatidis, Preuß, Cimen und Huber. Sie werden am Mittwoch bzw. am Donnerstag zurückerwartet. Die Verletztenliste hingegen wird kleiner: Bindewald, Wiedener und Tsoumou-Madza sollen noch in dieser Woche wieder ins Mannschaftstraining einsteigen. Einzig der Langzeitverletzte Keller (Reha) sowie Nascimento (Aufbautraining) müssten dann noch pausieren.

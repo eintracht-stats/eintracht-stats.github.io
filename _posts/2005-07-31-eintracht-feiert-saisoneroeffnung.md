@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht feiert Saisoneröffnung
+title: "Eintracht feiert Saisoneröffnung"
 
 ---
 

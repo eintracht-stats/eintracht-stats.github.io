@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel drohen Konsequenzen
+title: "Huggel drohen Konsequenzen"
 
 ---
 

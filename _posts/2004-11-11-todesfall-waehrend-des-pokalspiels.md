@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Todesfall während des Pokalspiels
+title: "Todesfall während des Pokalspiels"
 
 ---
 

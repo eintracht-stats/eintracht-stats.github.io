@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung- Eintracht muss nach Essen
+title: "Pokalauslosung: Eintracht muss nach Essen"
 
 ---
 

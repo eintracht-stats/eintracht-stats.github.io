@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Castaignos geht nach Lissabon
+title: "Castaignos geht nach Lissabon"
 
 ---
 

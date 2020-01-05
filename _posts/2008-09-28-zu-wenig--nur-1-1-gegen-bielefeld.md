@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zu wenig- Nur 1:1 gegen Bielefeld
+title: "Zu wenig: Nur 1:1 gegen Bielefeld"
 
 ---
 

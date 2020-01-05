@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen im FR-Interview
-subtitle: Neues zur Spielersuche
+title: "Bruchhagen im FR-Interview"
+subtitle: "Neues zur Spielersuche"
 ---
 
 Die Frankfurter Rundschau hat mit Heribert Bruchhagen ein interessantes Interview geführt. Darin erklärt er, dass er das Verhältnis Mannschaft/Trainer als intakt ansieht. Meldungen über Unzufriedenheit einzelner Spieler seien normal bei Mannschaften, bei denen es sportlich nicht läuft.

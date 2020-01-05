@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Oczipka verlängert Vertrag
+title: "Oczipka verlängert Vertrag"
 
 ---
 

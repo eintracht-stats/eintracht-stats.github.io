@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Philadelphia
+title: "Niederlage in Philadelphia"
 
 ---
 

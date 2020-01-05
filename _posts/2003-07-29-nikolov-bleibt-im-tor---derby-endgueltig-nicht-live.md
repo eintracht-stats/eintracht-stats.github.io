@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nikolov bleibt im Tor / Derby endgültig nicht live!
-subtitle: FFH kauf Oberliga-Namensrechte
+title: "Nikolov bleibt im Tor / Derby endgültig nicht live!"
+subtitle: "FFH kauf Oberliga-Namensrechte"
 ---
 
 Die Torhüterfrage ist wohl entschieden: Spätestens mit der guten Leistung beim Testspiel gegen Nürnberg hat sich Oka Nikolov seinen Stammplatz gesichert. Wenn nichts außergewöhnliches mehr passiert, wird die alte Nr. 1 auch die Nr. 1 sein. Im Olympiastadion auf der Bank wird wahrscheinlich Markus Pröll sitzen, auch wenn die FR heute Andreas Menger fast die beste Leistung aller drei Torhüter während der Vorbereitung bescheinigt. Er ist in dieser Saison zwar noch Spieler, wird mittelfristig aber den Torwarttrainer-Posten bekommen, den er de facto schon jetzt ausübt.

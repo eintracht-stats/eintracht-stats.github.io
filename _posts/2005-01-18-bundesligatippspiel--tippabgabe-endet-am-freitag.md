@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bundesliga-Tippspiel- Tippabgabe endet am Freitag
+title: "Bundesliga-Tippspiel: Tippabgabe endet am Freitag"
 
 ---
 

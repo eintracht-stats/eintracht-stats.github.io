@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schalke-Spiel- Elfmeter-Witz und Verletzungspech
+title: "Schalke-Spiel: Elfmeter-Witz und Verletzungspech"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heimspiel gegen Bielefeld
+title: "Heimspiel gegen Bielefeld"
 
 ---
 

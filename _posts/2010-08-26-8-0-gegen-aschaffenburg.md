@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 8-0 gegen Aschaffenburg
+title: "8:0 gegen Aschaffenburg"
 
 ---
 

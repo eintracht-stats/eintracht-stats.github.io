@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im Pokal gegen Ingolstadt
+title: "Eintracht im Pokal gegen Ingolstadt"
 
 ---
 

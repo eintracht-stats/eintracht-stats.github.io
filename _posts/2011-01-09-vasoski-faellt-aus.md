@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vasoski fällt aus
+title: "Vasoski fällt aus"
 
 ---
 

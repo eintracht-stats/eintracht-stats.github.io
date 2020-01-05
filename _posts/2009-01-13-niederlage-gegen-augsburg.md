@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Niederlage gegen Augsburg
-subtitle: Trainer-Gespräche gehen weiter
+title: "Niederlage gegen Augsburg"
+subtitle: "Trainer-Gespräche gehen weiter"
 ---
 
 Die Eintracht hat das zweite Testspiel im Trainingslager gegen den FC Augsburg verloren. Fenin und Kweuke trafen bei der 2:3-Niederlage. Wie für jedes Testspiel gilt: Nicht überbewerten...

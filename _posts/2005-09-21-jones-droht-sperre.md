@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones droht Sperre
+title: "Jones droht Sperre"
 
 ---
 

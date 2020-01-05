@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstimmung über Trikot läuft
+title: "Abstimmung über Trikot läuft"
 
 ---
 

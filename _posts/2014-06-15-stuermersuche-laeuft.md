@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stürmersuche läuft
+title: "Stürmersuche läuft"
 
 ---
 

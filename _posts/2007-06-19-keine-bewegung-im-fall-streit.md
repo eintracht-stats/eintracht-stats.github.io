@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Bewegung im Fall Streit
+title: "Keine Bewegung im Fall Streit"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Planungen für Benefizturnier laufen
+title: "Planungen für Benefizturnier laufen"
 
 ---
 

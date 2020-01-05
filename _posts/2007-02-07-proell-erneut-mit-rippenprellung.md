@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll erneut mit Rippenprellung
+title: "Pröll erneut mit Rippenprellung"
 
 ---
 

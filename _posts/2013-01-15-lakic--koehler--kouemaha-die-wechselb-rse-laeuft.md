@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lakic, Köhler, Kouemaha - die Wechselbörse läuft
+title: "Lakic, Köhler, Kouemaha - die Wechselbörse läuft"
 
 ---
 

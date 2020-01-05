@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit Interesse an Grosicki?
+title: "Eintracht mit Interesse an Grosicki?"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt erstes Montagsspiel
+title: "Eintracht gewinnt erstes Montagsspiel"
 
 ---
 

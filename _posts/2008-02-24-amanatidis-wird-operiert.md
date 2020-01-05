@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis wird operiert
+title: "Amanatidis wird operiert"
 
 ---
 

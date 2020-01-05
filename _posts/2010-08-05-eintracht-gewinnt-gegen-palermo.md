@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt gegen Palermo
+title: "Eintracht gewinnt gegen Palermo"
 
 ---
 

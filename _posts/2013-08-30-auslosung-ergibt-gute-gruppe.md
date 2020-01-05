@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auslosung ergibt gute Gruppe
+title: "Auslosung ergibt gute Gruppe"
 
 ---
 

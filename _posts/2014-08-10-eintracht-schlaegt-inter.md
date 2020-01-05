@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Inter
+title: "Eintracht schlägt Inter"
 
 ---
 

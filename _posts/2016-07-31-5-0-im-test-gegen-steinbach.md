@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 5-0 im Test gegen Steinbach
+title: "5:0 im Test gegen Steinbach"
 
 ---
 

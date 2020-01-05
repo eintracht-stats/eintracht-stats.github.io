@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis ist krank - Einsatz fraglich
+title: "Amanatidis ist krank - Einsatz fraglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Caio macht schlapp
+title: "Caio macht schlapp"
 
 ---
 

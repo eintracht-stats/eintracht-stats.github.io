@@ -1,6 +1,6 @@
 ---
 layout: post
-title: China-Reise endet mit Niederlage
+title: "China-Reise endet mit Niederlage"
 
 ---
 

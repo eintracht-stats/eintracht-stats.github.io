@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Personalsorgen  vor dem Bayern-Spiel
+title: "Personalsorgen  vor dem Bayern-Spiel"
 
 ---
 

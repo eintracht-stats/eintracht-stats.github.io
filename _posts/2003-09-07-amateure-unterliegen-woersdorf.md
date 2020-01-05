@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure unterliegen Wörsdorf
+title: "Amateure unterliegen Wörsdorf"
 
 ---
 

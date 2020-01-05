@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Chris' Strafe vorlegen
+title: "Eintracht will Chris' Strafe vorlegen"
 
 ---
 

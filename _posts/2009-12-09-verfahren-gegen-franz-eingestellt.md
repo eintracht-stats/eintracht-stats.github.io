@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verfahren gegen Franz eingestellt
+title: "Verfahren gegen Franz eingestellt"
 
 ---
 

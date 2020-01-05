@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auswärtsspiel in Cottbus
+title: "Auswärtsspiel in Cottbus"
 
 ---
 

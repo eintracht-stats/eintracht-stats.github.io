@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erkämpft sich Punkt gegen Bayern
+title: "Eintracht erkämpft sich Punkt gegen Bayern"
 
 ---
 

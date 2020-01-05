@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht krempelt Abwehr um
+title: "Eintracht krempelt Abwehr um"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Madza bleibt bis 2005
-subtitle: Ganea- Türkei oder doch die Eintracht?
+title: "Madza bleibt bis 2005"
+subtitle: "Ganea: Türkei oder doch die Eintracht?"
 ---
 
 Jean Tsoumou-Madza hat seinen Vertrag vorzeitig bis 2005 verlängert. Da er bislang relativ wenig verdiente, wurde sein Gehalt deutlich angehoben. Wenn er weiterhin die Leistung der letzten Saison bringt, ist das auch gerechtfertigt.

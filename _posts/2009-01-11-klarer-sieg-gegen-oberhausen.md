@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Klarer Sieg gegen Oberhausen
-subtitle: Funkel vor Vertragsverlängerung
+title: "Klarer Sieg gegen Oberhausen"
+subtitle: "Funkel vor Vertragsverlängerung"
 ---
 
 Im ersten Testspiel dieser Winterpause hat die Eintracht mit 4:1 gegen Rot-Weiß Oberhausen einen klaren Sieg herausspielen können. Die Tore erzielten Kweuke (2), Meier und Vasoski. Letztere gaben nach langer Verletzungspause ihr Comeback. Der Gegentreffer von RWO fiel durch einen Foulelfmeter.

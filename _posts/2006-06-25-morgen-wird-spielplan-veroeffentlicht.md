@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen wird Spielplan veröffentlicht
+title: "Morgen wird Spielplan veröffentlicht"
 
 ---
 

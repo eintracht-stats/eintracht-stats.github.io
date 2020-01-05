@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielsieg gegen Rot-Weiß Frankfurt
+title: "Testspielsieg gegen Rot-Weiß Frankfurt"
 
 ---
 

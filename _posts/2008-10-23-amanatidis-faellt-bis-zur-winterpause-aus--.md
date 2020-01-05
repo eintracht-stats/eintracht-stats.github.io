@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Amanatidis fällt bis zur Winterpause aus!!!
-subtitle: Weitere Ausfälle zu erwarten...
+title: "Amanatidis fällt bis zur Winterpause aus!!!"
+subtitle: "Weitere Ausfälle zu erwarten..."
 ---
 
 Meine Güte - die Freude über den gestrigen Sieg währt nicht lange: Ioannis Amanatidis wird bis zur Winterpause ausfallen! Er muss am Meniskus operiert werden und fällt wochenlang aus. Gestern quälte er sich zu seinem Kurzeinsatz und dem Siegtreffer. Aber jetzt geht nichts mehr. Das ist ein echter Schock. Angesichts der Harmlosigkeit der Offensivabteilung wird mir nach dieser Nachricht ganz anders...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert verdient
+title: "Eintracht verliert verdient"
 
 ---
 

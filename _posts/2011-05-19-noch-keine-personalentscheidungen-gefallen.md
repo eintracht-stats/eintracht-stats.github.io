@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch keine Personalentscheidungen gefallen
+title: "Noch keine Personalentscheidungen gefallen"
 
 ---
 

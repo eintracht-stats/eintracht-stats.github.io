@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt ist zweitklassig
+title: "Eintracht Frankfurt ist zweitklassig"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fünf Jahre Funkel - ein Rückblick
+title: "Fünf Jahre Funkel - ein Rückblick"
 
 ---
 

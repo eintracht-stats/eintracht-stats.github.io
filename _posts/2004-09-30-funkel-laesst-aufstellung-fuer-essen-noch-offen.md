@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel lässt Aufstellung für Essen noch offen
+title: "Funkel lässt Aufstellung für Essen noch offen"
 
 ---
 

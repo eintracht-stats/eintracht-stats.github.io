@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Sieg- 1:0 in Leverkusen
+title: "Endlich ein Sieg: 1:0 in Leverkusen"
 
 ---
 

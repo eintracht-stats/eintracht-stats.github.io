@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 11-1 im Test gegen Rommerz
+title: "11:1 im Test gegen Rommerz"
 
 ---
 

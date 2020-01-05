@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung erst im September
+title: "Pokalauslosung erst im September"
 
 ---
 

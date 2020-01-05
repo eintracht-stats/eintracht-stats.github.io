@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Petkovic ist verschwunden...
+title: "Petkovic ist verschwunden..."
 
 ---
 

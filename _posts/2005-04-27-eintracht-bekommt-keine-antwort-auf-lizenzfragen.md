@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bekommt keine Antwort auf Lizenzfragen
+title: "Eintracht bekommt keine Antwort auf Lizenzfragen"
 
 ---
 

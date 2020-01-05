@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kreuz drängt auf die Freigabe
-subtitle: Kapitel Skela wohl endgültig erledigt
+title: "Kreuz drängt auf die Freigabe"
+subtitle: "Kapitel Skela wohl endgültig erledigt"
 ---
 
 Im Fall Chris gibt es keine neue Entwicklung. Die Eintracht hat noch immer keinen persönlichen Kontakt zu dem Brasilianer herstellen können. Die Bild-Zeitung berichtet allerdings über einen möglichen Transfer des Brasilianers nach Sevilla. Heribert Bruchhagen möchte jedoch erst nach einem persönlichen Gespräch über die Notwendigkeit einer möglichen Neuverpflichtung im Abwehrbereich entscheiden. Für etwas Unruhe sorgt zur Zeit auch Markus Kreuz. Er übt über die Medien Druck aus, um doch noch die Freigabe aus seinem Vertrag zu erhalten. Diese habe ihm Friedhelm Funkel in einem Gespräch zugesichert, weil er nicht mehr mit dem Spieler plane...

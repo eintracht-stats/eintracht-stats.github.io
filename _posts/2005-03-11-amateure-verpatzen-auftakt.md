@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verpatzen Auftakt
+title: "Amateure verpatzen Auftakt"
 
 ---
 

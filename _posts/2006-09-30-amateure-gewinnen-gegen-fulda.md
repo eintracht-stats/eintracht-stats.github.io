@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gewinnen gegen Fulda
+title: "Amateure gewinnen gegen Fulda"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht spricht mit Chris
-subtitle: Nationalspieler an der Angel
+title: "Eintracht spricht mit Chris"
+subtitle: "Nationalspieler an der Angel"
 ---
 
 Gestern Abend kam es endlich zum lange angestrebten Gespräch zwischen Heribert Bruchhagen und Chris. Dabei erläuterten beide Seiten ihren Standpunkt: Chris sieht den Vertrag weiterhin als nichtig an. Die Eintracht hingegen hält diesen für wasserdicht, was auch Anwalt Christoph Schickhardt bestätigte. Auch wenn die Eintracht weiterhin darauf bedacht ist, Chris weiter als Spieler zu beschäftigen, ist ein Verbleib in Frankfurt eher unwahrscheinlich. Die Frankfurter Rundschau spricht sogar von zwei Interessenten: Schalke 04 und Bayer Leverkusen...

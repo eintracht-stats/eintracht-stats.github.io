@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reinhard verlängert vorzeitig
+title: "Reinhard verlängert vorzeitig"
 
 ---
 

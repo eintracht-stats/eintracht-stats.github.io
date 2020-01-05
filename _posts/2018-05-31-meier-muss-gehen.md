@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier muss gehen
+title: "Meier muss gehen"
 
 ---
 

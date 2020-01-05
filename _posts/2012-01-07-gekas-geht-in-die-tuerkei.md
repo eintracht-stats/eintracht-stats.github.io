@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gekas geht in die Türkei!
+title: "Gekas geht in die Türkei!"
 
 ---
 

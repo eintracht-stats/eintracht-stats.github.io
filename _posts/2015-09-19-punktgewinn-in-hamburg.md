@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punktgewinn in Hamburg
+title: "Punktgewinn in Hamburg"
 
 ---
 

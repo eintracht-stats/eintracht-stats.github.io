@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schafft Auswärtssieg
+title: "Eintracht schafft Auswärtssieg"
 
 ---
 

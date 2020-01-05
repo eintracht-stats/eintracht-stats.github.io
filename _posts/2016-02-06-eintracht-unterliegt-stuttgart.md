@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht unterliegt Stuttgart
+title: "Eintracht unterliegt Stuttgart"
 
 ---
 

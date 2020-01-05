@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fall Madza klärt sich auf
+title: "Fall Madza klärt sich auf"
 
 ---
 

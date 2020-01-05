@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kein Ersatz für Spycher geplant
+title: "Kein Ersatz für Spycher geplant"
 
 ---
 

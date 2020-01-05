@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher verlängert in Frankfurt
+title: "Spycher verlängert in Frankfurt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Endlich ein Sieg! 3-1 in Gladbach
+title: "Endlich ein Sieg! 3:1 in Gladbach"
 
 ---
 

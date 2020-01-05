@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wolfsburg im Waldstadion zu Gast
+title: "Wolfsburg im Waldstadion zu Gast"
 
 ---
 

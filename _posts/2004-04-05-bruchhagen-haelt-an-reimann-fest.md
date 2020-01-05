@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen hält an Reimann fest
+title: "Bruchhagen hält an Reimann fest"
 
 ---
 

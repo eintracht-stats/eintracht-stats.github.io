@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht punktet in Nürnberg
+title: "Eintracht punktet in Nürnberg"
 
 ---
 

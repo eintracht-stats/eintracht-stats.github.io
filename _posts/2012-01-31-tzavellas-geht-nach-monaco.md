@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tzavellas geht nach Monaco
+title: "Tzavellas geht nach Monaco"
 
 ---
 

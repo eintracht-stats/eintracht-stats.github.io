@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Unentschieden nach spätem Gegentor
-subtitle: Schiri Kinhöfer - ohne Worte...
+title: "Unentschieden nach spätem Gegentor"
+subtitle: "Schiri Kinhöfer - ohne Worte..."
 ---
 
 Die Eintracht hat in einem denkwürdigen Spiel ein 1:1 bei Borussia Mönchengladbach erreicht. Kyrgiakos hatte die Frankfurter nach - natürlich - einer Streit-Ecke in Führung gebracht. In der zweiten Hälfte hatte Gladbach zwar mehr vom Spiel. Doch erst in der 89. Minute traf Insua noch zum Ausgleich. Normalerweise hätte ich an dieser Stelle geschrieben "traf kurz vor Schluss Insua zum Ausgleich". Doch da hatte Schiri Kinhöfer heute einiges dagegen...

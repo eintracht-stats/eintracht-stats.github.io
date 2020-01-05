@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB sperrt Djakpa
+title: "DFB sperrt Djakpa"
 
 ---
 

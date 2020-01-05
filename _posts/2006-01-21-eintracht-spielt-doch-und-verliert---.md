@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt doch - und verliert...
+title: "Eintracht spielt doch - und verliert..."
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Statistischer Blick zurück- So lief die Hinrunde
-subtitle: Auch historische Fakten kommen nicht zu kurz
+title: "Statistischer Blick zurück: So lief die Hinrunde"
+subtitle: "Auch historische Fakten kommen nicht zu kurz"
 ---
 
 Weihnachten liegt nun hinter uns, doch noch immer gibt es keine Neuigkeiten von der Eintracht. Nicht einmal neue Gerüchte über die möglichen Neuzugänge sind aufgetaucht. Grund genug, jetzt noch einmal die Hinrunde der laufenden Saison genauer unter die Lupe zu nehmen. Wie es sich für unsere Seite gehört, stehen Statistiken im Mittelpunkt, die teilweise wirklich erstaunlich sind...

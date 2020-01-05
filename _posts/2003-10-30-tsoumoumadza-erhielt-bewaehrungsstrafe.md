@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tsoumou-Madza erhielt Bewährungsstrafe!
+title: "Tsoumou-Madza erhielt Bewährungsstrafe!"
 
 ---
 

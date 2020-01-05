@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unruhe um Jones und Amanatidis
+title: "Unruhe um Jones und Amanatidis"
 
 ---
 

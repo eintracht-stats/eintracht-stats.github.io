@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Halle
+title: "Eintracht gewinnt in Halle"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainerdiskussion geht weiter
+title: "Trainerdiskussion geht weiter"
 
 ---
 

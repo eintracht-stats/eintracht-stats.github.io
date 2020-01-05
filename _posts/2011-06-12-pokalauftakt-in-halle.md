@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal-Auftakt in Halle
+title: "Pokal-Auftakt in Halle"
 
 ---
 

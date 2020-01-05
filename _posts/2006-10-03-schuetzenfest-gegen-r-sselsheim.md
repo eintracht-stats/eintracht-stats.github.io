@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schützenfest gegen Rüsselsheim
+title: "Schützenfest gegen Rüsselsheim"
 
 ---
 

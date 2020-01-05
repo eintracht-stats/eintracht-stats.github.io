@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schicksalsspiel gegen Köln
+title: "Schicksalsspiel gegen Köln"
 
 ---
 

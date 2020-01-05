@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verabschiedung von Oka Nikolov
+title: "Verabschiedung von Oka Nikolov"
 
 ---
 

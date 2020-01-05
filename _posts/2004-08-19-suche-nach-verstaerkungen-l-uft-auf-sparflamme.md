@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Suche nach Verstärkungen läuft auf Sparflamme
-subtitle: Pröll spielt auch im Pokal
+title: "Suche nach Verstärkungen läuft auf Sparflamme"
+subtitle: "Pröll spielt auch im Pokal"
 ---
 
 Bei der Eintracht hat sich der Druck bei der Suche nach Verstärkungen nach dem guten Saisonstart verringert. Die vielen jungen Spieler konnten überzeugen, so dass man nur dann einen neuen Spieler holen wird, wenn dieser in der Innenverteidung und im defensiven Mittelfeld eingesetzt werden kann. Ansonsten gibt sich Trainer Funkel auch mit Verstärkungen in der Winterpause zufrieden.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht rutscht auf Platz 10
+title: "Eintracht rutscht auf Platz 10"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mit 5 Toren zum Klassenerhalt...
+title: "Mit 5 Toren zum Klassenerhalt..."
 
 ---
 

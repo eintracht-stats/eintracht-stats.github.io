@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cimen und Huber gehen nach Braunschweig
+title: "Cimen und Huber gehen nach Braunschweig"
 
 ---
 

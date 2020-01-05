@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ultimatum an Wolfsburg
+title: "Ultimatum an Wolfsburg"
 
 ---
 

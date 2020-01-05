@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Takahara fällt aus!
+title: "Auch Takahara fällt aus!"
 
 ---
 

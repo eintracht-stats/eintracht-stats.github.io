@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht erkämpft 1-1 in Vigo
-subtitle: Ungerechtfertigter Platzverweis für Meier
+title: "Eintracht erkämpft 1:1 in Vigo"
+subtitle: "Ungerechtfertigter Platzverweis für Meier"
 ---
 
 Mal wieder ein Unentschieden - und mal wieder war mehr drin: Zur Halbzeit stand es beim Uefa-Pokalspiel der Eintracht bei Celta Vigo 1:1. Der überraschend aufgestellte Alexander Huber hatte 10 Minuten Gegenspieler Perera nach einer Ecke nur unzureichend bedrängt, so dass dieser zum 1:0 einköpfte. Fünf Minuten später erzielte aber eben jener Huber den Ausgleich. Nach einer butterweichen Flanke von Benjamin Köhler traf er sehr überlegt aus kurzer Distanz gegen die Laufrichtung der Abwehrspieler und des Torhüters.

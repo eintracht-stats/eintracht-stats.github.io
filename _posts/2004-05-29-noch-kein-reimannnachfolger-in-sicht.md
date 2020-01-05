@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch kein Reimann-Nachfolger in Sicht
-subtitle: FNP- Patrick Ochs kommt zur Eintracht
+title: "Noch kein Reimann-Nachfolger in Sicht"
+subtitle: "FNP: Patrick Ochs kommt zur Eintracht"
 ---
 
 Noch immer tappen die Medien völlig im Dunkeln, wer denn neuer Trainer werden könnte. Am häufigsten wird der Name Ralf Rangnick genannt. Laut FR soll Heribert Bruchhagen jedoch skeptisch sein. Wahrscheinlich wird der neue Mann mit Co-Trainer Jan Kocian zusammenarbeiten (müssen). Denn der soll seinen Vertrag bei der Eintracht erfüllen. Bei der Suche nach einem Nachfolger kommt erschwerend die finanzielle Situation hinzu. Wie die Frankfurter Neue Presse berichtet, stehen Reimann laut dem von Volker Sparmann ausgehandelten Vertrag nebem dem Gehalt bis Juni 2005 auch noch sämtliche Punktprämien zu, die die Mannschaft mit seinem Nachfolger erspielt...

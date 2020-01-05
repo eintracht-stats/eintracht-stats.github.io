@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Montero wohl ohne Zukunft bei der Eintracht
-subtitle: Die unendliche Geschichte- Wird das Derby übertragen?
+title: "Montero wohl ohne Zukunft bei der Eintracht"
+subtitle: "Die unendliche Geschichte: Wird das Derby übertragen?"
 ---
 
 David Montero dürfte keine Zukunft mehr bei der Eintracht haben. Zwar hatte Willi Reimann zuletzt überlegt, das defensive Mittelfeld zu stärken, wodurch der Spanier höchstwahrscheinlich wieder in die Startelf gerutscht wäre. Doch jetzt deutet alles auf eine Trennung hin, sei es durch Entlassung oder durch einen Wechsel Monteros. Der 29jährige war am Sonntag nicht zum morgendlichen Training erschienen und auch per Telefon nicht zu erreichen. Daraufhin wurde er von Rainer Falkenhain zu Hause abgeholt und befand sich in einem "alkoholisierten Zustand"...

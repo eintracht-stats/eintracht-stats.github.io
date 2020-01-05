@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Fans" disqualifizieren sich mit Plakat
+title: "Fans disqualifizieren sich mit Plakat"
 
 ---
 

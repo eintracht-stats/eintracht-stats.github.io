@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lassen wir's doch einfach...
+title: "Lassen wir's doch einfach..."
 
 ---
 

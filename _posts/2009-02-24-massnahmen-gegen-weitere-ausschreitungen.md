@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Maßnahmen gegen weitere Ausschreitungen
+title: "Maßnahmen gegen weitere Ausschreitungen"
 
 ---
 

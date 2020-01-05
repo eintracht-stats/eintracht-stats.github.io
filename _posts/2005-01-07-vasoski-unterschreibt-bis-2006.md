@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vasoski unterschreibt bis 2006
+title: "Vasoski unterschreibt bis 2006"
 
 ---
 

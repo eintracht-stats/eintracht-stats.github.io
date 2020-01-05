@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch kein Trapp-Wechsel - Kommt Sam?
+title: "Noch kein Trapp-Wechsel - Kommt Sam?"
 
 ---
 

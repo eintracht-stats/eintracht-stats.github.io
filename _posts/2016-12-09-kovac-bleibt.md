@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kovac bleibt!
+title: "Kovac bleibt!"
 
 ---
 

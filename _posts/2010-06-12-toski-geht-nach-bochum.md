@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Toski geht nach Bochum
+title: "Toski geht nach Bochum"
 
 ---
 

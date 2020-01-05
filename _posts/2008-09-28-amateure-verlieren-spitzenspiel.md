@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren Spitzenspiel
+title: "Amateure verlieren Spitzenspiel"
 
 ---
 

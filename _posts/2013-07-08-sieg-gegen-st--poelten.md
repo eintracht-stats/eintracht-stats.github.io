@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen St. Pölten
+title: "Sieg gegen St. Pölten"
 
 ---
 

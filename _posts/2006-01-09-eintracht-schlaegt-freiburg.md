@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Freiburg
+title: "Eintracht schlägt Freiburg"
 
 ---
 

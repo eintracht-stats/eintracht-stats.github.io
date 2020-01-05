@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schurs Einsatz noch fraglich
+title: "Schurs Einsatz noch fraglich"
 
 ---
 

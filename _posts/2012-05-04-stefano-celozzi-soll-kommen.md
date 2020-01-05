@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stefano Celozzi soll kommen
+title: "Stefano Celozzi soll kommen"
 
 ---
 

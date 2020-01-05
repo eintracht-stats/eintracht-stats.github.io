@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht chancenlos gegen Stuttgart
+title: "Eintracht chancenlos gegen Stuttgart"
 
 ---
 

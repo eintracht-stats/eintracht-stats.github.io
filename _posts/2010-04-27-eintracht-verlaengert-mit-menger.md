@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlängert mit Menger
+title: "Eintracht verlängert mit Menger"
 
 ---
 

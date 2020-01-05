@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov angeschlagen
+title: "Nikolov angeschlagen"
 
 ---
 

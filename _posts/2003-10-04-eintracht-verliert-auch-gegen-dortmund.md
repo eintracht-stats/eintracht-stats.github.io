@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert auch gegen Dortmund
-subtitle: 
+title: "Eintracht verliert auch gegen Dortmund"
+subtitle: "
 ---
 
 Im vierten Heimspiel kassierte die Eintracht gestern die dritte Niederlage - ein überaus vermeidbares 0:1 gegen Borussia Dortmund. Willi Reimann hatte seine Mannschaft auf zwei Positionen verändert: Für Puljiz und Tsoumou-Madza spielten Chris in der Innenverteidigung und Stürmer Nico Frommer. Doch wie schon gegen Kaiserslautern wurde das taktische Konzept der Eintracht durch einen frühen Rückstand durchkreuzt.

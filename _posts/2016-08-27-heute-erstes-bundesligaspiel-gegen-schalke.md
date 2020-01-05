@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heute erstes Bundesligaspiel gegen Schalke
+title: "Heute erstes Bundesligaspiel gegen Schalke"
 
 ---
 

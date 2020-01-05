@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure unterliegen Darmstadt
+title: "Eintracht-Amateure unterliegen Darmstadt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Start ins WM-Jahr...
+title: "Der Start ins WM-Jahr..."
 
 ---
 

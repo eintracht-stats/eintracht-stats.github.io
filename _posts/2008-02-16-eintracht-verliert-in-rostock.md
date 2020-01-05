@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert in Rostock
+title: "Eintracht verliert in Rostock"
 
 ---
 

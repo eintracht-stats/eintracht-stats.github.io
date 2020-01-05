@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saisonauftakt in Wolfsburg
+title: "Saisonauftakt in Wolfsburg"
 
 ---
 

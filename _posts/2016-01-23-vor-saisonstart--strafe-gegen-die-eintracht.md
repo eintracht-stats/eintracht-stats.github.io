@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vor Saisonstart- Strafe gegen die Eintracht
+title: "Vor Saisonstart: Strafe gegen die Eintracht"
 
 ---
 

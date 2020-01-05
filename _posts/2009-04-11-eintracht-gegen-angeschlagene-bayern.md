@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gegen angeschlagene Bayern
+title: "Eintracht gegen angeschlagene Bayern"
 
 ---
 

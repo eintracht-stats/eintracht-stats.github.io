@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Liberopoulos verletzt
+title: "Liberopoulos verletzt"
 
 ---
 

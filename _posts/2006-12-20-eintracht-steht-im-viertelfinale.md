@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht steht im Viertelfinale
+title: "Eintracht steht im Viertelfinale"
 
 ---
 

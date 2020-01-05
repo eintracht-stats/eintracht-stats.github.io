@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Test gelungen- Eintracht schlägt Bensheim mit 11:0
-subtitle: Brasilianer sollen abgegeben werden
+title: "Test gelungen: Eintracht schlägt Bensheim mit 11:0"
+subtitle: "Brasilianer sollen abgegeben werden"
 ---
 
 Mit einem klaren 11:0 gegen den Bezirksligisten FSG Bensheim gewann die Eintracht ihr erstes Testspiel. Für die Eintracht trafen Skela, Beierle, Frommer, Montero (je 2x), sowie Lexa, Dragusha und Kreuz. Einige unserer Neuzugänge haben ihren Einstand also gleich mit einem Tor gefeiert. Endlich wieder richtige Schlagzeilen!!!

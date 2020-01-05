@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vergibt ersten Matchball
+title: "Eintracht vergibt ersten Matchball"
 
 ---
 

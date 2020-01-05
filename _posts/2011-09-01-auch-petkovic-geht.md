@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Petkovic geht
+title: "Auch Petkovic geht"
 
 ---
 

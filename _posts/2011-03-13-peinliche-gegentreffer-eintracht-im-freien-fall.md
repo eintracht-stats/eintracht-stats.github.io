@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Peinliche Gegentreffer - Eintracht im freien Fall
+title: "Peinliche Gegentreffer - Eintracht im freien Fall"
 
 ---
 

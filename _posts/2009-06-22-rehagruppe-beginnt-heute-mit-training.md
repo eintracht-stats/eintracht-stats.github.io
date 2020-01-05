@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reha-Gruppe beginnt heute mit Training
-subtitle: Ottl kommt nicht
+title: "Reha-Gruppe beginnt heute mit Training"
+subtitle: "Ottl kommt nicht"
 ---
 
 Für die ersten Spieler beginnt heute die Vorbereitung auf die neue Saison. Gemeinsam mit Reha-Trainer Michael Fabacher treffen sich Jan Zimmermann, Aleksandar Vasoski, Christoph Preuß, Benjamin Köhler und Juvhel Tsoumou zu einem ersten Lauftraining. Während Köhler, Tsoumou und Zimmermann bald bereits wieder am regulären Mannschaftstraining teilnehmen können, muss sich Aleksandar Vasoski nach seinem Knorpelschaden wohl noch etwas gedulden...

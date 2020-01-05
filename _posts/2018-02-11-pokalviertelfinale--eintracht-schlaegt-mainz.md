@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal-Viertelfinale- Eintracht schlägt Mainz
+title: "Pokal-Viertelfinale: Eintracht schlägt Mainz"
 
 ---
 

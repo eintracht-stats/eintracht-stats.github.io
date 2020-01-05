@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris beginnt mit Laufeinheiten
+title: "Chris beginnt mit Laufeinheiten"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Andreas Hornung als Fanbeauftragter von Eintracht Frankfurt zurückgetreten
+title: "Andreas Hornung als Fanbeauftragter von Eintracht Frankfurt zurückgetreten"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones wurde operiert
-subtitle: Bruchhagen offiziell vorgestellt
+title: "Jones wurde operiert"
+subtitle: "Bruchhagen offiziell vorgestellt"
 ---
 
 Gestern wurde Jermaine Jones erneut operiert: Ihm wurde ein Stück des Beckenknochens entnommen und an der Stelle seiner Fußfraktur fixiert. Die Operation ist laut Mannschaftsarzt Dr. Seeger gut verlaufen. Dennoch wird der Stürmer der Eintracht drei Monate fehlen...

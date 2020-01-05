@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Occean zur Eintracht? Es sieht so aus...
+title: "Occean zur Eintracht? Es sieht so aus..."
 
 ---
 

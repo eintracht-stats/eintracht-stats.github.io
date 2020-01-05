@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert erneut
-subtitle: 1-3 beschert Abstiegsplatz
+title: "Eintracht verliert erneut"
+subtitle: "1:3 beschert Abstiegsplatz"
 ---
 
 Selbst eine radikal veränderte Mannschaftsaufstellung konnte nicht für die Trendwende sorgen: Fink, Preuß, Köhler, Weissenberger, Russ waren neu in der Startformation - und trotzdem gab es wieder ein frühes Gegentor. Van der Vaart traf in der 7. Spielminute für den HSV. Takahara glich nach knapp einer Stunde aus, doch Trochowski und Olic sorgten noch für das 3:1...

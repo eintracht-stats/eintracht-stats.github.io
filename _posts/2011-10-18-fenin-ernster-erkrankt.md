@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fenin ernster erkrankt
+title: "Fenin ernster erkrankt"
 
 ---
 

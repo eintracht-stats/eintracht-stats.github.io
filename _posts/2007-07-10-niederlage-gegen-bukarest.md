@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Bukarest
+title: "Niederlage gegen Bukarest"
 
 ---
 

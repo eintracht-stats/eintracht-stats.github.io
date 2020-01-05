@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Dica überzeugt - Reimann plant Verstärkungen
-subtitle: Winterpause- Trainingslager in Katar
+title: "Dica überzeugt - Reimann plant Verstärkungen"
+subtitle: "Winterpause: Trainingslager in Katar"
 ---
 
 Der gestern im Testspiel in Neu-Isenburg eingesetzte Rumäne Nicolae Dica hat die Verantwortlicht beeindruckt. Nicht nur seine vier Treffer waren auffällig. Charly Körbel lobte auch seine technische und taktische Ausbildung. Bis Donnerstag wird der Stürmer noch Gelegenheit bekommen, sich im Training zu beweisen. Auch der 18jährige Abwehrspieler Christopher Reinhard zeigte eine gute Leistung. An dem Talent soll bereits der HSV Interesse gezeigt haben...

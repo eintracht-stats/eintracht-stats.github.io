@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones wieder dabei - Hoffmann fällt wohl aus
+title: "Jones wieder dabei - Hoffmann fällt wohl aus"
 
 ---
 

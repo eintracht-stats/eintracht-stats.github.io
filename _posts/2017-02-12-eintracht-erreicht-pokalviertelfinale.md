@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erreicht Pokalviertelfinale
+title: "Eintracht erreicht Pokalviertelfinale"
 
 ---
 

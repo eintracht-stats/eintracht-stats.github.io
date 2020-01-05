@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Spieltage festgelegt
+title: "Neue Spieltage festgelegt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht besiegt Hannover
+title: "Eintracht besiegt Hannover"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt weiter! 3-1 gegen Hannover
+title: "Eintracht siegt weiter! 3:1 gegen Hannover"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erledigt Pflichtaufgabe - zu zehnt...
+title: "Eintracht erledigt Pflichtaufgabe - zu zehnt..."
 
 ---
 

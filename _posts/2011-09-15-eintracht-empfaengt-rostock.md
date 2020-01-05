@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Rostock
+title: "Eintracht empfängt Rostock"
 
 ---
 

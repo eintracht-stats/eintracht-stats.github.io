@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht geht gegen Osijek unter
+title: "Eintracht geht gegen Osijek unter"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reinartz wollte Eintracht helfen - und blitzte ab
+title: "Reinartz wollte Eintracht helfen - und blitzte ab"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1-1 im Test gegen Wolfsburg
+title: "1:1 im Test gegen Wolfsburg"
 
 ---
 

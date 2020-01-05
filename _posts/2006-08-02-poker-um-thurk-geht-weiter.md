@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Poker um Thurk geht weiter
+title: "Poker um Thurk geht weiter"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dritter beim Hallenturnier
+title: "Dritter beim Hallenturnier"
 
 ---
 

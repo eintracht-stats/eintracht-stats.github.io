@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fenin kränkelt
+title: "Fenin kränkelt"
 
 ---
 

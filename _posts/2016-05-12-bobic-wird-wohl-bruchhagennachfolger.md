@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic wird wohl Bruchhagen-Nachfolger
+title: "Bobic wird wohl Bruchhagen-Nachfolger"
 
 ---
 

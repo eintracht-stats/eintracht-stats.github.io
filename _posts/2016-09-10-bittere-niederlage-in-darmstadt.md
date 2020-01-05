@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bittere Niederlage in Darmstadt
+title: "Bittere Niederlage in Darmstadt"
 
 ---
 

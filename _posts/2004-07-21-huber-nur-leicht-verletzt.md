@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huber nur leicht verletzt
+title: "Huber nur leicht verletzt"
 
 ---
 

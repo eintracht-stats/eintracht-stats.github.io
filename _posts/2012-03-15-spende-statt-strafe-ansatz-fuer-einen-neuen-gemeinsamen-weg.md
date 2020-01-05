@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spende statt Strafe - Ansatz für einen neuen gemeinsamen Weg
+title: "Spende statt Strafe - Ansatz für einen neuen gemeinsamen Weg"
 
 ---
 

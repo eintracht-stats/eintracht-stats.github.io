@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schur und Keller werden wohl fit
-subtitle: Offensive Aufstellung gegen die Bayern?
+title: "Schur und Keller werden wohl fit"
+subtitle: "Offensive Aufstellung gegen die Bayern?"
 ---
 
 Das Spiel bei den Bayern rückt immer näher und es wird wirklich langsam Zeit, mal über die Aufstellung nachzudenken. Alex Schur und Jens Keller plagen sich dummerweise mit Magen-Darm-Problemen herum. Sie konnten aber schon wieder trainieren, weshalb ihr Einsatz wohl möglich ist. Markus Pröll hat sich eine Blockade im Brustwirbelbereich zugezogen. Ob er mit nach München fahren kann, ist noch unsicher.

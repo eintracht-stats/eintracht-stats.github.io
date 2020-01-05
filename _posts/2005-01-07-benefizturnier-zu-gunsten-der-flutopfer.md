@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Benefizturnier zu Gunsten der Flutopfer 
-subtitle: Eintracht, OFC und Mainz treten im Waldstadion an
+title: "Benefizturnier zu Gunsten der Flutopfer "
+subtitle: "Eintracht, OFC und Mainz treten im Waldstadion an"
 ---
 
 Eintracht Frankfurt, Kickers Offenbach und der Erstligist FSV Mainz 05 haben sich gemeinsam und unbürokratisch darauf geeinigt, sich durch ein Benefizturnier an den weltweiten Hilfsaktionen nach der verheerenden Flutkatastrophe in Südasien zu beteiligen. Heribert Bruchhagen, Dieter Müller und Christian Heidel haben deshalb beschlossen am 21. Februar 2005 ab 19:30 Uhr ein Benefizturnier im Frankfurter Waldstadion zu veranstalten. Bürgermeister Achim Vandreike, die Stadt Frankfurt als Bauträger des neuen Stadions, vertreten durch Herrn Dr. Kröll und die Baufirma Max Bögl unterstützen das Vorhaben und stellen das Waldstadion zur Verfügung. 

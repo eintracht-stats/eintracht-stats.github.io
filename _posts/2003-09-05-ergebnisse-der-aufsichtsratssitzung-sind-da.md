@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Ergebnisse der Aufsichtsratssitzung sind da
-subtitle: Ungültige Eintrittskarten im Umlauf!
+title: "Ergebnisse der Aufsichtsratssitzung sind da"
+subtitle: "Ungültige Eintrittskarten im Umlauf!"
 ---
 
 Viel neues hat sich auf der gestrigen Aufsichtsratssitzung nicht getan. e.V.-Vizepräsident Axel Hellmann übernimmt den Platz von Vorstand Heiko Beeck im Aufsichtsrat. Der letzte freie Platz in dem Gremium wird wohl zwischen dem Vorsitzenden der Frankfurter FDP-Fraktion, Volker Stein, und Volker Sparmann vergeben. Eine Einigung in der Managerfrage gab es noch immer nicht. Es wurde beschlossen, dass der Vorstand dem Aufsichtsrat seine Vorschläge unterbreiten soll. In den Zeitungen wird über Bernd Hölzenbein, Stephan Beutel und einen unbekannten Dritten spekuliert....

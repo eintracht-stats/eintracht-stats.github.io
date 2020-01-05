@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Athmosphärische Störungen zwischen Eintracht und Mainz
-subtitle: Was läuft mit Michael Thurk?
+title: "Athmosphärische Störungen zwischen Eintracht und Mainz"
+subtitle: "Was läuft mit Michael Thurk?"
 ---
 
 Der Mainzer Manager Christian Heidel hat Friedhelm Funkel kritisiert, da dieser offenbar im Trainingslager mit Stürmer Michael Thurk telefoniert hat, ohne die Mainzer Führung davon zu unterrichten. Friedhelm Funkel erklärte hierzu, dass er bereits vor drei Wochen mit Jürgen Klopp über Thurk gesprochen habe. Hintergrund des Streits ist offenbar eine Vereinbarung der beiden Clubs, dass Spieler mit laufenden Verträgen nicht gegenseitig abgeworben werden sollen.

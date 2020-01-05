@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 7  Wochen Sperre für Abraham
+title: "7  Wochen Sperre für Abraham"
 
 ---
 

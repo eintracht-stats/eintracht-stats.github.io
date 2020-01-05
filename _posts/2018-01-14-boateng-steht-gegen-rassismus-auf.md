@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Boateng steht gegen Rassismus auf
+title: "Boateng steht gegen Rassismus auf"
 
 ---
 

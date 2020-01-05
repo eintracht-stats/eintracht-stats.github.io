@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lange Pause für Russ
+title: "Lange Pause für Russ"
 
 ---
 

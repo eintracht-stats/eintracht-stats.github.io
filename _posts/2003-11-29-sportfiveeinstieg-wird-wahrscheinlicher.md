@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sportfive-Einstieg wird wahrscheinlicher
+title: "Sportfive-Einstieg wird wahrscheinlicher"
 
 ---
 

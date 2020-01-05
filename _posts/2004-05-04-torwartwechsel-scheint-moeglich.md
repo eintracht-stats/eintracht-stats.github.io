@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torwart-Wechsel scheint möglich
+title: "Torwart-Wechsel scheint möglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones bleibt Kapitän
+title: "Jones bleibt Kapitän"
 
 ---
 

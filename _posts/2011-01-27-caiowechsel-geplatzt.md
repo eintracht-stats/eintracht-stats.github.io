@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Caio-Wechsel geplatzt!
+title: "Caio-Wechsel geplatzt!"
 
 ---
 

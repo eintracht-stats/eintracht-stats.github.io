@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones steigt ins Training ein
+title: "Jones steigt ins Training ein"
 
 ---
 

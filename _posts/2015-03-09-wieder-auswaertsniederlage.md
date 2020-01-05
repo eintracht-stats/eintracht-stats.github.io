@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder Auswärtsniederlage
+title: "Wieder Auswärtsniederlage"
 
 ---
 

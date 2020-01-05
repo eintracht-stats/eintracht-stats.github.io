@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch keine weiteren Neuzugänge
-subtitle: Bruchhagen stützt Reimann
+title: "Noch keine weiteren Neuzugänge"
+subtitle: "Bruchhagen stützt Reimann"
 ---
 
 Zur Stunde hat die Eintracht noch keinen weiteren Neuzugang bestätigt. Aber es kommen immer mehr Gerüchte hinzu: So soll beispielsweise Wolfsburgs Ersatzkeeper Ramovic im Gespräch sein. Aber konkret ist auch hier bislang nichts.Eigentlich ist es ja auch sehr lobenswert, dass von offizieller Seite nichts über Transfers nach draußen dringt, solange diese noch nicht in trockenen Tüchern sind. Aber es wäre halt sehr schön zu wissen, mit wem der Aufstieg geschafft werden soll. Naja, wir werden es schon noch erfahren...

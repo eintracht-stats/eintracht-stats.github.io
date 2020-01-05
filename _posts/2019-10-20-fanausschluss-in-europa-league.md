@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fan-Ausschluss in Europa League
+title: "Fan-Ausschluss in Europa League"
 
 ---
 

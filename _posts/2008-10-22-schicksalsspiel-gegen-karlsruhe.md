@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schicksalsspiel gegen Karlsruhe
+title: "Schicksalsspiel gegen Karlsruhe"
 
 ---
 

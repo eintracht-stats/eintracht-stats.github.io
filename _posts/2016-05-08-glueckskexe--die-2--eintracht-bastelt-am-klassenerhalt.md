@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glückskexe, die 2. - Eintracht bastelt am Klassenerhalt!
+title: "Glückskexe, die 2. - Eintracht bastelt am Klassenerhalt!"
 
 ---
 

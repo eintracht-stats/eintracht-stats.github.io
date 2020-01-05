@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pezzaiuoli wird technischer Direktor
+title: "Pezzaiuoli wird technischer Direktor"
 
 ---
 

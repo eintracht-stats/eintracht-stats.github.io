@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gerüchte um Jörg Berger 
+title: "Gerüchte um Jörg Berger "
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hubtschev wird wahrscheinlich Amateur-Trainer
+title: "Hubtschev wird wahrscheinlich Amateur-Trainer"
 
 ---
 

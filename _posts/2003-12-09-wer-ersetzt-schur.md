@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wer ersetzt Schur?
-subtitle: Landet Cipi nach Sperre auf der Bank?
+title: "Wer ersetzt Schur?"
+subtitle: "Landet Cipi nach Sperre auf der Bank?"
 ---
 
 Noch ist nicht klar, wie die Defensivabteilung der Eintracht beim Spiel in Bochum aussehen wird. Alexander Schur ist bekanntlich gesperrt. Dafür hat Geri Cipi seine Strafe abgesessen und könnte wieder mitspielen. Allerdings: Er hat seine Stärken nicht gerade im Spielaufbau. Und gerade bei der Spieleröffnung hatte die Eintracht ohne ihn zuletzt besser ausgesehen...

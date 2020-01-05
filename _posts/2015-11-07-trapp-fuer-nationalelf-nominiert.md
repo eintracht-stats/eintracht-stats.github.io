@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp für Nationalelf nominiert
+title: "Trapp für Nationalelf nominiert"
 
 ---
 

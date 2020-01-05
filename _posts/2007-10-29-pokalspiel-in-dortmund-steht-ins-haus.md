@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalspiel in Dortmund steht ins Haus
+title: "Pokalspiel in Dortmund steht ins Haus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov unterschreibt in Philadelphia
+title: "Nikolov unterschreibt in Philadelphia"
 
 ---
 

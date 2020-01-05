@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht unterliegt Nürnberg
-subtitle: Spiel vor dem Abbruch
+title: "Eintracht unterliegt Nürnberg"
+subtitle: "Spiel vor dem Abbruch"
 ---
 
 Ich weiß im Moment nicht, was mich mehr aufregt: Die katastrophale Leistung unserer Mannschaft heute oder die Idioten im Nürnberger Block, die mit ihren Feuerwerkskörpern für eine 20minütige Spielunterbrechung Mitte der ersten Halbzeit gesorgt hatten...

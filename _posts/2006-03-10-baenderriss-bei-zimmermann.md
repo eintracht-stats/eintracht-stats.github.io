@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bänderriss bei Zimmermann
+title: "Bänderriss bei Zimmermann"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tausch Lehmann/Lanig?
+title: "Tausch Lehmann/Lanig?"
 
 ---
 

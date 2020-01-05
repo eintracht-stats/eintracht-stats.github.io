@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Teber kommt zur Eintracht!
+title: "Teber kommt zur Eintracht!"
 
 ---
 

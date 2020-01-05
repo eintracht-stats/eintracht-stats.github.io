@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vasoski wird Jugendtrainer in seiner Heimat
+title: "Vasoski wird Jugendtrainer in seiner Heimat"
 
 ---
 

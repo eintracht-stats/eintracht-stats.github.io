@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Augsburg
+title: "Eintracht schlägt Augsburg"
 
 ---
 

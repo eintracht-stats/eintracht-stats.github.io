@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll bekommt "Schutzpanzer"
+title: "Pröll bekommt Schutzpanzer"
 
 ---
 

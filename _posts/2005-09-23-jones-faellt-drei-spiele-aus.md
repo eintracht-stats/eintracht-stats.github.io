@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones fällt drei Spiele aus
+title: "Jones fällt drei Spiele aus"
 
 ---
 

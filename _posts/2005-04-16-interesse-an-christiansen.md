@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Interesse an Christiansen?
-subtitle: Neues Trikot vorgestellt
+title: "Interesse an Christiansen?"
+subtitle: "Neues Trikot vorgestellt"
 ---
 
 Die Eintracht soll Interesse an Thomas Christiansen von Hannover 96 haben. Der 32jährige Spanier - vor zwei Jahren noch Bundesliga-Torschützenkönig - kommt mit Trainer Ewald Lienen nicht zurecht. Neben der ungewissen Ligazugehörigkeit der Eintracht sprechen aber die finanziellen Rahmenbedingungen gegen diesen Transfer...

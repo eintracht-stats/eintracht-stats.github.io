@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bild- Schuster soll auf der Liste stehen...
+title: "Bild: Schuster soll auf der Liste stehen..."
 
 ---
 

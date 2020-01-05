@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hasebe fällt aus, Salcedo debütiert
+title: "Hasebe fällt aus, Salcedo debütiert"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert mit 1-3
-subtitle: Bayern klar überlegen
+title: "Eintracht verliert mit 1:3"
+subtitle: "Bayern klar überlegen"
 ---
 
 Das Auftaktspiel dieser 41. Bundesliga-Saison ging so aus wie man es eigentlich allgemein erwartet hatte: Die Bayern siegten gegen die Eintracht ohne große Mühe mit 3:1 und hätten auch wesentlich höher gewinnen können. Die Eintracht begann zwar wirklich gut und kam in der ersten Viertelstunde über die Zweikämpfe ganz gut in die Partie. Doch dann legten die Bayern los...

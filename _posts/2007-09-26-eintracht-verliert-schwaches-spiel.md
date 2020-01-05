@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert schwaches Spiel
+title: "Eintracht verliert schwaches Spiel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris hat Bandscheibenvorfall
+title: "Chris hat Bandscheibenvorfall"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure übernehmen Tabellenspitze
+title: "Amateure übernehmen Tabellenspitze"
 
 ---
 

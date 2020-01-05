@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal-Knaller- Eintracht empfängt Lautern!
+title: "Pokal-Knaller: Eintracht empfängt Lautern!"
 
 ---
 

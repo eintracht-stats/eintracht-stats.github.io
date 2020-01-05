@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hradecky pokert weiter - Kommt Zimmermann?
+title: "Hradecky pokert weiter - Kommt Zimmermann?"
 
 ---
 

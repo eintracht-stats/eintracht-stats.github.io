@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weissenberger-Wechsel bestätigt
+title: "Weissenberger-Wechsel bestätigt"
 
 ---
 

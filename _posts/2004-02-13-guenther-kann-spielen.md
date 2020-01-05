@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Günther kann spielen
-subtitle: Russ bekommt Profivertrag
+title: "Günther kann spielen"
+subtitle: "Russ bekommt Profivertrag"
 ---
 
 Sven Günther könnte morgen wohl doch eingesetzt werden. Er hat sich beim Zusammenprall mit Nico Frommer eine Schultereckgelenk-Prellung zugezogen. Er konnte aber bereits wieder am Training teilnehmen. Andreas Möller muss vermutlich auf der Tribüne platznehmen. Willi Reimann hat bei ihm noch körperliche Defizite ausgemacht...

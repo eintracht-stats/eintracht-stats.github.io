@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-VfB Marburg
+title: "Eintracht-VfB Marburg"
 
 ---
 

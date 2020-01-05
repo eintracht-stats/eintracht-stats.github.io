@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Boateng bleibt wohl
+title: "Boateng bleibt wohl"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wichtiger Sieg im Kellerduell
+title: "Wichtiger Sieg im Kellerduell"
 
 ---
 

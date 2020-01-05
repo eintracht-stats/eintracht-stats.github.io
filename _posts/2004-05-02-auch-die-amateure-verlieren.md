@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch die Amateure verlieren
+title: "Auch die Amateure verlieren"
 
 ---
 

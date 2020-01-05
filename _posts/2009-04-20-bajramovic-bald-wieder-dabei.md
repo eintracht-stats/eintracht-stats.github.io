@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bajramovic bald wieder dabei
+title: "Bajramovic bald wieder dabei"
 
 ---
 

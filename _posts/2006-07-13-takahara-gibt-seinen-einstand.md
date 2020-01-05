@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara gibt seinen Einstand
+title: "Takahara gibt seinen Einstand"
 
 ---
 

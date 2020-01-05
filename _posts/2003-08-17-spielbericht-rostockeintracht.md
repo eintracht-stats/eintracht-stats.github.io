@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielbericht Rostock-Eintracht
+title: "Spielbericht Rostock-Eintracht"
 
 ---
 

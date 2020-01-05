@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht darf Clubzentrale bauen
+title: "Eintracht darf Clubzentrale bauen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Entwarnung bei Takahara
+title: "Entwarnung bei Takahara"
 
 ---
 

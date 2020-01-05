@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unglücklicher Punktverlust gegen Wolfsburg
+title: "Unglücklicher Punktverlust gegen Wolfsburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sensationelle Hinrunde endet mit Sieg in Wolfsburg
+title: "Sensationelle Hinrunde endet mit Sieg in Wolfsburg"
 
 ---
 

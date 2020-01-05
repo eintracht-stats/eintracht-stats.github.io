@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bundesligaauftakt in Bremen
+title: "Bundesligaauftakt in Bremen"
 
 ---
 

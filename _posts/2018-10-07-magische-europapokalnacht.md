@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Magische Europapokal-Nacht
+title: "Magische Europapokal-Nacht"
 
 ---
 

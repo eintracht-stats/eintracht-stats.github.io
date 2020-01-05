@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorverkauf für drei Spiele beginnt morgen
+title: "Vorverkauf für drei Spiele beginnt morgen"
 
 ---
 

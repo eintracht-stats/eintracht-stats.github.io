@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fink ist Torschütze des Monats
+title: "Fink ist Torschütze des Monats"
 
 ---
 

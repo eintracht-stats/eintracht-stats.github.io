@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an schottischem Stürmer dran
+title: "Eintracht an schottischem Stürmer dran"
 
 ---
 

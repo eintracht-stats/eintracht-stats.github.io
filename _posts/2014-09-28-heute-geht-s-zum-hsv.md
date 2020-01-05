@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heute geht's zum HSV
+title: "Heute geht's zum HSV"
 
 ---
 

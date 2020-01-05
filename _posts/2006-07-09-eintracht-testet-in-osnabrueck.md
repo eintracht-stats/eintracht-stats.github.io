@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet in Osnabrück
+title: "Eintracht testet in Osnabrück"
 
 ---
 

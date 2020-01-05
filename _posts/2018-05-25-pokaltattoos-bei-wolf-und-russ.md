@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokaltattoos bei Wolf und Russ
+title: "Pokaltattoos bei Wolf und Russ"
 
 ---
 

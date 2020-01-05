@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt gegen Wetzlar
+title: "Eintracht gewinnt gegen Wetzlar"
 
 ---
 

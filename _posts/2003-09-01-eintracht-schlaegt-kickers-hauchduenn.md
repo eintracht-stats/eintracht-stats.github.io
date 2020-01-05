@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt Kickers hauchdünn
-subtitle: Jones verwandelt entscheidenden Elfmeter
+title: "Eintracht schlägt Kickers hauchdünn"
+subtitle: "Jones verwandelt entscheidenden Elfmeter"
 ---
 
 Mit viel Dusel hat die Eintracht die zweite Runde im DFB-Pokal erreicht. Das Derby in Offenbach wurde erst im Elfmeterschießen entschieden...Die Eintracht, die gegenüber dem letzten Spiel auf einer Position verändert auflief (Beierle statt Jones), hatte nach etwa 8 Minuten die erste gute Möglichkeit. Andree Wiedeners Direktabnahme konnte Cesar Thier im Kasten der Offenbacher jedoch parieren. Danach kamen die Kickers besser in die Partie.

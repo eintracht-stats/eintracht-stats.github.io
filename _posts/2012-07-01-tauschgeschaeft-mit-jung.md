@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tauschgeschäft mit Jung?
+title: "Tauschgeschäft mit Jung?"
 
 ---
 

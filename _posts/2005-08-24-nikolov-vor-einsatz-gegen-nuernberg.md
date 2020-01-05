@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov vor Einsatz gegen Nürnberg
+title: "Nikolov vor Einsatz gegen Nürnberg"
 
 ---
 

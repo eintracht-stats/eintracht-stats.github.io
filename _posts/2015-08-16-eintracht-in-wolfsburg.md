@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Wolfsburg
+title: "Eintracht in Wolfsburg"
 
 ---
 

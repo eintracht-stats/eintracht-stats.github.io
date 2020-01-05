@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure bleiben vorne
+title: "Amateure bleiben vorne"
 
 ---
 

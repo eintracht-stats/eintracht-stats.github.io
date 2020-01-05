@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt FSV
+title: "Eintracht schlägt FSV"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schlagen Klein-Karben deutlich
+title: "Amateure schlagen Klein-Karben deutlich"
 
 ---
 

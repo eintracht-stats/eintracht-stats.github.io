@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Armin Veh verlässt Eintracht
+title: "Armin Veh verlässt Eintracht"
 
 ---
 

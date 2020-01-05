@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wolf geht nach Dortmund
+title: "Wolf geht nach Dortmund"
 
 ---
 

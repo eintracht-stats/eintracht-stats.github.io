@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spychers erster WM-Auftritt
+title: "Spychers erster WM-Auftritt"
 
 ---
 

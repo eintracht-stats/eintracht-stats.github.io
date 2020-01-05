@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll verklagt die Eintracht
+title: "Pröll verklagt die Eintracht"
 
 ---
 

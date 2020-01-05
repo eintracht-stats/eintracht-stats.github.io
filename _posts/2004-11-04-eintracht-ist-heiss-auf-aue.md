@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht ist heiß auf Aue
+title: "Eintracht ist heiß auf Aue"
 
 ---
 

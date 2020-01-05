@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mascarell geht nach Schalke
+title: "Mascarell geht nach Schalke"
 
 ---
 

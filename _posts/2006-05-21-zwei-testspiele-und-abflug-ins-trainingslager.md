@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Testspiele und Abflug ins Trainingslager
+title: "Zwei Testspiele und Abflug ins Trainingslager"
 
 ---
 

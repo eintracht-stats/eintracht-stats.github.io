@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis angeschlagen, Bellaid verletzt
+title: "Amanatidis angeschlagen, Bellaid verletzt"
 
 ---
 

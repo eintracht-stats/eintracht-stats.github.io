@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis kehrt zurück
+title: "Amanatidis kehrt zurück"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gewinnen in Wörsdorf
+title: "Amateure gewinnen in Wörsdorf"
 
 ---
 

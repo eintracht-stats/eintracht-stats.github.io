@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Schalke! Eintracht bleibt auf Kurs
+title: "Sieg gegen Schalke! Eintracht bleibt auf Kurs"
 
 ---
 

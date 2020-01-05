@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Farfan - Sommerloch oder ist doch was dran?
+title: "Farfan - Sommerloch oder ist doch was dran?"
 
 ---
 

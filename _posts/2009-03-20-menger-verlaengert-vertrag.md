@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Menger verlängert Vertrag
+title: "Menger verlängert Vertrag"
 
 ---
 

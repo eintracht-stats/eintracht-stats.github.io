@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffmann hat unterschrieben
+title: "Hoffmann hat unterschrieben"
 
 ---
 

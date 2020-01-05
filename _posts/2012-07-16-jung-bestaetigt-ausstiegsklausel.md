@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung bestätigt Ausstiegsklausel
+title: "Jung bestätigt Ausstiegsklausel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: CAS bestätigt Sperre für Chris
+title: "CAS bestätigt Sperre für Chris"
 
 ---
 

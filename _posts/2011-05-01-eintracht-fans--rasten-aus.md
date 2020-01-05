@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-"Fans" rasten aus
+title: "Eintracht-Fans rasten aus"
 
 ---
 

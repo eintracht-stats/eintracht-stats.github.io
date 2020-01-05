@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bundesliga-Auftakt- Eintracht empfängt die Hertha
+title: "Bundesliga-Auftakt: Eintracht empfängt die Hertha"
 
 ---
 

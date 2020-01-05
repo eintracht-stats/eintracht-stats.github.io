@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lenze- Sprunggelenk verletzt
+title: "Lenze: Sprunggelenk verletzt"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Niederlage zum Saisonabschluss
-subtitle: VfB Stuttgart ist Meister
+title: "Niederlage zum Saisonabschluss"
+subtitle: "VfB Stuttgart ist Meister"
 ---
 
 Wie schon im letzten Jahr hat die Eintracht nach dem gelungenen Klassenerhalt am letzten Spieltag eine Niederlage einstecken müssen. Hertha BSC Berlin gelang ein 2:1-Sieg - und ich glaube, die Herthaner wissen selbst noch nicht, wie sie das geschafft haben...

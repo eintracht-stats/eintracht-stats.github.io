@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwacher Auftritt beim Hallenturnier in Riesa
+title: "Schwacher Auftritt beim Hallenturnier in Riesa"
 
 ---
 

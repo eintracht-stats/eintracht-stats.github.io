@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Bochum!
+title: "Sieg in Bochum!"
 
 ---
 

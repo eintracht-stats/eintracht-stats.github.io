@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Innenbandriss bei Schwegler
+title: "Innenbandriss bei Schwegler"
 
 ---
 

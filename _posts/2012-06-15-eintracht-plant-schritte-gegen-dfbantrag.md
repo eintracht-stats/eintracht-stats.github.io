@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht plant Schritte gegen DFB-Antrag
+title: "Eintracht plant Schritte gegen DFB-Antrag"
 
 ---
 

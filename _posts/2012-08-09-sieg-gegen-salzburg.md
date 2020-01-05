@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Salzburg
+title: "Sieg gegen Salzburg"
 
 ---
 

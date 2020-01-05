@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Geht Chris zum HSV?
+title: "Geht Chris zum HSV?"
 
 ---
 

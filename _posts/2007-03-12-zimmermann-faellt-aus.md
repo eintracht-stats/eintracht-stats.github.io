@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zimmermann fällt aus
+title: "Zimmermann fällt aus"
 
 ---
 

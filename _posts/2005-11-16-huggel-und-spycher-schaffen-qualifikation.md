@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel und Spycher schaffen Qualifikation
+title: "Huggel und Spycher schaffen Qualifikation"
 
 ---
 

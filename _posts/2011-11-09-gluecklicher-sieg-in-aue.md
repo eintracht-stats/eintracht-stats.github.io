@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glücklicher Sieg in Aue
+title: "Glücklicher Sieg in Aue"
 
 ---
 

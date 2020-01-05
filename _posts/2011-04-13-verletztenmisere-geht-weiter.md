@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletztenmisere geht weiter
+title: "Verletztenmisere geht weiter"
 
 ---
 

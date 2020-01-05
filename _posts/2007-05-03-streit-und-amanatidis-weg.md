@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Streit und Amanatidis weg?
-subtitle: Preuß vor Comeback
+title: "Streit und Amanatidis weg?"
+subtitle: "Preuß vor Comeback"
 ---
 
 Albert Streit forciert weiter seinen Wechsel nach Ende der Saison. Nächster heißer Kandidat ist offenbar der HSV, so sein Ex-Trainer Huub Stevens unter Vertrag steht. Bei einem Abstieg könnte Streit ablösefrei gehen, ansonsten würde eine Ablösesumme fällig. Ein Grund mehr, gegen Aachen zu gewinnen. Nicht dass solche *neinichredemichnichtumkopfundkragen* auch noch belohnt werden... An Ioannis Amanatidis soll zudem der 1. FC Nürnberg Interesse haben. Alles Nachrichten, die man überhaupt nicht gebrauchen kann.

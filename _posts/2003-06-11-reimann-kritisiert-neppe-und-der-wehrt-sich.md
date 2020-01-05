@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann kritisiert Neppe - und der wehrt sich!
-subtitle: Kommt Barten doch? Ganea-Wechsel unwahrscheinlich...
+title: "Reimann kritisiert Neppe - und der wehrt sich!"
+subtitle: "Kommt Barten doch? Ganea-Wechsel unwahrscheinlich..."
 ---
 
 Angesichts einiger Äußerungen von Jürgen Neppe hat Willi Reimann den Aufsichtsratschef kritisiert. Der Trainer warf ihm vor, sich in den Vordergrund spielen zu wollen. Er solle sich aus Personalfragen im sportlichen Bereich heraushalten, da er ein anderes Arbeitsgebiet habe. Nur die sportlich Verantwortlichen seien für Spielerverpflichtungen zuständig.

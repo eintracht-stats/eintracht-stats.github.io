@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolg in Bergamo
+title: "Erfolg in Bergamo"
 
 ---
 

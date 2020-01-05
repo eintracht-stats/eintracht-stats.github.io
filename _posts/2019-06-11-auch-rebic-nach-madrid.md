@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Rebic nach Madrid?
+title: "Auch Rebic nach Madrid?"
 
 ---
 

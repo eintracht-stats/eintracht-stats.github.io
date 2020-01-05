@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler vor Comeback
+title: "Schwegler vor Comeback"
 
 ---
 

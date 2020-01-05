@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Doch keine personalisierten Auswärtstickets
+title: "Doch keine personalisierten Auswärtstickets"
 
 ---
 

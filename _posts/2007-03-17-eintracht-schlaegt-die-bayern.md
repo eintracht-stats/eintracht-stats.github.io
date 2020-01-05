@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt die Bayern!
-subtitle: Sensationeller Fallrückzieher entscheidet das Spiel
+title: "Eintracht schlägt die Bayern!"
+subtitle: "Sensationeller Fallrückzieher entscheidet das Spiel"
 ---
 
 Diesmal hat der Beton gehalten: Mit einer extrem defensiv eingestellen Mannschaft hat die Eintracht heute gegen den FC Bayern mit 1:0 gewonnen. Mit Vasoski, Chris, Kyrgiakos, Ochs, Fink, Spycher und Preuß standen sieben Akteure in der Anfangsformation, deren Stärken eher im Defensivbereich liegen. Und so gestaltete sich auch die Partie...

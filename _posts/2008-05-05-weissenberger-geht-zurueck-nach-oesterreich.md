@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weissenberger geht zurück nach Österreich
+title: "Weissenberger geht zurück nach Österreich"
 
 ---
 

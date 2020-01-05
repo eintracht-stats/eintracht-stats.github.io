@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im Test gegen Hoechst
+title: "Sieg im Test gegen Hoechst"
 
 ---
 

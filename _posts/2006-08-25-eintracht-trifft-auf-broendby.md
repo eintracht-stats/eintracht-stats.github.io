@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht trifft auf Bröndby
-subtitle: Revanche für 90/91
+title: "Eintracht trifft auf Bröndby"
+subtitle: "Revanche für 90/91"
 ---
 
 Ich hab's gewusst! Als ich die Namen der 5 möglichen Gegner heute morgen erfahren hatte, war mir klar, dass es auf diesen hinausläuft: Die Eintracht beginnt die Uefa-Cup-Saison mit einem Heimspiel gegen Bröndby IF. Die Uefa hatte die ursprunglich geloste Reihenfolge getauscht, da kurz vor dem Hinspiel der FC Kopenhagen ein Heimspiel in der Champions League austrägt. So muss die Eintracht im Rückspiel eben vor gegnerischer Kulisse in die Gruppenphase einziehen - unmöglich ist das nicht. Und ich habe ja noch eine ganz persönliche Rechnung mit diesem Land offen. Also packen wir's an...

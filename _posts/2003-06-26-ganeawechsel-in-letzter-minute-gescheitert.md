@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Ganea-Wechsel in letzter Minute gescheitert
-subtitle: Keller und Bindewald weiterhin vertragslos...
+title: "Ganea-Wechsel in letzter Minute gescheitert"
+subtitle: "Keller und Bindewald weiterhin vertragslos..."
 ---
 
 Obwohl es gestern am frühen Abend noch so aussah, als ob alles in trockenen Tüchern sei, ist der Wechsel von Viorel Ganea zur Eintracht geplatzt. Ihm lag ein unterschriftsreifer Dreijahresvertrag vor, den seine Berater auch akzeptiert hatten. Dennoch steht Ganea nun vor einem Wechsel in die Türkei. 

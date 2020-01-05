@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rosenthal kann gehen
+title: "Rosenthal kann gehen"
 
 ---
 

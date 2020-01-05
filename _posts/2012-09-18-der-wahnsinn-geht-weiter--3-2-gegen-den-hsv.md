@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Wahnsinn geht weiter- 3:2 gegen den HSV
+title: "Der Wahnsinn geht weiter: 3:2 gegen den HSV"
 
 ---
 

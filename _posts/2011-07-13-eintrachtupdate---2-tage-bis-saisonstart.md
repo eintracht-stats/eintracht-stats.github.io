@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Update - 2 Tage bis Saisonstart!
+title: "Eintracht-Update - 2 Tage bis Saisonstart!"
 
 ---
 

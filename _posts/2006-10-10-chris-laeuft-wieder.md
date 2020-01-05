@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris läuft wieder
+title: "Chris läuft wieder"
 
 ---
 

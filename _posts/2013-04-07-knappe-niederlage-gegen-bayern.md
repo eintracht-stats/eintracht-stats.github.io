@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knappe Niederlage gegen Bayern
+title: "Knappe Niederlage gegen Bayern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nascimento absolvierte Probetraining
+title: "Nascimento absolvierte Probetraining"
 
 ---
 

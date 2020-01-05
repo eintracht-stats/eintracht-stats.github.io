@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weiterer Sieg gegen Aalen
+title: "Weiterer Sieg gegen Aalen"
 
 ---
 

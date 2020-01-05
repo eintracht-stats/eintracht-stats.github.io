@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zittersieg gegen Sandhausen
+title: "Zittersieg gegen Sandhausen"
 
 ---
 

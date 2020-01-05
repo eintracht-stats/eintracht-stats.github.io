@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov fällt aus
+title: "Nikolov fällt aus"
 
 ---
 

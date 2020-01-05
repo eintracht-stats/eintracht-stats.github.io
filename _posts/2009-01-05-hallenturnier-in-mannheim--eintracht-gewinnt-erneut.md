@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hallenturnier in Mannheim- Eintracht gewinnt erneut
+title: "Hallenturnier in Mannheim: Eintracht gewinnt erneut"
 
 ---
 

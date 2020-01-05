@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nächster Sieg im Test gegen Kassel
+title: "Nächster Sieg im Test gegen Kassel"
 
 ---
 

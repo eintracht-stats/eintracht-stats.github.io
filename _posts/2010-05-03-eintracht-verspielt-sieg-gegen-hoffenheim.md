@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verspielt Sieg gegen Hoffenheim
+title: "Eintracht verspielt Sieg gegen Hoffenheim"
 
 ---
 

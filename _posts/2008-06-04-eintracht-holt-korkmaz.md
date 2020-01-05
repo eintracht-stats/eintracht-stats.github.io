@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Korkmaz
+title: "Eintracht holt Korkmaz"
 
 ---
 

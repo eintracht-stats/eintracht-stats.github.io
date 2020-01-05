@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schützenfest im Derby
+title: "Schützenfest im Derby"
 
 ---
 

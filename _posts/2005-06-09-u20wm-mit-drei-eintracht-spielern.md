@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U20-WM mit drei Eintracht-Spielern
+title: "U20-WM mit drei Eintracht-Spielern"
 
 ---
 

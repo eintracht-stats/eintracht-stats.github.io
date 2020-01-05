@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hübner dementiert Jung-Gerüchte
+title: "Hübner dementiert Jung-Gerüchte"
 
 ---
 

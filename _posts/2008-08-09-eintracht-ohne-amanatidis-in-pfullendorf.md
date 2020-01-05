@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht ohne Amanatidis in Pfullendorf
+title: "Eintracht ohne Amanatidis in Pfullendorf"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fink fehlt zum Saisonauftakt
+title: "Fink fehlt zum Saisonauftakt"
 
 ---
 

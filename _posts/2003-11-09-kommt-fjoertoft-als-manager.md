@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt Fjörtoft als Manager?
+title: "Kommt Fjörtoft als Manager?"
 
 ---
 

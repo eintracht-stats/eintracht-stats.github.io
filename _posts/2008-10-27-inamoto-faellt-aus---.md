@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Inamoto fällt aus...
+title: "Inamoto fällt aus..."
 
 ---
 

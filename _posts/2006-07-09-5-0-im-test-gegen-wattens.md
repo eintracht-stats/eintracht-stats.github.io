@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 5-0 im Test gegen Wattens
+title: "5:0 im Test gegen Wattens"
 
 ---
 

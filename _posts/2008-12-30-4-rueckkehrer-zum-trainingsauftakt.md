@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4 Rückkehrer zum Trainingsauftakt
+title: "4 Rückkehrer zum Trainingsauftakt"
 
 ---
 

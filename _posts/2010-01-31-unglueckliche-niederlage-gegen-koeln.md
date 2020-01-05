@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Unglückliche Niederlage gegen Köln
-subtitle: Korkmaz erneut verletzt
+title: "Unglückliche Niederlage gegen Köln"
+subtitle: "Korkmaz erneut verletzt"
 ---
 
 Mit einem unglücklichen 1:2 gegen den 1. FC Köln endet Eintrachts Serie von 6 ungeschlagenen Spielen in Folge. Ausgerechnet ein Eigentor von Russ besiegelte die Niederlage...In der ersten Halbzeit war die Eintracht die Mannschaft mit wesentlich mehr Ballbesitz. Allerdings ging sie letztlich kein Risiko ein, so dass bis auf eine Chance von Ochs kaum Torraumszenen zu sehen waren.

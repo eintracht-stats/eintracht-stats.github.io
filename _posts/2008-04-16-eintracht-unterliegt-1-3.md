@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht unterliegt 1-3
-subtitle: Sieg wäre möglich gewesen
+title: "Eintracht unterliegt 1:3"
+subtitle: "Sieg wäre möglich gewesen"
 ---
 
 Was für eine Partie... Nach drei Minuten klärt Lucio auf der Linie. Nach einer halben Stunde schlägt Ochs (!) eine Traumflanke und Köhler (!) köpft das 1:0. Kurz vor der Pause hatte die Eintracht das 2:0 auf dem Fuß. Fenin hatte glänzend auf Amanatidis zurückgelegt, der freistehend vor dem leeren Tor zum Einwurf für Bayern "klärte". Ein unglaubliches Ding... Nach der Pause erneut Fenin - diesmal klärte Rensing an die Latte. Zu diesem Zeitpunkt hätte die Partie bereits entschieden sein müssen...

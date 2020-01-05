@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lösbare Aufgabe im Pokal
+title: "Lösbare Aufgabe im Pokal"
 
 ---
 

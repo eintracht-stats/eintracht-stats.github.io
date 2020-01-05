@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Thurk jetzt offiziell
+title: "Interesse an Thurk jetzt offiziell"
 
 ---
 

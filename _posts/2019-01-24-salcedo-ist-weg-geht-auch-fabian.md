@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Salcedo ist weg - geht auch Fabian?
+title: "Salcedo ist weg - geht auch Fabian?"
 
 ---
 

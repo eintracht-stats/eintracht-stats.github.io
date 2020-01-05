@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lautern-Karten können zurückgegeben werden
+title: "Lautern-Karten können zurückgegeben werden"
 
 ---
 

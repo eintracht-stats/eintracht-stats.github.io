@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel nimmt Mannschaft in Schutz
+title: "Funkel nimmt Mannschaft in Schutz"
 
 ---
 

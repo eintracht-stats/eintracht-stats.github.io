@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Personalspekulationen für Liga 2
+title: "Personalspekulationen für Liga 2"
 
 ---
 

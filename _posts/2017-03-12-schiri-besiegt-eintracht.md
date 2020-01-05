@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schiri besiegt Eintracht
+title: "Schiri besiegt Eintracht"
 
 ---
 

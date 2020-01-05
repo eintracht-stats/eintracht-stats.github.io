@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Kinsombi
+title: "Eintracht holt Kinsombi"
 
 ---
 

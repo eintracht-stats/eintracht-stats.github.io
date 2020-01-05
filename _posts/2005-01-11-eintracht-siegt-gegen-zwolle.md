@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt gegen Zwolle
+title: "Eintracht siegt gegen Zwolle"
 
 ---
 

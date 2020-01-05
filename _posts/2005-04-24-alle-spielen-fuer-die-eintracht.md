@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alle spielen für die Eintracht
+title: "Alle spielen für die Eintracht"
 
 ---
 

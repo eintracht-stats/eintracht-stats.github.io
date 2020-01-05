@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs ist angeschlagen
+title: "Ochs ist angeschlagen"
 
 ---
 

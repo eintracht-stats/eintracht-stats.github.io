@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alex Meier fällt wohl aus
+title: "Alex Meier fällt wohl aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Duisburg
+title: "Eintracht verliert gegen Duisburg"
 
 ---
 

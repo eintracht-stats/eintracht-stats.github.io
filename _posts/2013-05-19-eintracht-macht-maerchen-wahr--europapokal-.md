@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht macht Märchen wahr- Europapokal!!
+title: "Eintracht macht Märchen wahr: Europapokal!!"
 
 ---
 

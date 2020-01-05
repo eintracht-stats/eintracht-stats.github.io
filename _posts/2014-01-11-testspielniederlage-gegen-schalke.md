@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielniederlage gegen Schalke
+title: "Testspielniederlage gegen Schalke"
 
 ---
 

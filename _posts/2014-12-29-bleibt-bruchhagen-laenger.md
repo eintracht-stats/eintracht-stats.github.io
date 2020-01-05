@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bleibt Bruchhagen länger?
+title: "Bleibt Bruchhagen länger?"
 
 ---
 

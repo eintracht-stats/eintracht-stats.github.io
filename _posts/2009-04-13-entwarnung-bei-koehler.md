@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Entwarnung bei Köhler
+title: "Entwarnung bei Köhler"
 
 ---
 

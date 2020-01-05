@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht testet gegen Lüttich
-subtitle: Ochs in "katastrophalem Zustand"
+title: "Eintracht testet gegen Lüttich"
+subtitle: "Ochs in katastrophalem Zustand"
 ---
 
 Das Testspiel gegen Standard Lüttich ging mit 0:1 verloren. Markus Pröll, der nach der Verletzung am Ellenbogen sein Comeback gab, musste den Gegentreffer bereits in der ersten Minute hinnehmen. Es wurden insgesamt 17 Spieler eingesetzt, darunter auch Patrick Ochs. Friedhelm Funkel hatte zuvor den Fitnesszustand des Verteidigers kritisiert. Gestern hatte er bei einem Fitnesstest erhebliche Mühe, das Pensum zu bewältigen. Der Trainer dazu: "Er hat alles andere als professionell gearbeitet und ist in einem katastrophalen Zustand." Mit anderen Worten: Ochs hat während seiner Verletzungspause ein paar Kilo zugelegt...

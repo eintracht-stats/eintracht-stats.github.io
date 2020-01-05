@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Termine 2008 stehen fest
+title: "Erste Termine 2008 stehen fest"
 
 ---
 

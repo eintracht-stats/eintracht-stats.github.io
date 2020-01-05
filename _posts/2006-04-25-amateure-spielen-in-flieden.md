@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure spielen in Flieden
+title: "Amateure spielen in Flieden"
 
 ---
 

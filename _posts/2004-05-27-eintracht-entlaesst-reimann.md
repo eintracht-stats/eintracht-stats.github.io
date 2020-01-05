@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht entlässt Reimann
+title: "Eintracht entlässt Reimann"
 
 ---
 

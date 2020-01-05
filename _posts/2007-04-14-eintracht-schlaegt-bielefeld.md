@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt Bielefeld!
-subtitle: Befreiungsschlag im Abstiegskampf
+title: "Eintracht schlägt Bielefeld!"
+subtitle: "Befreiungsschlag im Abstiegskampf"
 ---
 
 Die Eintracht macht es auswärts wirklich IMMER spannend. Doch diesmal ist es zum Glück gut gegangen: Mit 4:2 gelingt ein Auswärtssieg in Bielefeld, der allerdings nicht so klar war, wie es das Ergebnis glauben macht. Es begann eigentlich wie immer: Amanatidis sorgte für die frühe Führung...

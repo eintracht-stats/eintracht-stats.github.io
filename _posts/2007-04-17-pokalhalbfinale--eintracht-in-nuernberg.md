@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalhalbfinale- Eintracht in Nürnberg
+title: "Pokalhalbfinale: Eintracht in Nürnberg"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Christoph Preuß fällt aus
-subtitle: Transfers in Winterpause geplant
+title: "Christoph Preuß fällt aus"
+subtitle: "Transfers in Winterpause geplant"
 ---
 
 Nach Patrick Ochs beginnt wohl auch für Christoph Preuß die Winterpause (unfreiwillig) früher. Preuß zog sich gestern einen Muskelfaserriss zu und musste zur Pause ausgewechselt werden. 

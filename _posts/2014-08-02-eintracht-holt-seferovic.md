@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Seferovic
+title: "Eintracht holt Seferovic"
 
 ---
 

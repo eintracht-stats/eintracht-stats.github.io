@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ausblick auf Mainz- Rehmer wieder dabei
+title: "Ausblick auf Mainz: Rehmer wieder dabei"
 
 ---
 

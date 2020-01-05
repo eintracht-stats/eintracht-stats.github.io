@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht chancenlos gegen Bielefeld
+title: "Eintracht chancenlos gegen Bielefeld"
 
 ---
 

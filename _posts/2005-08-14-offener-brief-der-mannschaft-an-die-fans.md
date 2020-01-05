@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offener Brief der Mannschaft an die Fans
+title: "Offener Brief der Mannschaft an die Fans"
 
 ---
 

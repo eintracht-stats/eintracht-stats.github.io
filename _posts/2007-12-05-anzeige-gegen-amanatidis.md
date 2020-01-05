@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anzeige gegen Amanatidis
+title: "Anzeige gegen Amanatidis"
 
 ---
 

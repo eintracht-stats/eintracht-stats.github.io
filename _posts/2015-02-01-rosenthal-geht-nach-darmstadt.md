@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rosenthal geht nach Darmstadt
+title: "Rosenthal geht nach Darmstadt"
 
 ---
 

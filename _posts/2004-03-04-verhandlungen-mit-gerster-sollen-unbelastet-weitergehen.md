@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verhandlungen mit Gerster sollen unbelastet weitergehen
+title: "Verhandlungen mit Gerster sollen unbelastet weitergehen"
 
 ---
 

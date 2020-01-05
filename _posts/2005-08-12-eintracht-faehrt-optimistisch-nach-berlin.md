@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht fährt optimistisch nach Berlin
+title: "Eintracht fährt optimistisch nach Berlin"
 
 ---
 

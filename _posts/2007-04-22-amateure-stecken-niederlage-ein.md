@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure stecken Niederlage ein
+title: "Amateure stecken Niederlage ein"
 
 ---
 

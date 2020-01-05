@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 7-0 gegen Walldorf
+title: "7:0 gegen Walldorf"
 
 ---
 

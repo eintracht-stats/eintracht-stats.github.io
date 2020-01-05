@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lothar Schämer ist tot
+title: "Lothar Schämer ist tot"
 
 ---
 

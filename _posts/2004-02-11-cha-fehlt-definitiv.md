@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Cha fehlt definitiv
-subtitle: Wie voll wird das Stadion?
+title: "Cha fehlt definitiv"
+subtitle: "Wie voll wird das Stadion?"
 ---
 
 Du-Ri Cha wird gegen Rostock endgültig nicht dabei sein. Er ist bereits nach Südkorea geflogen, wo er mit seiner Nationalmannschaft ein Freundschafts- und ein WM-Qualifikationsspiel bestreiten wird. Damit wird wohl Stefan Lexa am Samstag eine Chance von Beginn an erhalten.

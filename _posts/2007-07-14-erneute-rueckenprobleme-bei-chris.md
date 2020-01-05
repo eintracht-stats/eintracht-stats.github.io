@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erneute Rückenprobleme bei Chris
+title: "Erneute Rückenprobleme bei Chris"
 
 ---
 

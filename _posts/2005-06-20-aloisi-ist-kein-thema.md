@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aloisi ist kein Thema
+title: "Aloisi ist kein Thema"
 
 ---
 

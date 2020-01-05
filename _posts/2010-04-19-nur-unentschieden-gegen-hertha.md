@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nur Unentschieden gegen Hertha
-subtitle: Schwegler verschießt Elfmeter
+title: "Nur Unentschieden gegen Hertha"
+subtitle: "Schwegler verschießt Elfmeter"
 ---
 
 Nach einer denkbar schlechten Partie hat die Eintracht mit Glück einen Punkt gegen den jetzt wohl abgestiegenen Tabellenletzten aus Berlin geholt. Bei der Eintracht lief von Beginn an wenig zusammen. Die Offensive blieb weitgehend blass, während sich in der Abwehr einige Löcher offenbarten.

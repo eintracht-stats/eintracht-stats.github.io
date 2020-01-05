@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knappes Unentschieden in letzter Sekunde
+title: "Knappes Unentschieden in letzter Sekunde"
 
 ---
 

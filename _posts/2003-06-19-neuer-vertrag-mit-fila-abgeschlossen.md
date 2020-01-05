@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Vertrag mit FILA abgeschlossen
+title: "Neuer Vertrag mit FILA abgeschlossen"
 
 ---
 

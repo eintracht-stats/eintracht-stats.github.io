@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel blickt zuversichtlich auf das Wochenende
+title: "Funkel blickt zuversichtlich auf das Wochenende"
 
 ---
 

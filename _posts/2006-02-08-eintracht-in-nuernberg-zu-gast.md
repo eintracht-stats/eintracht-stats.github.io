@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Nürnberg zu Gast
+title: "Eintracht in Nürnberg zu Gast"
 
 ---
 

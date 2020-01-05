@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Seferovic wieder im Training - Varela ist da
+title: "Seferovic wieder im Training - Varela ist da"
 
 ---
 

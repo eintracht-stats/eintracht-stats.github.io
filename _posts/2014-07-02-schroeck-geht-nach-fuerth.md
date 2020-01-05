@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schröck geht nach Fürth
+title: "Schröck geht nach Fürth"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 spielt in Karben unentschieden
+title: "U23 spielt in Karben unentschieden"
 
 ---
 

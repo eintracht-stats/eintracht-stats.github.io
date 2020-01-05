@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klatsche in München
+title: "Klatsche in München"
 
 ---
 

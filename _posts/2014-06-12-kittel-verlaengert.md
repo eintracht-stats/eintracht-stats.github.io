@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kittel verlängert
+title: "Kittel verlängert"
 
 ---
 

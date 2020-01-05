@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vergibt den Sieg in Nürnberg
+title: "Eintracht vergibt den Sieg in Nürnberg"
 
 ---
 

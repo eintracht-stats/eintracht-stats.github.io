@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauftakt in Magdeburg
+title: "Pokalauftakt in Magdeburg"
 
 ---
 

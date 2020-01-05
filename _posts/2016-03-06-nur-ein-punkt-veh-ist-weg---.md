@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nur ein Punkt - Veh ist weg...
+title: "Nur ein Punkt - Veh ist weg..."
 
 ---
 

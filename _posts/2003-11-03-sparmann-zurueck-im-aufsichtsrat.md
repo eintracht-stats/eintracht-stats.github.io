@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sparmann zurück im Aufsichtsrat
+title: "Sparmann zurück im Aufsichtsrat"
 
 ---
 

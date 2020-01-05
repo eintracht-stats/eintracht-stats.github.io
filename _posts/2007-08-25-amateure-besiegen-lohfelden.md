@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure besiegen Lohfelden
+title: "Amateure besiegen Lohfelden"
 
 ---
 

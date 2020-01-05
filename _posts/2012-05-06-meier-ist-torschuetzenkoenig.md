@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier ist Torschützenkönig
+title: "Meier ist Torschützenkönig"
 
 ---
 

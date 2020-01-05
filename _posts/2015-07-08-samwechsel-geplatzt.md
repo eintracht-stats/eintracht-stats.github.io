@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sam-Wechsel geplatzt!
+title: "Sam-Wechsel geplatzt!"
 
 ---
 

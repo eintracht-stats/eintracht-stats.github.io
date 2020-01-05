@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure erneut siegreich
+title: "Amateure erneut siegreich"
 
 ---
 

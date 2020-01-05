@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klatsche in Bremen
+title: "Klatsche in Bremen"
 
 ---
 

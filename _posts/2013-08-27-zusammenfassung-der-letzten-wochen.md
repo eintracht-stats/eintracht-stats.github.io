@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zusammenfassung der letzten Wochen
+title: "Zusammenfassung der letzten Wochen"
 
 ---
 

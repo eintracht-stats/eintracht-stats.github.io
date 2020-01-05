@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punkt in Augsburg
+title: "Punkt in Augsburg"
 
 ---
 

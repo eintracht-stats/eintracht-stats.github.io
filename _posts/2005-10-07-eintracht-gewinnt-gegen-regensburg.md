@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt gegen Regensburg
+title: "Eintracht gewinnt gegen Regensburg"
 
 ---
 

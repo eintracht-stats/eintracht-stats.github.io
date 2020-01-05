@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara vor Abschied
+title: "Takahara vor Abschied"
 
 ---
 

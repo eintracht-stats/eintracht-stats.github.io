@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert in Saarbrücken
+title: "Eintracht verliert in Saarbrücken"
 
 ---
 

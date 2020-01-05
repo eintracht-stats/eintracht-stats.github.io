@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Neuigkeiten von der Mannschaft...
+title: "Keine Neuigkeiten von der Mannschaft..."
 
 ---
 

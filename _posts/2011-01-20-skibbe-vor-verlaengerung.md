@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Skibbe vor Verlängerung
+title: "Skibbe vor Verlängerung"
 
 ---
 

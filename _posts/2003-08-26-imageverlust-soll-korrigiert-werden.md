@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Image-Verlust soll korrigiert werden
-subtitle: Noch keine weiteren Verpflichtungen
+title: "Image-Verlust soll korrigiert werden"
+subtitle: "Noch keine weiteren Verpflichtungen"
 ---
 
 Bei der Eintracht versucht man, den durch Peter Schuster verursachten Image-Schaden zu begrenzen. Mehrere Aufsichtsräte kritisierten das Auftreten des Vorstandschefs und schlossen eine Wiederholung dieser Vorfälle aus. Ein Rücktritt Schusters scheint jedoch nicht mehr ausgeschlossen.

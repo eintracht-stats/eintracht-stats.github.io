@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lanig geht nach Nikosia
+title: "Lanig geht nach Nikosia"
 
 ---
 

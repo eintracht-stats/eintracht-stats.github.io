@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht siegt klar gegen Hannover
-subtitle: Galindo in Mexiko verschollen...
+title: "Eintracht siegt klar gegen Hannover"
+subtitle: "Galindo in Mexiko verschollen..."
 ---
 
 Mit einem 4:0 gegen Hannover 96 hat sich die Eintracht für die schwache Leistung in Dortmund rehabilitiert. Die Mannschaft von Trainer Funkel war über 90 Minuten die klar bessere Mannschaft und hätte vor allen Dingen in der ersten Halbzeit mehr als die bis dato 2 Treffer erzielen müssen.

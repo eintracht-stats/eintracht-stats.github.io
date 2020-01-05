@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Katar
+title: "Trainingslager in Katar"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Suche nach Bruchhagen-Nachfolger läuft
+title: "Suche nach Bruchhagen-Nachfolger läuft"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Russ und Spycher wohl fit
+title: "Russ und Spycher wohl fit"
 
 ---
 

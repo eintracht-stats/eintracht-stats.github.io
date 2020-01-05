@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Aigner
+title: "Eintracht verpflichtet Aigner"
 
 ---
 

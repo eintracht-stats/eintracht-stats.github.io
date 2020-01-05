@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Spekulationen um AG-Vorstand
+title: "Neue Spekulationen um AG-Vorstand"
 
 ---
 

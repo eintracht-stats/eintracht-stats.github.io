@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Mainz
+title: "Niederlage in Mainz"
 
 ---
 

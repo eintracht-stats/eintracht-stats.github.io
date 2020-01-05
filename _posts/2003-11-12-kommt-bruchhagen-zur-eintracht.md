@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt Bruchhagen zur Eintracht?
+title: "Kommt Bruchhagen zur Eintracht?"
 
 ---
 

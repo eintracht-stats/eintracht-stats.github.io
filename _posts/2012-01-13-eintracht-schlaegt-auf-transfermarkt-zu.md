@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt auf Transfermarkt zu
+title: "Eintracht schlägt auf Transfermarkt zu"
 
 ---
 

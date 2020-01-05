@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lenze kommt zur Eintracht
+title: "Lenze kommt zur Eintracht"
 
 ---
 

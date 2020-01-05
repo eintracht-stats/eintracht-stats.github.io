@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Und wieder ein Auswärtssieg!
+title: "Und wieder ein Auswärtssieg!"
 
 ---
 

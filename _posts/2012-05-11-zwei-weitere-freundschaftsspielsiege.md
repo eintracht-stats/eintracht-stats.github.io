@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei weitere Freundschaftsspiel-Siege
+title: "Zwei weitere Freundschaftsspiel-Siege"
 
 ---
 

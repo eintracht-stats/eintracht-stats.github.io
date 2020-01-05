@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Berlin - ohne Varela...
+title: "Eintracht in Berlin - ohne Varela..."
 
 ---
 

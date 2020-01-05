@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lakic geht nach Lautern
+title: "Lakic geht nach Lautern"
 
 ---
 

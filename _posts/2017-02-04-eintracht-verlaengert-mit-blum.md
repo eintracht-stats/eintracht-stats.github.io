@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlängert mit Blum
+title: "Eintracht verlängert mit Blum"
 
 ---
 

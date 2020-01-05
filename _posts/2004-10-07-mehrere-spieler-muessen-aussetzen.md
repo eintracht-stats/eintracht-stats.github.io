@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mehrere Spieler müssen aussetzen
+title: "Mehrere Spieler müssen aussetzen"
 
 ---
 

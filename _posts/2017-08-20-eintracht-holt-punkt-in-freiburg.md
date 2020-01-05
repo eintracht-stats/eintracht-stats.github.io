@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Freiburg
+title: "Eintracht holt Punkt in Freiburg"
 
 ---
 

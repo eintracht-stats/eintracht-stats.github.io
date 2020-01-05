@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure unterliegen Baunatal
+title: "Eintracht-Amateure unterliegen Baunatal"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Augsburg
+title: "Niederlage in Augsburg"
 
 ---
 

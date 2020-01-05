@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos erneut mit Nasenbeinbruch
+title: "Kyrgiakos erneut mit Nasenbeinbruch"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zahlt keine Ablöse für Chris
+title: "Eintracht zahlt keine Ablöse für Chris"
 
 ---
 

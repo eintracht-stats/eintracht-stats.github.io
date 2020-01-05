@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht Frohe Weihnachten
+title: "eintracht-stats.de wünscht Frohe Weihnachten"
 
 ---
 

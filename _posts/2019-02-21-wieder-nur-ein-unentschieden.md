@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder nur ein Unentschieden
+title: "Wieder nur ein Unentschieden"
 
 ---
 

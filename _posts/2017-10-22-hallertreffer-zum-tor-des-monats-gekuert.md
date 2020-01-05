@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Haller-Treffer zum Tor des Monats gekürt
+title: "Haller-Treffer zum Tor des Monats gekürt"
 
 ---
 

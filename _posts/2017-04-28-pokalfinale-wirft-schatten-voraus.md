@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalfinale wirft Schatten voraus
+title: "Pokalfinale wirft Schatten voraus"
 
 ---
 

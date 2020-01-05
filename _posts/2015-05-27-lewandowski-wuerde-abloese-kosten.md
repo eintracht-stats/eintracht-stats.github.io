@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lewandowski würde Ablöse kosten
+title: "Lewandowski würde Ablöse kosten"
 
 ---
 

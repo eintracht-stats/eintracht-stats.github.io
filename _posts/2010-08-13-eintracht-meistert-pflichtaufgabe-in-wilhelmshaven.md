@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht meistert Pflichtaufgabe in Wilhelmshaven
+title: "Eintracht meistert Pflichtaufgabe in Wilhelmshaven"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unglückliche Niederlage in Lüttich
+title: "Unglückliche Niederlage in Lüttich"
 
 ---
 

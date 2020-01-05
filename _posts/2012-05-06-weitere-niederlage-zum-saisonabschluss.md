@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weitere Niederlage zum Saisonabschluss
+title: "Weitere Niederlage zum Saisonabschluss"
 
 ---
 

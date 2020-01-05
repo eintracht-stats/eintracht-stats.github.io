@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Dortmund
+title: "Eintracht verliert gegen Dortmund"
 
 ---
 

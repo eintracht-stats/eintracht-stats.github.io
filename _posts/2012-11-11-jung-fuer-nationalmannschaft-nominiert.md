@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung für Nationalmannschaft nominiert!
+title: "Jung für Nationalmannschaft nominiert!"
 
 ---
 

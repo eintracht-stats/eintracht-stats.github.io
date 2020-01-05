@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bayern gewinnen mit Glück - Schiri schwächelt
+title: "Bayern gewinnen mit Glück - Schiri schwächelt"
 
 ---
 

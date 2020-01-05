@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones geht nach Schalke
+title: "Jones geht nach Schalke"
 
 ---
 

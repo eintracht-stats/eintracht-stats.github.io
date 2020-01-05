@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bendtner wieder im Gespräch
+title: "Bendtner wieder im Gespräch"
 
 ---
 

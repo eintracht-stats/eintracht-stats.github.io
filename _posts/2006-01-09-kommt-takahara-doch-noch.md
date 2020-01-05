@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt Takahara doch noch?
+title: "Kommt Takahara doch noch?"
 
 ---
 

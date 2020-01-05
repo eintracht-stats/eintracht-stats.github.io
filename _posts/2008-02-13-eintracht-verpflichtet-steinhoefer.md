@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Steinhöfer
+title: "Eintracht verpflichtet Steinhöfer"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuzugang möglich
+title: "Neuzugang möglich"
 
 ---
 

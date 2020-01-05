@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen vor Verlängerung
+title: "Bruchhagen vor Verlängerung"
 
 ---
 

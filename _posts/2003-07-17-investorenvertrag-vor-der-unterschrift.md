@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Investoren-Vertrag vor der Unterschrift
-subtitle: Eintracht siegt gegen Ederbergland
+title: "Investoren-Vertrag vor der Unterschrift"
+subtitle: "Eintracht siegt gegen Ederbergland"
 ---
 
 Offenbar soll noch in dieser Woche der Vertrag mit dem neuen Stadionbetreiber von der Stadt abgesegnet werden. Kandidat Stadivarios heißt jetzt Bravo Group und wird die Finanzierung des Projekts mit Hilfe der WestLB und - wie der Kicker berichtet - der Helaba stemmen. Wenn alles unter Dach und Fach ist, will der neue Betreiber eine Kapitalerhöhung in Höhe von 3,5 Millionen Euro bei der Fußball AG durchführen. Dann könnte die Eintracht möglicherweise noch einmal in einen neuen Spieler investieren. Wenn ich das so schreibe, wird mir ziemlich klar, dass ich eigenlich für meine Klausuren lernen müsste... :-)

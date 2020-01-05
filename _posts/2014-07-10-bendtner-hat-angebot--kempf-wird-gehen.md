@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bendtner hat Angebot, Kempf wird gehen
+title: "Bendtner hat Angebot, Kempf wird gehen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht sucht neue Finanzierungsquellen
+title: "Eintracht sucht neue Finanzierungsquellen"
 
 ---
 

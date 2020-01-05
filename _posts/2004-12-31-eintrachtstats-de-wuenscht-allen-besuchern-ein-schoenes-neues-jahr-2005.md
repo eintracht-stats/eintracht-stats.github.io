@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht allen Besuchern ein schönes neues Jahr 2005
+title: "eintracht-stats.de wünscht allen Besuchern ein schönes neues Jahr 2005"
 
 ---
 

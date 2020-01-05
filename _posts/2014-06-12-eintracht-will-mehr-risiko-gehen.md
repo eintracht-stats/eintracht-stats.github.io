@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will mehr Risiko gehen
+title: "Eintracht will mehr Risiko gehen"
 
 ---
 

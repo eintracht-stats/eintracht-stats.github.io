@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov verlängert
+title: "Nikolov verlängert"
 
 ---
 

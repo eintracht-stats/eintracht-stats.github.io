@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Stadionbetreiber gefunden!
-subtitle: Reimann fordert Verstärkungen
+title: "Stadionbetreiber gefunden!"
+subtitle: "Reimann fordert Verstärkungen"
 ---
 
 Die Stadt Frankfurt hat endlich einen Betreiber für das neue Waldstadion gefunden. Die Neu-Isenburger HSG sowie Sportrechtehändler Sportfive werden Betrieb und Vermarktung des Stadion übernehmen. Der Vertrag beginnt am 1. Juli 2005 und läuft 15 Jahre. Ob die Unternehmen auch bei der Eintracht als Investor einsteigen, steht noch nicht fest. Pressesprecher Knoop bestätigte lediglich "konstruktive Verhandlungen" mit Sportfive...

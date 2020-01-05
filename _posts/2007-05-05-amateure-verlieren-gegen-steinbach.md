@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren gegen Steinbach
+title: "Amateure verlieren gegen Steinbach"
 
 ---
 

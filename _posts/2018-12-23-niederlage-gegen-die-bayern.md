@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen die Bayern
+title: "Niederlage gegen die Bayern"
 
 ---
 

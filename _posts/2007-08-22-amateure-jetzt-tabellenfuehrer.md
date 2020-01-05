@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure jetzt Tabellenführer
+title: "Amateure jetzt Tabellenführer"
 
 ---
 

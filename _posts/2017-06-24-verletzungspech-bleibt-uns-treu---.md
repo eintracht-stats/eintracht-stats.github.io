@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletzungspech bleibt uns treu...
+title: "Verletzungspech bleibt uns treu..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht weiter ungeschlagen
+title: "Eintracht weiter ungeschlagen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hubtschev tritt zurück
+title: "Hubtschev tritt zurück"
 
 ---
 

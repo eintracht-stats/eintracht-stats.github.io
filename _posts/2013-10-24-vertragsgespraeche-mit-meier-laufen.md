@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsgespräche mit Meier laufen
+title: "Vertragsgespräche mit Meier laufen"
 
 ---
 

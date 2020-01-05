@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ivica Horvat gestorben
+title: "Ivica Horvat gestorben"
 
 ---
 

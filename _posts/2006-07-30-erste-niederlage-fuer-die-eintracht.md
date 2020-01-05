@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Niederlage für die Eintracht
+title: "Erste Niederlage für die Eintracht"
 
 ---
 

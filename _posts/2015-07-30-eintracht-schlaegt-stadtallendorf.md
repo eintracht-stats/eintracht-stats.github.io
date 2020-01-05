@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Stadtallendorf
+title: "Eintracht schlägt Stadtallendorf"
 
 ---
 

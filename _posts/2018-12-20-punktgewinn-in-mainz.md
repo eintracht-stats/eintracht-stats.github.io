@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punktgewinn in Mainz
+title: "Punktgewinn in Mainz"
 
 ---
 

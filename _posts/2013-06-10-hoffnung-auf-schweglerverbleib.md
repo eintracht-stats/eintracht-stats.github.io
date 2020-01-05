@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffnung auf Schwegler-Verbleib
+title: "Hoffnung auf Schwegler-Verbleib"
 
 ---
 

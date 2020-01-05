@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Möller als Lippert-Nachfolger?
+title: "Möller als Lippert-Nachfolger?"
 
 ---
 

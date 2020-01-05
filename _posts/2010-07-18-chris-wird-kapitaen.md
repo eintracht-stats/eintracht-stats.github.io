@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris wird Kapitän
+title: "Chris wird Kapitän"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht wohl nicht gesetzt
+title: "Eintracht wohl nicht gesetzt"
 
 ---
 

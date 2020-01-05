@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Platz im Kader schaffen
+title: "Eintracht will Platz im Kader schaffen"
 
 ---
 

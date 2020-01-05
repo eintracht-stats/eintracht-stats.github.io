@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Friedel Rausch ist tot
+title: "Friedel Rausch ist tot"
 
 ---
 

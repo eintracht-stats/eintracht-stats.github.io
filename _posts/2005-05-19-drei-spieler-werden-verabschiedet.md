@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Drei Spieler werden verabschiedet
-subtitle: Keine Feier auf dem Rasen
+title: "Drei Spieler werden verabschiedet"
+subtitle: "Keine Feier auf dem Rasen"
 ---
 
 Der Einsatz von Jermaine Jones und Torben Hoffmann gegen Burghausen ist fraglich. Jones hat Fieber und soll mit Infusionen fit gemacht werden. Hoffmann hat eine Zerrung im Hüftmuskel. Man muss wohl abwarten... Unterdessen sprach Friedhelm Funkel dem Abwehrspieler erneut sein Vertrauen aus. Hoffmann wechselt bekanntlich zu 1860 München. Er wird vor dem Spiel im Stadion offiziell verabschiedet. Das gilt auch für Jens Keller, der seine Karriere beendet, und Markus Beierle. Wohin dessen Weg führt, ist unbekannt.

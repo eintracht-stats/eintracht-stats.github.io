@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Stuttgart
+title: "Niederlage in Stuttgart"
 
 ---
 

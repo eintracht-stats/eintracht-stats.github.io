@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht und Cottbus personell am Ende
+title: "Eintracht und Cottbus personell am Ende"
 
 ---
 

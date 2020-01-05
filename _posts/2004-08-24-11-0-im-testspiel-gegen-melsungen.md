@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 11-0 im Testspiel gegen Melsungen
+title: "11:0 im Testspiel gegen Melsungen"
 
 ---
 

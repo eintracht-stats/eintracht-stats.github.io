@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dost schießt uns ins Achtelfinale
+title: "Dost schießt uns ins Achtelfinale"
 
 ---
 

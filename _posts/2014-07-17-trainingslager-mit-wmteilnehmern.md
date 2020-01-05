@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager mit WM-Teilnehmern
+title: "Trainingslager mit WM-Teilnehmern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffer angeschlagen
+title: "Hoffer angeschlagen"
 
 ---
 

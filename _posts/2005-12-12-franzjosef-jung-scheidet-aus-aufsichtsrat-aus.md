@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Franz-Josef Jung scheidet aus Aufsichtsrat aus
+title: "Franz-Josef Jung scheidet aus Aufsichtsrat aus"
 
 ---
 

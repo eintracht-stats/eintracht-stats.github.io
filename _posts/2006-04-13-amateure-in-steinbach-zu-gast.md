@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure in Steinbach zu Gast
+title: "Amateure in Steinbach zu Gast"
 
 ---
 

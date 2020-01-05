@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht ohne Amanatidis
+title: "Eintracht ohne Amanatidis"
 
 ---
 

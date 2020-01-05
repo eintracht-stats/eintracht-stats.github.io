@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher fällt aus
+title: "Spycher fällt aus"
 
 ---
 

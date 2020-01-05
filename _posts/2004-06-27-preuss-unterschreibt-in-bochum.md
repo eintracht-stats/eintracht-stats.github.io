@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß unterschreibt in Bochum
+title: "Preuß unterschreibt in Bochum"
 
 ---
 

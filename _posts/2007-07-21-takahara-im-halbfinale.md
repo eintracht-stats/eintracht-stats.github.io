@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara im Halbfinale
+title: "Takahara im Halbfinale"
 
 ---
 

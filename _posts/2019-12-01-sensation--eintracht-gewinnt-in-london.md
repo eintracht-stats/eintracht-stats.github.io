@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sensation- Eintracht gewinnt in London
+title: "Sensation: Eintracht gewinnt in London"
 
 ---
 

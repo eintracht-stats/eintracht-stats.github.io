@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unentschieden in Cottbus
+title: "Unentschieden in Cottbus"
 
 ---
 

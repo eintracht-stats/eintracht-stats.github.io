@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reutershahn wohl neuer Co-Trainer
-subtitle: Was passiert mit Alex Schur?
+title: "Reutershahn wohl neuer Co-Trainer"
+subtitle: "Was passiert mit Alex Schur?"
 ---
 
 Armin Reutershahn wird nach Informationen der Frankfurter Rundschau neuer Co-Trainer. Er arbeitete mit Friedhelm Funkel bereits zu dessen Uerdinger Zeit zusammen.Tatsächlich gehen wird wohl Alexander Schur. Er hat Angebote von Alemannia Aachen und dem 1. FC Saarbrücken vorliegen, die laut seinem Berater Reisig besser sind als das der Eintracht. Schur kehrt an diesem Wochenende aus dem Urlaub zurück - dann wird eine Entscheidung fallen.

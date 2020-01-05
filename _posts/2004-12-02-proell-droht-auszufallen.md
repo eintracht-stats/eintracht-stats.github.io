@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll droht auszufallen!
+title: "Pröll droht auszufallen!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Russ kommt - auch zwei Neue gefunden?
+title: "Russ kommt - auch zwei Neue gefunden?"
 
 ---
 

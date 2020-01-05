@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Anderson
+title: "Eintracht holt Anderson"
 
 ---
 

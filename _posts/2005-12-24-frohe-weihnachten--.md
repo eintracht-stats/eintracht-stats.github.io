@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frohe Weihnachten!!!
+title: "Frohe Weihnachten!!!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Allagui dementiert Kontakt zur Eintracht
+title: "Allagui dementiert Kontakt zur Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A)-FV Bad Vilbel 0-2
+title: "Eintracht (A)-FV Bad Vilbel 0:2"
 
 ---
 

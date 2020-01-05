@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Steinhöfer geht nach Kaiserslautern
+title: "Steinhöfer geht nach Kaiserslautern"
 
 ---
 

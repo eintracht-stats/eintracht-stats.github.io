@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Pokalrunde ausgelost
+title: "Erste Pokalrunde ausgelost"
 
 ---
 

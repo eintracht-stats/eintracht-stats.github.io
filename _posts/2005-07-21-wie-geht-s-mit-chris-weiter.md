@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wie geht's mit Chris weiter?
+title: "Wie geht's mit Chris weiter?"
 
 ---
 

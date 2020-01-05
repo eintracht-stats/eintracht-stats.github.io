@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verdiente Niederlage gegen Leverkusen
+title: "Verdiente Niederlage gegen Leverkusen"
 
 ---
 

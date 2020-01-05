@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vorübergehend an der Spitze
+title: "Eintracht vorübergehend an der Spitze"
 
 ---
 

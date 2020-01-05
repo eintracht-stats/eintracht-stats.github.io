@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll bleibt - Copado kommt vielleicht erst 2005
+title: "Pröll bleibt - Copado kommt vielleicht erst 2005"
 
 ---
 

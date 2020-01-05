@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet zweimal und zahlt mal wieder...
+title: "Eintracht testet zweimal und zahlt mal wieder..."
 
 ---
 

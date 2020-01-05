@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Hannover
+title: "Eintracht in Hannover"
 
 ---
 

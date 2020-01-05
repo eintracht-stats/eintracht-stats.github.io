@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp-Verkauf kein Tabu
+title: "Trapp-Verkauf kein Tabu"
 
 ---
 

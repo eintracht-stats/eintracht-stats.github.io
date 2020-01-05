@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gibt Sieg aus der Hand
+title: "Eintracht gibt Sieg aus der Hand"
 
 ---
 

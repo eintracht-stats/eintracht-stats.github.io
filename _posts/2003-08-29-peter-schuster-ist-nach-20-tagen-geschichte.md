@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Peter Schuster ist nach 20 Tagen Geschichte
-subtitle: Montero erhielt offenbar Abfindung
+title: "Peter Schuster ist nach 20 Tagen Geschichte"
+subtitle: "Montero erhielt offenbar Abfindung"
 ---
 
 Peter Schuster wurde gestern vom Aufsichtsrat entlassen, nachdem er eine Frist zum Rücktritt hatte verstreichen lassen. Von Eintracht-Seite war diesbezüglich keine Stellungnahme zu erhalten. Allerdings äußerte sich der Betroffene selbst in der Hessenschau. Er sieht sich demnach als Opfer einer Verschwörung. Der Aufsichtsrat hätte den durch die Sportpresse verbreiteten "Unwahrheiten" entgegentreten müssen. Schuster hat sich allerdings selbst untragbar werden lassen und wird als ein weiterer Fehlgriff bzw. als eine der größten Peinlichkeiten, die sich die Eintracht jemals geleistet hat, in die Geschichte eingehen.

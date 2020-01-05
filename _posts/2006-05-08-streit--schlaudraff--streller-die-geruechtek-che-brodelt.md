@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit, Schlaudraff, Streller - die Gerüchteküche brodelt
+title: "Streit, Schlaudraff, Streller - die Gerüchteküche brodelt"
 
 ---
 

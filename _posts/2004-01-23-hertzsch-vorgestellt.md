@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hertzsch vorgestellt
-subtitle: Kommt ein weiterer Neuzugang?
+title: "Hertzsch vorgestellt"
+subtitle: "Kommt ein weiterer Neuzugang?"
 ---
 
 Heute wurde Ingo Hertzsch offiziell vorgestellt. Der Verteidiger wird mit der Rückennummer 33 für die Eintracht auflaufen. Er erklärte, dass ein sehr gutes Gespräch mit Willi Reimann den Ausschlag für die Eintracht gegeben habe. Hertzsch möchte (wie könnte es anders sein) mithelfen, den Klassenerhalt zu schaffen, was allerdings nur als Mannschaft zu erreichen sei.

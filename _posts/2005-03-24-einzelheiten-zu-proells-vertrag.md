@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Einzelheiten zu Prölls Vertrag
+title: "Einzelheiten zu Prölls Vertrag"
 
 ---
 

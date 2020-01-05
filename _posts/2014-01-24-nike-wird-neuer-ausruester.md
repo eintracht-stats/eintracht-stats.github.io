@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nike wird neuer Ausrüster
+title: "Nike wird neuer Ausrüster"
 
 ---
 

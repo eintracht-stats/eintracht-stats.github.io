@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflichtaufgabe im Pokal erfüllt
+title: "Pflichtaufgabe im Pokal erfüllt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp-Entschädigung lässt auf sich warten
+title: "Trapp-Entschädigung lässt auf sich warten"
 
 ---
 

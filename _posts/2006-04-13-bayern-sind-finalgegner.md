@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bayern sind Finalgegner
+title: "Bayern sind Finalgegner"
 
 ---
 

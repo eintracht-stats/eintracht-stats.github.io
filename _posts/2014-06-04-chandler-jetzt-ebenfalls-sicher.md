@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chandler jetzt ebenfalls sicher
+title: "Chandler jetzt ebenfalls sicher"
 
 ---
 

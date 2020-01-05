@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verschiebt Japan-Reise
+title: "Eintracht verschiebt Japan-Reise"
 
 ---
 

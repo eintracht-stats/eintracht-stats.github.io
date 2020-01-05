@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen scheidet aus Ligavorstand aus
+title: "Bruchhagen scheidet aus Ligavorstand aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Köln
+title: "Sieg gegen Köln"
 
 ---
 

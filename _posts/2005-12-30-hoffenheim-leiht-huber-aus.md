@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffenheim leiht Huber aus
+title: "Hoffenheim leiht Huber aus"
 
 ---
 

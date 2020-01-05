@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt erneut Griechen-Stürmer!
+title: "Eintracht holt erneut Griechen-Stürmer!"
 
 ---
 

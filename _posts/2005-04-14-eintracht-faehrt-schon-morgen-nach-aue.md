@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht fährt schon morgen nach Aue
-subtitle: Weissenberger kann noch nicht trainieren
+title: "Eintracht fährt schon morgen nach Aue"
+subtitle: "Weissenberger kann noch nicht trainieren"
 ---
 
 Das Spiel in Aue wirft langsam seine Schatten voraus: Bereits morgen, einen Tag früher als sonst, wird die Eintracht sich auf den Weg ins Erzgebirge machen. Von dieser Aktion erwartet Friedhelm Funkel keine Wunderdinge. Aber er hatte ja angekündigt diesmal etwas anders zu machen um endlich mal wieder auswärts zu gewinnen.

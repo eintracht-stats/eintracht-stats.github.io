@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Marco Fabián wohl erster Winterneuzugang
+title: "Marco Fabián wohl erster Winterneuzugang"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frommer verlässt die Eintracht
+title: "Frommer verlässt die Eintracht"
 
 ---
 

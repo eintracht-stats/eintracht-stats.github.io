@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sportgerichtsverfahren wegen Nürnberg-Krawallen eröffnet
+title: "Sportgerichtsverfahren wegen Nürnberg-Krawallen eröffnet"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage mit 10 Mann - Abstiegsplatz...
+title: "Niederlage mit 10 Mann - Abstiegsplatz..."
 
 ---
 

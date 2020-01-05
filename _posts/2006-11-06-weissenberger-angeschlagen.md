@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weissenberger angeschlagen
+title: "Weissenberger angeschlagen"
 
 ---
 

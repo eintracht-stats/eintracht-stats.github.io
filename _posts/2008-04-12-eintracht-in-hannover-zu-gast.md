@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Hannover zu Gast
+title: "Eintracht in Hannover zu Gast"
 
 ---
 

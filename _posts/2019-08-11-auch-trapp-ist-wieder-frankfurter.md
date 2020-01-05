@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Trapp ist wieder Frankfurter
+title: "Auch Trapp ist wieder Frankfurter"
 
 ---
 

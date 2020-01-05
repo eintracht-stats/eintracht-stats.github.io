@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Frankfurter im WM-Viertelfinale
+title: "Drei Frankfurter im WM-Viertelfinale"
 
 ---
 

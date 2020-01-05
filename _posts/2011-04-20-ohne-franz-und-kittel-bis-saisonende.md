@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Franz und Kittel bis Saisonende
+title: "Ohne Franz und Kittel bis Saisonende"
 
 ---
 

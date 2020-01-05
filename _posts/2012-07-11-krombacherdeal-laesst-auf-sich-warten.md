@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krombacher-Deal lässt auf sich warten
+title: "Krombacher-Deal lässt auf sich warten"
 
 ---
 

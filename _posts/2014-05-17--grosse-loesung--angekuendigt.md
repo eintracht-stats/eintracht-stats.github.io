@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Große Lösung" angekündigt
+title: "Große Lösung angekündigt"
 
 ---
 

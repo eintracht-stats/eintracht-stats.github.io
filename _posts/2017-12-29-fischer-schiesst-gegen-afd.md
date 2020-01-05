@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fischer schießt gegen AfD
+title: "Fischer schießt gegen AfD"
 
 ---
 

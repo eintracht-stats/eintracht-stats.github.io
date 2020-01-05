@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht dreht Spiel gegen Stuttgart
+title: "Eintracht dreht Spiel gegen Stuttgart"
 
 ---
 

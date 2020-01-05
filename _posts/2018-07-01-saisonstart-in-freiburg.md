@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saisonstart in Freiburg
+title: "Saisonstart in Freiburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unentschieden gegen Wolfsburg
+title: "Unentschieden gegen Wolfsburg"
 
 ---
 

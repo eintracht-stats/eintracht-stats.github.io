@@ -1,7 +1,7 @@
 ---
 layout: post
-title: 1-1 gegen Dortmund
-subtitle: Amanatidis verlängert vorzeitig
+title: "1:1 gegen Dortmund"
+subtitle: "Amanatidis verlängert vorzeitig"
 ---
 
 Wieder kein Sieg, wieder eine Führung nicht nach Hause gebracht: Gegen Borussia Dortmund reichte es für die Eintracht heute nur zu einem 1:1. Nach langweiliger erster Spielhälfte begann die zweite Halbzeit mit einem Paukenschlag: Ochs hatte eine super Flanke in die Mitte geschlagen, wo unser neues Kopfballungeheuer Benjamin Köhler zur Führung traf. Im direkten Gegenzug lenkte Pröll einen Kruska-Schuss an die Unterkante der Latte. In den ersten zwei Minuten nach der Pause war mehr passiert als in den 45 Minuten zuvor...

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wer wird die Nr. 1?
-subtitle: Derby-Übertragung weiter fraglich
+title: "Wer wird die Nr. 1?"
+subtitle: "Derby-Übertragung weiter fraglich"
 ---
 
 Willi Reimann hat noch keine Entscheidung getroffen, wer die Nr. 1 im Tor wird. Einen ersten Hinweis wird es morgen beim Testspiel gegen Nürnberg geben: Dort werden die beiden ersten Torhüter jeweils eine Halbzeit spielen. Die endgültige Entscheidung fällt aber erst nächste Woche.

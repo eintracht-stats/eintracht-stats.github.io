@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Weissenberger will gehen
-subtitle: Funkel legt Cimen Wechsel nahe
+title: "Weissenberger will gehen"
+subtitle: "Funkel legt Cimen Wechsel nahe"
 ---
 
 Markus Weissenberger hat angekündigt, die Eintracht verlassen zu wollen. Er möchte sich für die österreichische Nationalmannschaft im Hinblick auf die EM 2008 empfehlen und möchte deshalb natürlich regelmäßig spielen. Bei der Eintracht bekommt er wenig Spielpraxis, weil seine Position mit Alex Meier besetzt ist. Weissenbergers Vertrag läuft am Saisonende aus und wird wahrscheinlich ohnehin nicht verlängert. Ob ein Wechsel in der Winterpause ein Thema ist, ist allerdings offen. Eigentlich kann man den Österreicher nur gehen lassen, wenn Ersatz da ist...

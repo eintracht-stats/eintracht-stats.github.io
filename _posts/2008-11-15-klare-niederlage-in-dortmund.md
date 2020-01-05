@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klare Niederlage in Dortmund
+title: "Klare Niederlage in Dortmund"
 
 ---
 

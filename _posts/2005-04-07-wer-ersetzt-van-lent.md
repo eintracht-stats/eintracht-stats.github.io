@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wer ersetzt van Lent?
+title: "Wer ersetzt van Lent?"
 
 ---
 

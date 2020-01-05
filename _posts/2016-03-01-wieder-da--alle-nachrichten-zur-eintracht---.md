@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder da- Alle Nachrichten zur Eintracht...
+title: "Wieder da: Alle Nachrichten zur Eintracht..."
 
 ---
 

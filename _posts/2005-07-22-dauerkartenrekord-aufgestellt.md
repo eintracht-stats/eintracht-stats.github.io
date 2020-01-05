@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dauerkartenrekord aufgestellt
+title: "Dauerkartenrekord aufgestellt"
 
 ---
 

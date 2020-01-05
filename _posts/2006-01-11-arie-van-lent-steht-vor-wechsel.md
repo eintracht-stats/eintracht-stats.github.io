@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Arie van Lent steht vor Wechsel
+title: "Arie van Lent steht vor Wechsel"
 
 ---
 

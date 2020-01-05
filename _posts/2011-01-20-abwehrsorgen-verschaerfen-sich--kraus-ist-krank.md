@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abwehrsorgen verschärfen sich- Kraus ist krank
+title: "Abwehrsorgen verschärfen sich: Kraus ist krank"
 
 ---
 

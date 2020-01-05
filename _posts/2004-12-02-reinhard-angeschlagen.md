@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reinhard angeschlagen
-subtitle: Suche nach Neuzugängen läuft
+title: "Reinhard angeschlagen"
+subtitle: "Suche nach Neuzugängen läuft"
 ---
 
 Wegen einer Muskelprellung ist der Einsatz von Christopher Reinhard am Sonntag gegen Energie Cottbus fraglich. Er zog sich die Verletzung zu, als er im Training einen Schuss von Du-Ri Cha abblockte... Noch besteht aber die Hoffnung, dass es bis Sonntag klappt.

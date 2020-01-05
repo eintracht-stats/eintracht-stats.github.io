@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glück im Unglück bei Ochs
+title: "Glück im Unglück bei Ochs"
 
 ---
 

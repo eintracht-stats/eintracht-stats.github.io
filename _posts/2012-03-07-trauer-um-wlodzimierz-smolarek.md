@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trauer um Wlodzimierz Smolarek
+title: "Trauer um Wlodzimierz Smolarek"
 
 ---
 

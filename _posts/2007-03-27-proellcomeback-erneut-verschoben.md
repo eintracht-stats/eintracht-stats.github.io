@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll-Comeback erneut verschoben
+title: "Pröll-Comeback erneut verschoben"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Allan vor dem Absprung
+title: "Allan vor dem Absprung"
 
 ---
 

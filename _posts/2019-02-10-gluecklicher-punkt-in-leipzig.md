@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glücklicher Punkt in Leipzig
+title: "Glücklicher Punkt in Leipzig"
 
 ---
 

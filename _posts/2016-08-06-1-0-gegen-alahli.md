@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1-0 gegen Al-Ahli
+title: "1:0 gegen Al-Ahli"
 
 ---
 

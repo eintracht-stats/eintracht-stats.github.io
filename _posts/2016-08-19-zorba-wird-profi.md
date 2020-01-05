@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zorba wird Profi
+title: "Zorba wird Profi"
 
 ---
 

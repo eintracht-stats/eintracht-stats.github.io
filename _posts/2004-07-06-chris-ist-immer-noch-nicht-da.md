@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris ist immer noch nicht da
+title: "Chris ist immer noch nicht da"
 
 ---
 

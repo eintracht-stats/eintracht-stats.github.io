@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kraaz gibt Leitung des Leistungszentrums ab
+title: "Kraaz gibt Leitung des Leistungszentrums ab"
 
 ---
 

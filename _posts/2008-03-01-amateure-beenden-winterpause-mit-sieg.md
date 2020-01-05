@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure beenden Winterpause mit Sieg
+title: "Amateure beenden Winterpause mit Sieg"
 
 ---
 

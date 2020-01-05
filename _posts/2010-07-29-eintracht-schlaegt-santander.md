@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Santander
+title: "Eintracht schlägt Santander"
 
 ---
 

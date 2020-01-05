@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Test gegen den KSC endet mit Sieg für die Eintracht
+title: "Test gegen den KSC endet mit Sieg für die Eintracht"
 
 ---
 

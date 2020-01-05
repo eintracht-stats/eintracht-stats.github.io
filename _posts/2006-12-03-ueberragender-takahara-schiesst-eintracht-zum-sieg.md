@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Überragender Takahara schießt Eintracht zum Sieg
-subtitle: 3-2 bei Alemannia Aachen
+title: "Überragender Takahara schießt Eintracht zum Sieg"
+subtitle: "3:2 bei Alemannia Aachen"
 ---
 
 Das war die richtige Antwort: Nach den zahlreichen vergebenen Torchancen vom Donnerstag und der Verletzung von Ioannis Amanatidis hat Naohiro Takahara seine Torjägerqualitäten unter Beweis gestellt. Beim 3:2 in Aachen erzielte der Japaner in der 14., 43. und 62. Minute alle drei Tore der Eintracht. Zweimal verwertete er eine Meier-Vorlage, das dritte Tor bereitete Streit vor...

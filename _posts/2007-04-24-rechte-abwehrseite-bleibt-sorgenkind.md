@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rechte Abwehrseite bleibt Sorgenkind
+title: "Rechte Abwehrseite bleibt Sorgenkind"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stadt will Stadion nicht mit der Eintracht betreiben
+title: "Stadt will Stadion nicht mit der Eintracht betreiben"
 
 ---
 

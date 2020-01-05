@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Arie van Lent ist krank!
+title: "Arie van Lent ist krank!"
 
 ---
 

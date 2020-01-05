@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Altintop verlängert in Frankfurt
+title: "Altintop verlängert in Frankfurt"
 
 ---
 

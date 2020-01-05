@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht heute gegen Tel Aviv
+title: "Eintracht heute gegen Tel Aviv"
 
 ---
 

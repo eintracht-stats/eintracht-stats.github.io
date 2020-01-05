@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Fans entscheiden über Trikot
-subtitle: Lizenzierungsverfahren läuft
+title: "Fans entscheiden über Trikot"
+subtitle: "Lizenzierungsverfahren läuft"
 ---
 
 Von Donnerstag bis Sonntag können wir Fans im Internet auf www.eintracht.de über das Design des neuen Heimtrikots abstimmen. Ausrüster Jako stellt drei verschiedene Versionen zur Wahl. Solange sie uns nicht wieder gebrauchte Damenwäsche zur Verfügung stellen... ;-)

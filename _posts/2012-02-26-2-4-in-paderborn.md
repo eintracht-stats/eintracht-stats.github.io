@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2-4 in Paderborn
+title: "2:4 in Paderborn"
 
 ---
 

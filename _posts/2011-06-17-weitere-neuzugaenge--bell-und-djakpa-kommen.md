@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Weitere Neuzugänge- Bell und Djakpa kommen
-subtitle: Eintracht im Trainingslager
+title: "Weitere Neuzugänge: Bell und Djakpa kommen"
+subtitle: "Eintracht im Trainingslager"
 ---
 
 So, jetzt gibt es mal wieder ein Update über die Vorkommnisse der letzten Tage: Die Eintracht ist mittlerweile im Trainingslager im österreichischen Leogang eingetroffen. Dort steht am Sonntag das erste Testspiel gegen FK Senika auf dem Programm. Weitere Gegner sind FK Kosice und Steaua Bukarest. Die Gegnersuche gestaltete sich etwas schwierig, da die Erstligisten erst später ins Training einsteigen und somit nicht zur Verfügung standen.

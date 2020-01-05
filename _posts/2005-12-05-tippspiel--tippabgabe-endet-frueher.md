@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel- Tippabgabe endet früher
+title: "Tippspiel: Tippabgabe endet früher"
 
 ---
 

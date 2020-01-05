@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Teixeira kommt nicht - Zwei Spieler im Probetraining
+title: "Teixeira kommt nicht - Zwei Spieler im Probetraining"
 
 ---
 

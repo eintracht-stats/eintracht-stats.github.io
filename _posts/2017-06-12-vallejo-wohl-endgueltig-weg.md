@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vallejo wohl endgültig weg
+title: "Vallejo wohl endgültig weg"
 
 ---
 

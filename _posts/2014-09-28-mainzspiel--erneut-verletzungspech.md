@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mainz-Spiel- Erneut Verletzungspech
+title: "Mainz-Spiel: Erneut Verletzungspech"
 
 ---
 

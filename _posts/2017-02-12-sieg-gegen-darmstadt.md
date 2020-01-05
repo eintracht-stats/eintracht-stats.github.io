@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Darmstadt
+title: "Sieg gegen Darmstadt"
 
 ---
 

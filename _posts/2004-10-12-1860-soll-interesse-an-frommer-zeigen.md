@@ -1,7 +1,7 @@
 ---
 layout: post
-title: 1860 soll Interesse an Frommer zeigen
-subtitle: Eintracht schlägt Kassel
+title: "1860 soll Interesse an Frommer zeigen"
+subtitle: "Eintracht schlägt Kassel"
 ---
 
 Pünktlich zum Spiel gegen 1860 München taucht plötzlich ein Wechselgerücht auf: Die Löwen sind einem Kicker-Bericht zufolge an einer Verpflichtung von Nico Frommer interessiert. Der Stürmer könnte frühestens in der Winterpause wechseln. In der FR verweist Friedhelm Funkel einen Wechsel aber ins Reich der Fabeln. Er geht nicht davon aus, dass ein Spieler den Verein verlassen wird.

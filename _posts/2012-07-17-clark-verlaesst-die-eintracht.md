@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Clark verlässt die Eintracht
+title: "Clark verlässt die Eintracht"
 
 ---
 

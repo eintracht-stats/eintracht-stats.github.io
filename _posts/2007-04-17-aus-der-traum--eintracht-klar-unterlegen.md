@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aus der Traum- Eintracht klar unterlegen
+title: "Aus der Traum: Eintracht klar unterlegen"
 
 ---
 

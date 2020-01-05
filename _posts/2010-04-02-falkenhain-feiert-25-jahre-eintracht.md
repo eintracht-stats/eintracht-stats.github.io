@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Falkenhain feiert 25 Jahre Eintracht
+title: "Falkenhain feiert 25 Jahre Eintracht"
 
 ---
 

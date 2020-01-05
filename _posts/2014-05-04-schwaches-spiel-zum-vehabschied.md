@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwaches Spiel zum Veh-Abschied
+title: "Schwaches Spiel zum Veh-Abschied"
 
 ---
 

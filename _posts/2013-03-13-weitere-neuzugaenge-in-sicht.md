@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weitere Neuzugänge in Sicht?
+title: "Weitere Neuzugänge in Sicht?"
 
 ---
 

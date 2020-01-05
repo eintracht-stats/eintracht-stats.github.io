@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt das Derby
+title: "Eintracht gewinnt das Derby"
 
 ---
 

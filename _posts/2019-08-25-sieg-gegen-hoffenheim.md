@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Hoffenheim!
+title: "Sieg gegen Hoffenheim!"
 
 ---
 

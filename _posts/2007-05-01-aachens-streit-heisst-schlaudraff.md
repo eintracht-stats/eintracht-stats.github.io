@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aachens Streit heißt Schlaudraff
+title: "Aachens Streit heißt Schlaudraff"
 
 ---
 

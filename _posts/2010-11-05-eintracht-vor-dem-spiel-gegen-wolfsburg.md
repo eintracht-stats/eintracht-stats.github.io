@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem Spiel gegen Wolfsburg
+title: "Eintracht vor dem Spiel gegen Wolfsburg"
 
 ---
 

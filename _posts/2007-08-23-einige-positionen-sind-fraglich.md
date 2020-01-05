@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Einige Positionen sind fraglich
+title: "Einige Positionen sind fraglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spiel in Fürth fällt aus
+title: "Spiel in Fürth fällt aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung und Schwegler begehrt
+title: "Jung und Schwegler begehrt"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Aufsichtsrat berät über Manager/Auch Reimann kommt zu Wort
-subtitle: Amerikaner im Probetraining
+title: "Aufsichtsrat berät über Manager/Auch Reimann kommt zu Wort"
+subtitle: "Amerikaner im Probetraining"
 ---
 
 Heute Abend befasst sich der Aufsichtsrat der Fußball AG mit der Managerfrage. Dem Gremium werden vier Kandidaten vorgeschlagen: Einer davon ist wohl Stephan Beutel, der schon länger im Gespräch ist. Und auch Jan-Age Fjörtoft befindet sich unter den Namen. Dem Norweger, der sich in der vergangenen Woche selbst ins Gespräch brachte, werden aber keine großen Chancen eingeräumt. 

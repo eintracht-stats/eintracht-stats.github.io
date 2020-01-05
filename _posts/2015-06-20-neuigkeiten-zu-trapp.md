@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuigkeiten zu Trapp
+title: "Neuigkeiten zu Trapp"
 
 ---
 

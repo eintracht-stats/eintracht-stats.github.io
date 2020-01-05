@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Schildenfeld - Russ vor Absprung
+title: "Eintracht holt Schildenfeld - Russ vor Absprung"
 
 ---
 

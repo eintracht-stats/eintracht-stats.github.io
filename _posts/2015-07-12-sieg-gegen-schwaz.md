@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Schwaz
+title: "Sieg gegen Schwaz"
 
 ---
 

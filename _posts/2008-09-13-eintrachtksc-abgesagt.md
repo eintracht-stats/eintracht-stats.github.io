@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-KSC abgesagt
+title: "Eintracht-KSC abgesagt"
 
 ---
 

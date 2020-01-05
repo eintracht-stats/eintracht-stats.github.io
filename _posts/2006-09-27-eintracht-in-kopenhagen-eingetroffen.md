@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Kopenhagen eingetroffen
+title: "Eintracht in Kopenhagen eingetroffen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Müdes 0-0 gegen Paderborn
+title: "Müdes 0:0 gegen Paderborn"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht entsendet 7 Nationalspieler
+title: "Eintracht entsendet 7 Nationalspieler"
 
 ---
 

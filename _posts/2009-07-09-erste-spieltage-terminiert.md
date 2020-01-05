@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Spieltage terminiert
+title: "Erste Spieltage terminiert"
 
 ---
 

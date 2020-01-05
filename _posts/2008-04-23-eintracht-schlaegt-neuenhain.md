@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Neuenhain
+title: "Eintracht schlägt Neuenhain"
 
 ---
 

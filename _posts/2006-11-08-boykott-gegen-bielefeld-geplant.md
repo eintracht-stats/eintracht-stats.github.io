@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Boykott gegen Bielefeld geplant
-subtitle: AG reagiert mit Stellungnahme
+title: "Boykott gegen Bielefeld geplant"
+subtitle: "AG reagiert mit Stellungnahme"
 ---
 
 Beim kommenden Heimspiel gegen Arminia Bielefeld planen die Ultras aus Protest gegen die Praxis bei der Erteilung von Stadionverboten, in der ersten Halbzeit dem Stadion fernzubleiben. Hierzu hat sich die Fußball AG heute in einer ausführlichen Stellungnahme geäußert:

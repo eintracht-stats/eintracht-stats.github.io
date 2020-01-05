@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet 2 Mal
+title: "Eintracht testet 2 Mal"
 
 ---
 

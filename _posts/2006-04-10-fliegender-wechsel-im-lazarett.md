@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Fliegender Wechsel im Lazarett
-subtitle: Jones, Cha, Reinhard wieder dabei - Rehmer verletzt
+title: "Fliegender Wechsel im Lazarett"
+subtitle: "Jones, Cha, Reinhard wieder dabei - Rehmer verletzt"
 ---
 
 Einen Tag vor dem Halbfinale gegen Bielefeld ist es mal wieder Zeit für eine Bestandsaufnahme des Kaders. Benjamin Köhler, der ja am Wochenende des Feldes verwiesen wurde, wird spielen können. Seine Sperre von wahrscheinlich zwei Spielen gilt nur in der Bundesliga. Dafür wird Christoph Spycher noch einmal wegen seiner roten Karte aus dem Achtelfinale fehlen.

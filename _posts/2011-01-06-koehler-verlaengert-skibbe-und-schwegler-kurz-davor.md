@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Köhler verlängert - Skibbe und Schwegler kurz davor
+title: "Köhler verlängert - Skibbe und Schwegler kurz davor"
 
 ---
 

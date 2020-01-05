@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Fußball AG macht Gewinn
-subtitle: Lizenzierungsplanung steht
+title: "Fußball AG macht Gewinn"
+subtitle: "Lizenzierungsplanung steht"
 ---
 
 Der Aufsichtsrat hat in seiner Sitzung am 11. März 2008 den vom Vorstand vorgelegten Jahresabschluss der Eintracht Frankfurt Fussball AG festgestellt und dem Vorstand und den Mitarbeiterinnen und Mitarbeitern, Trainerteam und Spieler seine Anerkennung und Dank ausgesprochen.

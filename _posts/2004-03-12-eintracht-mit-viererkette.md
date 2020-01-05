@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit Viererkette
+title: "Eintracht mit Viererkette"
 
 ---
 

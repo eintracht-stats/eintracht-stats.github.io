@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Deutliche Niederlage in Hamburg
+title: "Deutliche Niederlage in Hamburg"
 
 ---
 

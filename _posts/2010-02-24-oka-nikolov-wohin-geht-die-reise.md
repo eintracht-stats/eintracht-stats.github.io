@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Oka Nikolov - wohin geht die Reise?
+title: "Oka Nikolov - wohin geht die Reise?"
 
 ---
 

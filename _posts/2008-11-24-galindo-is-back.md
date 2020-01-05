@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Galindo is back!
+title: "Galindo is back!"
 
 ---
 

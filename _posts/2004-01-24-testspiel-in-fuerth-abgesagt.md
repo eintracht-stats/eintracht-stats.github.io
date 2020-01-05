@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel in Fürth abgesagt
+title: "Testspiel in Fürth abgesagt"
 
 ---
 

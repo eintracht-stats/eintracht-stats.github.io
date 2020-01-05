@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Magisches Dreieck erobert Stuttgart
+title: "Magisches Dreieck erobert Stuttgart"
 
 ---
 

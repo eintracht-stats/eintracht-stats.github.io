@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anderson-Verpflichtung jetzt fix
+title: "Anderson-Verpflichtung jetzt fix"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drastische Strafe zu erwarten
+title: "Drastische Strafe zu erwarten"
 
 ---
 

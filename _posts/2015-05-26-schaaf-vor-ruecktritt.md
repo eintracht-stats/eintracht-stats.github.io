@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schaaf vor Rücktritt?
+title: "Schaaf vor Rücktritt?"
 
 ---
 

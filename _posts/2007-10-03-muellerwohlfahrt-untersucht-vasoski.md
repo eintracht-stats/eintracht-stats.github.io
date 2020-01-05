@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Müller-Wohlfahrt untersucht Vasoski
+title: "Müller-Wohlfahrt untersucht Vasoski"
 
 ---
 

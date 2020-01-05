@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Stadionfinanzierung gefährdet
-subtitle: Kapazitäten für Heimspiele stehen fest
+title: "Stadionfinanzierung gefährdet"
+subtitle: "Kapazitäten für Heimspiele stehen fest"
 ---
 
 Heute gibt es in erste Linie mal Neuigkeiten rund um unser neues Stadion: Der lang ersehnte Vertrag mit dem Stadionbetreiber - Stadivarios schien schon sicher festzustehen - droht zu platzen. Die West LB, die das Projekt mit 220 Millionen Euro finanzieren sollte, dreht aufgrund ihrer eigenen finanziellen Probleme wohl den Geldhahn zu. 

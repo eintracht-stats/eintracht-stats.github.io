@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic kommt als Sportvorstand
+title: "Bobic kommt als Sportvorstand"
 
 ---
 

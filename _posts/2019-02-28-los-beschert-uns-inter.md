@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Los beschert uns Inter
+title: "Los beschert uns Inter"
 
 ---
 

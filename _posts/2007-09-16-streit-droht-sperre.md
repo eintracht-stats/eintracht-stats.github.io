@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit droht Sperre
+title: "Streit droht Sperre"
 
 ---
 

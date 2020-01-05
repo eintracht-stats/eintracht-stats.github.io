@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler und Chris verletzt
+title: "Schwegler und Chris verletzt"
 
 ---
 

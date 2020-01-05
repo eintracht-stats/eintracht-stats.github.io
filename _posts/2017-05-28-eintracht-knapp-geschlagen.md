@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht knapp geschlagen 
+title: "Eintracht knapp geschlagen "
 
 ---
 

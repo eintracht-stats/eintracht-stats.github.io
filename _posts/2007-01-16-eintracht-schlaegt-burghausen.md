@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Burghausen
+title: "Eintracht schlägt Burghausen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blum fällt aus - Hradecky vor dem Absprung?
+title: "Blum fällt aus - Hradecky vor dem Absprung?"
 
 ---
 

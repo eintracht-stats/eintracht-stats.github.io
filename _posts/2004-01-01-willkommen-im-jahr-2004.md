@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Willkommen im Jahr 2004!
+title: "Willkommen im Jahr 2004!"
 
 ---
 

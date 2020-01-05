@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Rode und Zambrano in München
+title: "Ohne Rode und Zambrano in München"
 
 ---
 

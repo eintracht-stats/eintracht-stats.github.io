@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß möchte in Frankfurt bleiben
+title: "Preuß möchte in Frankfurt bleiben"
 
 ---
 

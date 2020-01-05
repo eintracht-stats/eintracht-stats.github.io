@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Freiburg
+title: "Eintracht in Freiburg"
 
 ---
 

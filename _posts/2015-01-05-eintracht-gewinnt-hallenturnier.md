@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Hallenturnier
+title: "Eintracht gewinnt Hallenturnier"
 
 ---
 

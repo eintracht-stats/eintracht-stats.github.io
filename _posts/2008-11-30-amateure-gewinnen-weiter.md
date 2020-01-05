@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gewinnen weiter
+title: "Amateure gewinnen weiter"
 
 ---
 

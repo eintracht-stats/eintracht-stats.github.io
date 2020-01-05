@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ärger mit den DFB-Ärzten
+title: "Ärger mit den DFB-Ärzten"
 
 ---
 

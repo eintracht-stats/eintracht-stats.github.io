@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei-Jahres-Vertrag für Skibbe
+title: "Zwei-Jahres-Vertrag für Skibbe"
 
 ---
 

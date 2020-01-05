@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rückblick auf Karlsruhe
+title: "Rückblick auf Karlsruhe"
 
 ---
 

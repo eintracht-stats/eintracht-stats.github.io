@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht qualifiziert sich für Gruppenspiele
+title: "Eintracht qualifiziert sich für Gruppenspiele"
 
 ---
 

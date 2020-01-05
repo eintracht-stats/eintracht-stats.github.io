@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1860 München legt vor
+title: "1860 München legt vor"
 
 ---
 

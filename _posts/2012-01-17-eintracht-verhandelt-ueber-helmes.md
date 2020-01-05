@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verhandelt über Helmes
+title: "Eintracht verhandelt über Helmes"
 
 ---
 

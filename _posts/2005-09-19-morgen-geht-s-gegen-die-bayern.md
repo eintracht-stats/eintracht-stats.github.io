@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen geht's gegen die Bayern
+title: "Morgen geht's gegen die Bayern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rangnick wohl aus dem Rennen
+title: "Rangnick wohl aus dem Rennen"
 
 ---
 

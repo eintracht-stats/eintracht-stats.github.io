@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Hannover
+title: "Niederlage in Hannover"
 
 ---
 

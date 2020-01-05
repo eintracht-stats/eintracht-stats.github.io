@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kaiserslautern verliert
+title: "Kaiserslautern verliert"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Energie-Leistung auf Schalke- Eintracht kehrt nach Berlin zurück!
+title: "Energie-Leistung auf Schalke: Eintracht kehrt nach Berlin zurück!"
 
 ---
 

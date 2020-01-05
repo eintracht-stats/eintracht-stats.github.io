@@ -1,6 +1,6 @@
 ---
 layout: post
-title: van Lent geht nach Essen
+title: "van Lent geht nach Essen"
 
 ---
 

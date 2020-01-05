@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht plant Rekordumsatz
+title: "Eintracht plant Rekordumsatz"
 
 ---
 

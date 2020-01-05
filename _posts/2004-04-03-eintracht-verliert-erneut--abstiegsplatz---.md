@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert erneut- Abstiegsplatz...
+title: "Eintracht verliert erneut: Abstiegsplatz..."
 
 ---
 

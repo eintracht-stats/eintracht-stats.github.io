@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara weiter in guter Form
+title: "Takahara weiter in guter Form"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vallejo muss wohl zurück
+title: "Vallejo muss wohl zurück"
 
 ---
 

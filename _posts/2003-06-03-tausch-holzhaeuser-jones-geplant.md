@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Tausch Holzhäuser/Jones geplant?
-subtitle: (Noch?) keine Kontakte zu Bernd Hölzenbein
+title: "Tausch Holzhäuser/Jones geplant?"
+subtitle: "(Noch?) keine Kontakte zu Bernd Hölzenbein"
 ---
 
 Es kristallisiert sich immer weiter heraus, dass Wolfgang Holzhäuser tatsächlich in den AG-Vorstand aufrücken wird. Bei der Eintracht rechnet man in dieser Woche mit einer Entscheidung, Holzhäuser selbst will bis zum 15. Juni Klarheit schaffen. Da Holzhäuser bei Bayer Leverkusen noch einen Vertrag bis 2007 besitzt, spekuliert der Kicker, dass die Eintracht - um ihren offensichtlichen Wunschkandidaten loszueisen - eine "Ablösesumme" an Leverkusen zahlen müsse...

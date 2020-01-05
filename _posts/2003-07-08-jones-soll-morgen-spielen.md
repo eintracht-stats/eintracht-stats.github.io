@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones soll morgen spielen
-subtitle: HR ersetzt FFH
+title: "Jones soll morgen spielen"
+subtitle: "HR ersetzt FFH"
 ---
 
 Jermaine Jones wird beim morgigen Testspiel gegen das Team Sylt voraussichtlich zu seinem ersten Einsatz kommen. Er trainiert mittlerweile mit seinem Spezialschuh, hatte aber dennoch gestern leichte Probleme. Er soll von Mannschaftsarzt Dr. Seeger weiter beobachtet werden.

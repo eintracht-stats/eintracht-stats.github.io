@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielsieg gegen Aalen
+title: "Testspielsieg gegen Aalen"
 
 ---
 

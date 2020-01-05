@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris wieder spielberechtigt
+title: "Chris wieder spielberechtigt"
 
 ---
 

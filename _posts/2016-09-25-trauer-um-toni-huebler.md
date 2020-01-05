@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trauer um Toni Hübler
+title: "Trauer um Toni Hübler"
 
 ---
 

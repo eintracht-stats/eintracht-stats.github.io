@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Funkel bleibt Trainer
-subtitle: Politiker fordert Entlassung
+title: "Funkel bleibt Trainer"
+subtitle: "Politiker fordert Entlassung"
 ---
 
 Auch nach der enttäuschenden Niederlage gegen den VfL Bochum hält der Vorstand an Trainer Friedhelm Funkel fest. Nach einer Besprechung der drei Vorstandsmitglieder Bruchhagen, Pröckl und Beeck mit dem Aufsichtsvorsitzendem Becker und Vereinspräsident Fischer kam man zu dem Entschluss, in der Trainerfrage nicht aktiv zu werden.

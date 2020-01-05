@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler angeschlagen - Einsatz fraglich
+title: "Schwegler angeschlagen - Einsatz fraglich"
 
 ---
 

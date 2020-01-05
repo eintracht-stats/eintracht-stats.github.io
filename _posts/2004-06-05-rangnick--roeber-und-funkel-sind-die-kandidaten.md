@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rangnick, Röber und Funkel sind die Kandidaten
+title: "Rangnick, Röber und Funkel sind die Kandidaten"
 
 ---
 

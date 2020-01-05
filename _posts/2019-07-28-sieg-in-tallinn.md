@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg in Tallinn
+title: "Sieg in Tallinn"
 
 ---
 

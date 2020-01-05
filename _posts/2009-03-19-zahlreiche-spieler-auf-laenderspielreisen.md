@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zahlreiche Spieler auf Länderspielreisen
+title: "Zahlreiche Spieler auf Länderspielreisen"
 
 ---
 

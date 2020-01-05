@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel ist zuversichtlich
+title: "Funkel ist zuversichtlich"
 
 ---
 

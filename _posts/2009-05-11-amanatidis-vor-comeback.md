@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis vor Comeback
+title: "Amanatidis vor Comeback"
 
 ---
 

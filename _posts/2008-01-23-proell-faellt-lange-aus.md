@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll fällt lange aus
+title: "Pröll fällt lange aus"
 
 ---
 

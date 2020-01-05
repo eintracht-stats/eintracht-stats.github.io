@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Schwegler
+title: "Eintracht holt Schwegler"
 
 ---
 

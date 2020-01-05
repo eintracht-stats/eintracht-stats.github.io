@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offiziell- Veh kehrt zurück!
+title: "Offiziell: Veh kehrt zurück!"
 
 ---
 

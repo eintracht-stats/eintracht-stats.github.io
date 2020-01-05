@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht noch nicht vor dem Sportgericht
+title: "Eintracht noch nicht vor dem Sportgericht"
 
 ---
 

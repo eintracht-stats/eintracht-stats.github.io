@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vs. Unterhaching 3-0
+title: "Eintracht vs. Unterhaching 3:0"
 
 ---
 

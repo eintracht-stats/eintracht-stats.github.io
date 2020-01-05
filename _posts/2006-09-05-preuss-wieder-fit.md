@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß wieder fit
+title: "Preuß wieder fit"
 
 ---
 

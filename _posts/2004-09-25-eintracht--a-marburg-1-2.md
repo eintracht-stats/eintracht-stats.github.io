@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A)-Marburg 1-2
+title: "Eintracht (A)-Marburg 1:2"
 
 ---
 

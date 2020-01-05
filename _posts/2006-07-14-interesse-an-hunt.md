@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Interesse an Hunt
-subtitle: Testspiel gegen Schwanheim
+title: "Interesse an Hunt"
+subtitle: "Testspiel gegen Schwanheim"
 ---
 
 Die Eintracht hat Interesse an einer Verpflichtung des Bremer Sturmtalents Aaron Hunt. Der 19jährige möchte den Verein verlassen, da er in der Hierarchie der Stürmer in Bremen nur an Position fünf steht.

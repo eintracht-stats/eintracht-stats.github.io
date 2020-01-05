@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung nicht finanzierbar
+title: "Jung nicht finanzierbar"
 
 ---
 

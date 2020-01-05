@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mannschaft weicht ans Brentanobad aus
+title: "Mannschaft weicht ans Brentanobad aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht hat neue Anteilseigner
+title: "Eintracht hat neue Anteilseigner"
 
 ---
 

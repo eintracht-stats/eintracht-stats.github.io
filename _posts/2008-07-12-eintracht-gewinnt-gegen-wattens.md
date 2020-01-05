@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt gegen Wattens
+title: "Eintracht gewinnt gegen Wattens"
 
 ---
 

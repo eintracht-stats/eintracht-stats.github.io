@@ -1,6 +1,6 @@
 ---
 layout: post
-title: FIFA zahlt für Schwegler
+title: "FIFA zahlt für Schwegler"
 
 ---
 

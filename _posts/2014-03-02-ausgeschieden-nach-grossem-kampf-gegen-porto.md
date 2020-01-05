@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ausgeschieden nach großem Kampf gegen Porto
+title: "Ausgeschieden nach großem Kampf gegen Porto"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veh kritisiert Düsseldorfer Spieler
+title: "Veh kritisiert Düsseldorfer Spieler"
 
 ---
 

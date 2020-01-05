@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Clark geht nach Norwegen
+title: "Clark geht nach Norwegen"
 
 ---
 

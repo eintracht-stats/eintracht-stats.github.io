@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Tokio
+title: "Eintracht schlägt Tokio"
 
 ---
 

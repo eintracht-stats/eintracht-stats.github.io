@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verlängert mit Köhler
-subtitle: Lizenz ist da
+title: "Eintracht verlängert mit Köhler"
+subtitle: "Lizenz ist da"
 ---
 
 Zur Zeit komme ich wirklich zu nix - aber irgendwann kommt noch jede Meldung auf die Homepage: Die Eintracht hat den Vertrag mit Benjamin Köhler vorzeitig bis 2011 verlängert. Ursprünglich wäre der Kontrakt des Spielers 2009 ausgelaufen.

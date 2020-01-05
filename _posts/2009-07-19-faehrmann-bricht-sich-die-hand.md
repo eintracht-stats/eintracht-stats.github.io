@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fährmann bricht sich die Hand!
+title: "Fährmann bricht sich die Hand!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verleiht Petkovic
+title: "Eintracht verleiht Petkovic"
 
 ---
 

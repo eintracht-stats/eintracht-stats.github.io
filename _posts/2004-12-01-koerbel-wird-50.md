@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Körbel wird 50
-subtitle: Ochs fällt aus, Chris kehrt zurück
+title: "Körbel wird 50"
+subtitle: "Ochs fällt aus, Chris kehrt zurück"
 ---
 
 Eintracht-Urgestein und Bundesliga-Rekordspieler (602 Einsätze) Karl-Heinz Körbel feiert heute seinen 50. Geburtstag! Die Eintracht ehrt den "treuen Charly" mit einem Empfang. Herzlichen Glückwunsch!

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Teixeira holen!
+title: "Eintracht will Teixeira holen!"
 
 ---
 

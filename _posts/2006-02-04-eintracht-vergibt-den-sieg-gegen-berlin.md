@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht vergibt den Sieg gegen Berlin
-subtitle: Chris sieht 5. Gelbe
+title: "Eintracht vergibt den Sieg gegen Berlin"
+subtitle: "Chris sieht 5. Gelbe"
 ---
 
 Mit einem 1:1 endete die Heimpremiere im Jahr 2006 gegen Hertha BSC Berlin. Nach einem kapitalen Schnitzer von Nikolov gingen die Gäste in der 20. Minute durch Boateng in Führung. Berlin hatte zwar ein leichtes Übergewicht, die besseren Chancen lagen aber eigentlich bei der Eintracht. Rehmer, Meier und Amanatidis hatten das Tor auf dem Fuß.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure unterliegen Fulda
+title: "Amateure unterliegen Fulda"
 
 ---
 

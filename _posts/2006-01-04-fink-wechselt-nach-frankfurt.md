@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fink wechselt - nach Frankfurt?
+title: "Fink wechselt - nach Frankfurt?"
 
 ---
 

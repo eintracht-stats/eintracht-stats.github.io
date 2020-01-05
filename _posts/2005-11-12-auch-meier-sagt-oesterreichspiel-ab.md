@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Meier sagt Österreich-Spiel ab
+title: "Auch Meier sagt Österreich-Spiel ab"
 
 ---
 

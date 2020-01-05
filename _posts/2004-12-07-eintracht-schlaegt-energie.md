@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Energie
+title: "Eintracht schlägt Energie"
 
 ---
 

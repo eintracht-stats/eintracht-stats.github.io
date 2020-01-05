@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Pokalspiel steigt wahrscheinlich samstags
-subtitle: Chris hat Geburtstag
+title: "Pokalspiel steigt wahrscheinlich samstags"
+subtitle: "Chris hat Geburtstag"
 ---
 
 Die ARD hat sich offenbar entschieden, in der ersten Pokalrunde das Spiel Dynamo Dresden-Hamburger SV live zu übertragen. Das ZDF besitzt die Erstverwertungsrechte und plant im Rahmen des Aktuellen Sportstudios eine ausführliche Berichterstattung über unser Main-Derby. Demnach wird das Spiel voraussichtlich am Samstag, den 30. August zwischen 16 und 18 Uhr angepfiffen. Ein genauer Termin steht allerdings noch nicht fest. Der HR versucht weiterhin, sich mit dem ZDF über eine Übertragung im dritten Programm zu einigen. Jetzt kann man nur hoffen, dass das auch klappt...

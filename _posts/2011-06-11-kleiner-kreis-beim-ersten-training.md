@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kleiner Kreis beim ersten Training
+title: "Kleiner Kreis beim ersten Training"
 
 ---
 

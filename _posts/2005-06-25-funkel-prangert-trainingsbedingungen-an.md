@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel prangert Trainingsbedingungen an
+title: "Funkel prangert Trainingsbedingungen an"
 
 ---
 

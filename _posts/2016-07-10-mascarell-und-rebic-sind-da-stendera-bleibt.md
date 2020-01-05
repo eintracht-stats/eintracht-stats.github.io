@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mascarell und Rebic sind da - Stendera bleibt
+title: "Mascarell und Rebic sind da - Stendera bleibt"
 
 ---
 

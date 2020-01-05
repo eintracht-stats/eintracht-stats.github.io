@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpasst Sieg gegen Gladbach
+title: "Eintracht verpasst Sieg gegen Gladbach"
 
 ---
 

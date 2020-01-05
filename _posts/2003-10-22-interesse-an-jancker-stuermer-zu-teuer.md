@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Jancker? - Stürmer zu teuer
+title: "Interesse an Jancker? - Stürmer zu teuer"
 
 ---
 

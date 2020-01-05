@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt gegen Nikosia
+title: "Eintracht siegt gegen Nikosia"
 
 ---
 

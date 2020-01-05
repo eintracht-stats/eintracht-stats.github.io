@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wenig Neuigkeiten zu berichten...
+title: "Wenig Neuigkeiten zu berichten..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spieltermine festgelegt
+title: "Spieltermine festgelegt"
 
 ---
 

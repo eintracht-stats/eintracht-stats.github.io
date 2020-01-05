@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Und wieder eine Geldstrafe...
+title: "Und wieder eine Geldstrafe..."
 
 ---
 

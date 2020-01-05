@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Trainingsauftakt bei der Eintracht
-subtitle: Kreuz-Wechsel weiter unsicher
+title: "Trainingsauftakt bei der Eintracht"
+subtitle: "Kreuz-Wechsel weiter unsicher"
 ---
 
 Heute geht es endlich wieder los: Um 15 Uhr bittet Friedhelm Funkel die neue Eintracht-Mannschaft zum ersten Training. Bis auf die verletzten Markus Weissenberger (Knöchel) und Marco Russ (Schlüsselbeinbruch) werden alle Spieler aus dem 26 Mann umfassenden Kader dabei sein. Auch Markus Kreuz, der mit einem Wechsel zu Alemannia Aachen liebäugelt. Dieser scheitert jedoch (bislang?) an der Ablösesumme.

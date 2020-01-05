@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Eintrachtler fahren zum Team 2006
+title: "Drei Eintrachtler fahren zum Team 2006"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt gegen Niederkalbach
+title: "Eintracht siegt gegen Niederkalbach"
 
 ---
 

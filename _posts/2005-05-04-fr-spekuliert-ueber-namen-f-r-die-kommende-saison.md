@@ -1,6 +1,6 @@
 ---
 layout: post
-title: FR spekuliert über Namen für die kommende Saison
+title: "FR spekuliert über Namen für die kommende Saison"
 
 ---
 

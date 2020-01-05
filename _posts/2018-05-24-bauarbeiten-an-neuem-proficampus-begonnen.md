@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bauarbeiten an neuem Profi-Campus begonnen
+title: "Bauarbeiten an neuem Profi-Campus begonnen"
 
 ---
 

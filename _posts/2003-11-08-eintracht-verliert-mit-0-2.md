@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert mit 0-2
-subtitle: Cipi fliegt vom Platz!
+title: "Eintracht verliert mit 0:2"
+subtitle: "Cipi fliegt vom Platz!"
 ---
 
 Der Tabellenführer war heute eine Nummer zu groß für die Eintracht: Mit 0:2 siegte der VfB Stuttgart im Waldstadion und zieht weiterhin seine Kreise an der Spitze. Die Eintracht ist nach dieser Niederlage wieder auf einem Abstiegsplatz angekommen. Und dennoch: Auch heute hätte die Mannschaft durchaus punkten können...

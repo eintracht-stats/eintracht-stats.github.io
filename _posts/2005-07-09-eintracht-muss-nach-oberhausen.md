@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht muss nach Oberhausen
+title: "Eintracht muss nach Oberhausen"
 
 ---
 

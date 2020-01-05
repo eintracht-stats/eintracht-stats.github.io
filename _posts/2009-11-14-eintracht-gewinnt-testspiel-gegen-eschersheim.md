@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel gegen Eschersheim
+title: "Eintracht gewinnt Testspiel gegen Eschersheim"
 
 ---
 

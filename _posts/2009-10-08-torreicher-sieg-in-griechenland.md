@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torreicher Sieg in Griechenland
+title: "Torreicher Sieg in Griechenland"
 
 ---
 

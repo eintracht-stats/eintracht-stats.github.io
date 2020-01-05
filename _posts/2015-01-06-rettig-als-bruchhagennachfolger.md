@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rettig als Bruchhagen-Nachfolger?
+title: "Rettig als Bruchhagen-Nachfolger?"
 
 ---
 

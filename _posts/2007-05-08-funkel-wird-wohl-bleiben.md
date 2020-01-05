@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel wird wohl bleiben
+title: "Funkel wird wohl bleiben"
 
 ---
 

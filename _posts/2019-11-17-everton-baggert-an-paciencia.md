@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Everton baggert an Paciencia
+title: "Everton baggert an Paciencia"
 
 ---
 

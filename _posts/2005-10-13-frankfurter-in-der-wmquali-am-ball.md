@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Frankfurter in der WM-Quali am Ball
+title: "Frankfurter in der WM-Quali am Ball"
 
 ---
 

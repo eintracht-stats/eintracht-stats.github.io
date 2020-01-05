@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bau der Geschäftsstelle verzögert sich
+title: "Bau der Geschäftsstelle verzögert sich"
 
 ---
 

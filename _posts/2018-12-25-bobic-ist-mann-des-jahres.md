@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic ist Mann des Jahres
+title: "Bobic ist Mann des Jahres"
 
 ---
 

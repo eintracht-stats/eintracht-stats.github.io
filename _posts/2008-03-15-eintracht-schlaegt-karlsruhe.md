@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Karlsruhe
+title: "Eintracht schlägt Karlsruhe"
 
 ---
 

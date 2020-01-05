@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reiner Maurer vs Peter Fischer - Amüsantes am Rande...
-subtitle: HSV will Meier zurück
+title: "Reiner Maurer vs Peter Fischer - Amüsantes am Rande..."
+subtitle: "HSV will Meier zurück"
 ---
 
 Manchmal lohnt es sich eben doch, wenn man mal die BILD-Zeitung liest. Da wird zum einen Löwen-Trainer Reiner Maurer zitiert, der in den letzten Wochen vergeblich versucht hat, unsere Mannschaft zu verunsichern: "Frankfurt wird nervös, weil sie nicht mehr patzen dürfen." Abgesehen davon, dass die Löwen auch nicht mehr patzen dürfen (denn sonst dürften WIR ja eben doch patzen *g*), finde ich besonders das Zitat unseres Präsidenten Peter Fischer interessant: "Maurer ist der größte Kotzbrocken, den ich kenne. Der ist Trainer-Azubi, hat nichts erreicht, und reißt fürchterlich die Klappe auf...." Ich denke, damit ist alles gesagt (und wenn ich diesen unsäglichen Satz in den Mund nehme, will das schon einiges heißen...)

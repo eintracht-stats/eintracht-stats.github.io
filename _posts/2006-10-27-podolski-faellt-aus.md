@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Podolski fällt aus
+title: "Podolski fällt aus"
 
 ---
 

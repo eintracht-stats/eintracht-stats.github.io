@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp-Entscheidung bis Mittwoch?
+title: "Trapp-Entscheidung bis Mittwoch?"
 
 ---
 

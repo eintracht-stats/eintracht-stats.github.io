@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kessler ist neue Nummer 1
+title: "Kessler ist neue Nummer 1"
 
 ---
 

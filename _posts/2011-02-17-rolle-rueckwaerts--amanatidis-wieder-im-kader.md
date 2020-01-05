@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rolle rückwärts- Amanatidis wieder im Kader
+title: "Rolle rückwärts: Amanatidis wieder im Kader"
 
 ---
 

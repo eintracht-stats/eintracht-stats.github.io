@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hradecky-Wechsel steht fest
+title: "Hradecky-Wechsel steht fest"
 
 ---
 

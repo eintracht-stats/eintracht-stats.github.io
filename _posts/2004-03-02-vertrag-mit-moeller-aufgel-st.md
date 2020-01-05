@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertrag mit Möller aufgelöst!
+title: "Vertrag mit Möller aufgelöst!"
 
 ---
 

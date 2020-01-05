@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fischer zur Wahl vorgeschlagen
+title: "Fischer zur Wahl vorgeschlagen"
 
 ---
 

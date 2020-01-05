@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WM-Auftakt - es geht los!
+title: "WM-Auftakt - es geht los!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Personalsorgen vor nächstem Bundesliga-Auftritt
+title: "Personalsorgen vor nächstem Bundesliga-Auftritt"
 
 ---
 

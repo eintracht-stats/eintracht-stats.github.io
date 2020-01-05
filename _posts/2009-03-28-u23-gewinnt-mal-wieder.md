@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 gewinnt mal wieder
+title: "U23 gewinnt mal wieder"
 
 ---
 

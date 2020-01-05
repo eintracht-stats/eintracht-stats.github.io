@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffmann kehrt zurück, Chris steigt ins Training ein
+title: "Hoffmann kehrt zurück, Chris steigt ins Training ein"
 
 ---
 

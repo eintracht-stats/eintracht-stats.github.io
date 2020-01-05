@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Benefizturnier im Waldstadion
+title: "Eintracht gewinnt Benefizturnier im Waldstadion"
 
 ---
 

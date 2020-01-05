@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Boateng zum FC Barcelona?
+title: "Boateng zum FC Barcelona?"
 
 ---
 

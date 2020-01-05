@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punktabzug für die Amateure!
+title: "Punktabzug für die Amateure!"
 
 ---
 

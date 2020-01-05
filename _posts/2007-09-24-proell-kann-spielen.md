@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll kann spielen
+title: "Pröll kann spielen"
 
 ---
 

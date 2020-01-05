@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3-0 gegen Griesheim
+title: "3:0 gegen Griesheim"
 
 ---
 

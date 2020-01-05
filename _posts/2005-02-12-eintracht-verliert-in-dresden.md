@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert in Dresden
+title: "Eintracht verliert in Dresden"
 
 ---
 

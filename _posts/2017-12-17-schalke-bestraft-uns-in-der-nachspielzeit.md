@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schalke bestraft uns in der Nachspielzeit
+title: "Schalke bestraft uns in der Nachspielzeit"
 
 ---
 

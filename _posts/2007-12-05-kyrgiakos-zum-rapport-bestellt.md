@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos zum Rapport bestellt
+title: "Kyrgiakos zum Rapport bestellt"
 
 ---
 

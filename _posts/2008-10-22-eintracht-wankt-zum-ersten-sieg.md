@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht wankt zum ersten Sieg
+title: "Eintracht wankt zum ersten Sieg"
 
 ---
 

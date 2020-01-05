@@ -1,7 +1,7 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2008!
-subtitle: Der heiß ersehnte Jahresrückblick ist da...
+title: "eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2008!"
+subtitle: "Der heiß ersehnte Jahresrückblick ist da..."
 ---
 
 Es ist gute Tradition auf eintracht-stats.de, dass jedes Jahr mit einem ausführlichen und durchaus sehr persönlichen Rückblick verabschiedet wird. Auch 2007 war sehr ereignisreich und hat sich diese Ehre damit verdient - auch wenn es natürlich eher unspektakulär ausklingt: Mit einem Tag, wie jedem anderen...

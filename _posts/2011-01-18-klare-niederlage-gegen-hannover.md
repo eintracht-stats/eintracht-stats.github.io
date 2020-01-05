@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klare Niederlage gegen Hannover
+title: "Klare Niederlage gegen Hannover"
 
 ---
 

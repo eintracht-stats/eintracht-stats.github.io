@@ -1,7 +1,7 @@
 ---
 layout: post
-title: WM-Aus für Huggel
-subtitle: Auch EURO 2008 ist gefährdet
+title: "WM-Aus für Huggel"
+subtitle: "Auch EURO 2008 ist gefährdet"
 ---
 
 Heute hat die Uefa ihre Urteile bezüglich der Vorkommnisse nach dem WM-Qualifikationsspiel Türkei-Schweiz gefällt. Die Türkei muss ihre nächsten 6 Pflichtspiele unter Ausschluss der Öffentlichkeit auf neutralem Boden austragen. Gesperrt wurden auch die Spieler Alpay und Emre. Besonders hart traf es aber unseren Schweizer Benjamin Huggel: Er wurde ebenfalls für 6 Pflichtspiele gesperrt.

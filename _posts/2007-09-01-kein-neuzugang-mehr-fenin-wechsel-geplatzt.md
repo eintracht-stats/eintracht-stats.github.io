@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kein Neuzugang mehr - Fenin-Wechsel geplatzt
+title: "Kein Neuzugang mehr - Fenin-Wechsel geplatzt"
 
 ---
 

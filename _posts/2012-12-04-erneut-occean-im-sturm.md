@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erneut Occean im Sturm!
+title: "Erneut Occean im Sturm!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bendtner-Transfer geplatzt
+title: "Bendtner-Transfer geplatzt"
 
 ---
 

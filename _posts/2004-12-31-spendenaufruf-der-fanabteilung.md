@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spendenaufruf der Fanabteilung
+title: "Spendenaufruf der Fanabteilung"
 
 ---
 

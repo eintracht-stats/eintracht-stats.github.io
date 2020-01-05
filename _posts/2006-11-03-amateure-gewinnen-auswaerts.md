@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gewinnen auswärts
+title: "Amateure gewinnen auswärts"
 
 ---
 

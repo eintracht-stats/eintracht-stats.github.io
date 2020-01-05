@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier darf HSV verlassen - Kommt Jones zurück?
+title: "Meier darf HSV verlassen - Kommt Jones zurück?"
 
 ---
 

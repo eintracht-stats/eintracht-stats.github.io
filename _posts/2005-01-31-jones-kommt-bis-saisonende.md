@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones kommt bis Saisonende!
+title: "Jones kommt bis Saisonende!"
 
 ---
 

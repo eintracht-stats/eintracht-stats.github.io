@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet gegen Valencia
+title: "Eintracht testet gegen Valencia"
 
 ---
 

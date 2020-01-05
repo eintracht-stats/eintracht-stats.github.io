@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel gegen Netanya
+title: "Testspiel gegen Netanya"
 
 ---
 

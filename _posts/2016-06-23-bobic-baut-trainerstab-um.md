@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic baut Trainerstab um
+title: "Bobic baut Trainerstab um"
 
 ---
 

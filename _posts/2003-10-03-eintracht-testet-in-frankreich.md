@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht testet in Frankreich
-subtitle: Cha muss nicht zur Nationalmannschaft
+title: "Eintracht testet in Frankreich"
+subtitle: "Cha muss nicht zur Nationalmannschaft"
 ---
 
 Am kommenden Donnerstag bestreitet die Eintracht ein Testspiel gegen den französischen Erstligisten FC Metz. Das Spiel wird um 19.30 Uhr in Saint Avold angepfiffen.

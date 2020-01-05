@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Cipi angeschlagen - Lexa hat Grippe
-subtitle: Spielt Günther in der Abwehr?
+title: "Cipi angeschlagen - Lexa hat Grippe"
+subtitle: "Spielt Günther in der Abwehr?"
 ---
 
 Geri Cipi wird am Samstag in Bochum wohl nicht mit von der Partie sein. Nachdem Co-Trainer Kocian ihn im Training öffentlich kritisiert hatte ("Trainier doch mal ordentlich. Du stehst da wie ein Ochse"), meldete sich der Albaner nun wegen einer Wadenverletzung ab. Im Training wurde deshalb eine weitere Abwehrvariante getestet...

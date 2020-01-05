@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4 Spiele Sperre für Ochs
+title: "4 Spiele Sperre für Ochs"
 
 ---
 

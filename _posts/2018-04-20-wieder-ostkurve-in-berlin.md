@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder Ostkurve in Berlin
+title: "Wieder Ostkurve in Berlin"
 
 ---
 

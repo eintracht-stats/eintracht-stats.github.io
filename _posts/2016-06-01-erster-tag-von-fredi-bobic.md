@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Tag von Fredi Bobic
+title: "Erster Tag von Fredi Bobic"
 
 ---
 

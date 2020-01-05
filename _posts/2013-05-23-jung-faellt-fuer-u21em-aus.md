@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung fällt für U21-EM aus
+title: "Jung fällt für U21-EM aus"
 
 ---
 

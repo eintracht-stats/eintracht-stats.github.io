@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Verlässt Madza die Eintracht?
-subtitle: Sportfive-Vertrag vielleicht erst im März
+title: "Verlässt Madza die Eintracht?"
+subtitle: "Sportfive-Vertrag vielleicht erst im März"
 ---
 
 Bei der Eintracht geht die Suche nach den geplanten zwei Neuverpflichtungen weiter. Wie heute in der Presse zu lesen ist, sollen der Stürmer und der Abwehrspieler durch Mehreinnahmen bei der Bandenwerbung und Einsparungen bei den Punktprämien erfolgen. Man geht zwar vom Klassenerhalt aus, rechnet aber nicht damit, dass dazu die im Etat eingeplanten 40 Punkte vonnöten sind.

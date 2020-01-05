@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Helmes-Wechsel geplatzt!
+title: "Helmes-Wechsel geplatzt!"
 
 ---
 

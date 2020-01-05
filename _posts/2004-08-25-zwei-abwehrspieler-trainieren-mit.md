@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Abwehrspieler trainieren mit
+title: "Zwei Abwehrspieler trainieren mit"
 
 ---
 

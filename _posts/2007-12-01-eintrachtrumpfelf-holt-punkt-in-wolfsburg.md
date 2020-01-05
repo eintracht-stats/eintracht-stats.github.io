@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Rumpfelf holt Punkt in Wolfsburg
+title: "Eintracht-Rumpfelf holt Punkt in Wolfsburg"
 
 ---
 

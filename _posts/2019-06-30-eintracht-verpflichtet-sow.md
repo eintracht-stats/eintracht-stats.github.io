@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Sow
+title: "Eintracht verpflichtet Sow"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Leverkusen
+title: "Eintracht schlägt Leverkusen"
 
 ---
 

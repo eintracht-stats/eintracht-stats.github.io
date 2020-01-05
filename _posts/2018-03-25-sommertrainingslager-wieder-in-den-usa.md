@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sommertrainingslager wieder in den USA
+title: "Sommertrainingslager wieder in den USA"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Spielernamen
+title: "Neue Spielernamen"
 
 ---
 

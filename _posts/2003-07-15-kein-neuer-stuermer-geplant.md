@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kein neuer Stürmer geplant
-subtitle: Eintracht und OFC sprechen sich für Liveübertragung aus
+title: "Kein neuer Stürmer geplant"
+subtitle: "Eintracht und OFC sprechen sich für Liveübertragung aus"
 ---
 
 Willi Reimann hat nochmal bestätigt, dass die Eintracht im Moment keinen neuen Stürmer verpflichten werde, wenn alle Spieler gesund bleiben. Der rumänische Stürmer Raducanu sei auch nur beobachtet worden. Zu Verhandlungen ist es demnach gar nicht erst gekommen. Reimann weiter: "Mir ist nicht bekannt, dass weitere finanzielle Mittel für einen neuen Spieler da sein sollten." 

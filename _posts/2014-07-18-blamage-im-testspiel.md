@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blamage im Testspiel
+title: "Blamage im Testspiel"
 
 ---
 

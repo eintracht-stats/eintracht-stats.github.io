@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Europameisterschaft für Huggel wieder möglich
+title: "Europameisterschaft für Huggel wieder möglich"
 
 ---
 

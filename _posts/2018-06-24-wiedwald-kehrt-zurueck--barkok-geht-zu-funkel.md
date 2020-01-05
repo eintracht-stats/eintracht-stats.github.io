@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wiedwald kehrt zurück, Barkok geht zu Funkel
+title: "Wiedwald kehrt zurück, Barkok geht zu Funkel"
 
 ---
 

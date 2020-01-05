@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht hofft aus mildes Urteil
+title: "Eintracht hofft aus mildes Urteil"
 
 ---
 

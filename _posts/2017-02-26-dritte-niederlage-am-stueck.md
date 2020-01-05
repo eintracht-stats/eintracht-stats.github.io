@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dritte Niederlage am Stück
+title: "Dritte Niederlage am Stück"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reutershahn geht nach Nürnberg
+title: "Reutershahn geht nach Nürnberg"
 
 ---
 

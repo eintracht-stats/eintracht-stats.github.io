@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wir sind Weltmeister! 1-0 gegen Argentinien
+title: "Wir sind Weltmeister! 1:0 gegen Argentinien"
 
 ---
 

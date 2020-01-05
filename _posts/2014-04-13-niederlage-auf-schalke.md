@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage auf Schalke
+title: "Niederlage auf Schalke"
 
 ---
 

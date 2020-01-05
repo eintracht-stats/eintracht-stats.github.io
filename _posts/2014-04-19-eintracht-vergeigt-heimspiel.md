@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vergeigt Heimspiel
+title: "Eintracht vergeigt Heimspiel"
 
 ---
 

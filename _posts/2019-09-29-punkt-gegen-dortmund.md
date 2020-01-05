@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punkt gegen Dortmund
+title: "Punkt gegen Dortmund"
 
 ---
 

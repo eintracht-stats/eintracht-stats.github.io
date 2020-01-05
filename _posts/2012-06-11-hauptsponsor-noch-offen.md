@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hauptsponsor noch offen
+title: "Hauptsponsor noch offen"
 
 ---
 

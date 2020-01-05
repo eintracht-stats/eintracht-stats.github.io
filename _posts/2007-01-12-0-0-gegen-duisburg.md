@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0-0 gegen Duisburg
+title: "0:0 gegen Duisburg"
 
 ---
 

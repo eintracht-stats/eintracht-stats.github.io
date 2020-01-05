@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kein Angebot für Kyle - Bleibt Skela doch?
-subtitle: Nikolov-Einsatz wird unwahrscheinlicher
+title: "Kein Angebot für Kyle - Bleibt Skela doch?"
+subtitle: "Nikolov-Einsatz wird unwahrscheinlicher"
 ---
 
 Heribert Bruchhagen hat klar dementiert, dass die Eintracht dem schottischen Nationalstürmer Kevin Kyle ein Angebot gemacht haben soll, wie es die Sport-Bild berichtet hatte. "Den kenne ich nicht einmal", war der Kommentar unseres Vorstandsvorsitzenden...

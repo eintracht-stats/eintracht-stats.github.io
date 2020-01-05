@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Ärger über Vertragsdauer von Cha
-subtitle: Kann Toppi sich einklagen?
+title: "Ärger über Vertragsdauer von Cha"
+subtitle: "Kann Toppi sich einklagen?"
 ---
 
 Beim gestrigen Testspielsieg fehlte Tsoumou-Madza aufgrund einer Zerrung. Mit ihm dürfte aber schon bald wieder zu rechnen sein. Du-Ri Cha wird für heute zum ersten Training erwartet, wenngleich sein Transfer noch Probleme bereitet: Dr. Pröckl wird morgen in Leverkusen (besitzt die Transferrechte) erläutern müssen, wie man bei der Eintracht darauf kommt, von einem Dreijahrsvertrag mit dem Spieler zu sprechen. Spätestens 2005 soll der Koreaner nämlich für Bayer spielen. Ursprünglich war sogar nur ein Leihgeschäft über eine Saison geplant. Merkwürdige Sache...

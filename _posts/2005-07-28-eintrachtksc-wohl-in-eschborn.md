@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht-KSC wohl in Eschborn
-subtitle: Amanatidis beginnt mit Training
+title: "Eintracht-KSC wohl in Eschborn"
+subtitle: "Amanatidis beginnt mit Training"
 ---
 
 Offenbar hat man nun eine Lösung für das Testspiel gegen den Karlsruher SC gefunden. Das Spiel wird am Samstag wahrscheinlich im Stadion des 1. FC Eschborn stattfinden. Dort herrschen Regionalliga-Bedingungen, was die Polizei für die Austragung der Partie zur Voraussetzung gemacht hatte.

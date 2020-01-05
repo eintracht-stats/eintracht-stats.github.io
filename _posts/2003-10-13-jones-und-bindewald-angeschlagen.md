@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones und Bindewald angeschlagen
+title: "Jones und Bindewald angeschlagen"
 
 ---
 

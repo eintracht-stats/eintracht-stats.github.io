@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Beierle ist krank
+title: "Auch Beierle ist krank"
 
 ---
 

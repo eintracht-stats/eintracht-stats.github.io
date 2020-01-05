@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis verletzt - Einsatz fraglich
+title: "Amanatidis verletzt - Einsatz fraglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure spielen unentschieden
+title: "Amateure spielen unentschieden"
 
 ---
 

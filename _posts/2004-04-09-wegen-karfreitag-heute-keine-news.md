@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wegen Karfreitag heute keine News
+title: "Wegen Karfreitag heute keine News"
 
 ---
 

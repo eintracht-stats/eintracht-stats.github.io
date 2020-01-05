@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verfahren gegen Streit eingestellt
+title: "Verfahren gegen Streit eingestellt"
 
 ---
 

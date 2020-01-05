@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jörg Berger ist tot
+title: "Jörg Berger ist tot"
 
 ---
 

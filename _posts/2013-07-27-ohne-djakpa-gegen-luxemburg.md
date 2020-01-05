@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Djakpa gegen Luxemburg
+title: "Ohne Djakpa gegen Luxemburg"
 
 ---
 

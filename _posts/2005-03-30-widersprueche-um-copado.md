@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Widersprüche um Copado
-subtitle: Preuß würde gerne kommen - in der ersten Liga
+title: "Widersprüche um Copado"
+subtitle: "Preuß würde gerne kommen - in der ersten Liga"
 ---
 
 Heute berichten die Zeitungen ziemlich gegensätzlich über den Transfer von Francisco Copado. Die FR meldet, dass es eher fraglich sei, ob Copado auch in der zweiten Liga für die Eintracht spielen würde. Sein Berater habe sogar angefragt, den Vertrag für die 1. Liga aufzulösen. Die FNP hingegen berichtet, dass der Wechsel auch für Liga 2 so gut wie in trockenen Tüchern sei und nach dem übernächsten Spieltag (Eintracht-Unterhaching) bekannt gegeben wird.

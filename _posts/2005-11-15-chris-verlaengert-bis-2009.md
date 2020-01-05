@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris verlängert bis 2009
+title: "Chris verlängert bis 2009"
 
 ---
 

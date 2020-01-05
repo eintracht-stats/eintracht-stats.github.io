@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torloses Unentschieden gegen Schalke
+title: "Torloses Unentschieden gegen Schalke"
 
 ---
 

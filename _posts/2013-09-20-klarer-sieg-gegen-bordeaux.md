@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg gegen Bordeaux
+title: "Klarer Sieg gegen Bordeaux"
 
 ---
 

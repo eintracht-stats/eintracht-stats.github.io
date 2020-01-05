@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsangebot für Nikolov
+title: "Vertragsangebot für Nikolov"
 
 ---
 

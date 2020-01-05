@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung- Eintracht fährt nach Nürnberg
+title: "Pokalauslosung: Eintracht fährt nach Nürnberg"
 
 ---
 

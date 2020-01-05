@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ehrung für Charly Körbel
+title: "Ehrung für Charly Körbel"
 
 ---
 

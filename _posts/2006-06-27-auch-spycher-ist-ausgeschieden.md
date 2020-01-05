@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Spycher ist ausgeschieden
+title: "Auch Spycher ist ausgeschieden"
 
 ---
 

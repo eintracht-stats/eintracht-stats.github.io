@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Eintracht in der Länderspielpause
+title: "Die Eintracht in der Länderspielpause"
 
 ---
 

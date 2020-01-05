@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Corrochano wird Co-Trainer
+title: "Corrochano wird Co-Trainer"
 
 ---
 

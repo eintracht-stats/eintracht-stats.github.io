@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4-0 gegen Aue - Eintracht zurück in der Spur
+title: "4:0 gegen Aue - Eintracht zurück in der Spur"
 
 ---
 

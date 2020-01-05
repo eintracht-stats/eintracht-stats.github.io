@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sperre bestätigt- Reimann muss 5 Spiele auf die Tribüne!
+title: "Sperre bestätigt: Reimann muss 5 Spiele auf die Tribüne!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Herzlich Willkommen auf eintracht-stats.de im Jahr 2005
+title: "Herzlich Willkommen auf eintracht-stats.de im Jahr 2005"
 
 ---
 

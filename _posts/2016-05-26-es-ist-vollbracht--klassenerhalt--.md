@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Es ist vollbracht- Klassenerhalt!!!
+title: "Es ist vollbracht: Klassenerhalt!!!"
 
 ---
 

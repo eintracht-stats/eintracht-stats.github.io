@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verpasst Pokalsensation
-subtitle: Unglückliche Niederlage gegen die Bayern
+title: "Eintracht verpasst Pokalsensation"
+subtitle: "Unglückliche Niederlage gegen die Bayern"
 ---
 
 Leider hat es für die Eintracht nicht ganz zum erträumten Pokalsieg gereicht. Ein Treffer von Pizarro in der 59. Minute, als der Peruaner einen Eckball per Kopf verwandeln konnte, reichte einfallslosen Bayern zum Sieg. Vor allen Dingen in der ersten Halbzeit zeigte die Eintracht eine beeindruckende Leistung und hatte mehrfach die Führung auf dem Fuß. 

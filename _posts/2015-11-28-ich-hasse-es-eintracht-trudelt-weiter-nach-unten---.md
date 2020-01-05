@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ich hasse es! Eintracht trudelt weiter nach unten...
+title: "Ich hasse es! Eintracht trudelt weiter nach unten..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schicksalsspiel gegen Bremen
+title: "Schicksalsspiel gegen Bremen"
 
 ---
 

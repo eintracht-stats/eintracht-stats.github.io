@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Di Matteos Frau - ist sie das Zünglein an der Waage?
+title: "Di Matteos Frau - ist sie das Zünglein an der Waage?"
 
 ---
 

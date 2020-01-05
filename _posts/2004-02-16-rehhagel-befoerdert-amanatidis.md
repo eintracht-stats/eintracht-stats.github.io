@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rehhagel befördert Amanatidis
+title: "Rehhagel befördert Amanatidis"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht wird Jovic wohl fest verpflichten
+title: "Eintracht wird Jovic wohl fest verpflichten"
 
 ---
 

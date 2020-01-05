@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Freundschaftsspiel in Heusenstamm endet mit 7-0
+title: "Freundschaftsspiel in Heusenstamm endet mit 7:0"
 
 ---
 

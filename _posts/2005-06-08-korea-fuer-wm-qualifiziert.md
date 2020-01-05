@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Korea für WM qualifiziert!
+title: "Korea für WM qualifiziert!"
 
 ---
 

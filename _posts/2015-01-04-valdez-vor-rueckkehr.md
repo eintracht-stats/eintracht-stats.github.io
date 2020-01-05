@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Valdez vor Rückkehr
+title: "Valdez vor Rückkehr"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reinhard fällt aus
+title: "Reinhard fällt aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gibt Verfahren für 1. Heimspiel bekannt
+title: "Eintracht gibt Verfahren für 1. Heimspiel bekannt"
 
 ---
 

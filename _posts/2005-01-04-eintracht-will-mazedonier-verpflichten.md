@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Mazedonier verpflichten
+title: "Eintracht will Mazedonier verpflichten"
 
 ---
 

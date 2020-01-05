@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt keinen neuen Torwart
+title: "Eintracht holt keinen neuen Torwart"
 
 ---
 

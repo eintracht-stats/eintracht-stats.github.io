@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wird Nike neuer Ausrüster?
+title: "Wird Nike neuer Ausrüster?"
 
 ---
 

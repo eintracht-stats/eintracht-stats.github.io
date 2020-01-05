@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure unterliegen Baunatal
+title: "Amateure unterliegen Baunatal"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris mit Knieverletzung
+title: "Chris mit Knieverletzung"
 
 ---
 

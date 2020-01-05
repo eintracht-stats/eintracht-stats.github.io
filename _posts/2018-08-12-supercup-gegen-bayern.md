@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Supercup gegen Bayern
+title: "Supercup gegen Bayern"
 
 ---
 

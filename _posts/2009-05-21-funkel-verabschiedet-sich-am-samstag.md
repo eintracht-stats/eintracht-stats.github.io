@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Funkel verabschiedet sich am Samstag
-subtitle: Noch kein Nachfolger bekannt
+title: "Funkel verabschiedet sich am Samstag"
+subtitle: "Noch kein Nachfolger bekannt"
 ---
 
 Jetzt ist es amtlich: Friedhelm Funkel wird nach dieser Saison nicht mehr Trainer von Eintracht Frankfurt sein. Der Trainer selbst bat am Montag um die Auflösung seines Vertrages, der erst im Februar bis 2010 verlängert worden war. Im Heimspiel am Samstag gegen den Hamburger SV wird Funkel letztmalig auf der Trainerbank der Eintracht sitzen. Er wird damit den Rekord von Erich Ribbeck als Trainer mit der längsten Amtszeit einstellen. 

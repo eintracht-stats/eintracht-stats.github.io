@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rebic kommt zurück!
+title: "Rebic kommt zurück!"
 
 ---
 

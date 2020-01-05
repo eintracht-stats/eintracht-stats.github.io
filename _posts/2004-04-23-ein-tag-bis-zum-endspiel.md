@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Ein Tag bis zum Endspiel
-subtitle: Kommt Markus Weissenberger?
+title: "Ein Tag bis zum Endspiel"
+subtitle: "Kommt Markus Weissenberger?"
 ---
 
 Morgen ist es endlich soweit: Die letzte Chance im Kampf um den Klassenerhalt gegen den SC Freiburg... Ingo Hertzsch kann jetzt definitiv auflaufen. Im Training bekam er sogar einen Ball auf die Gesichtsmaske, die ihn wegen seines Nasenbeinbruchs schützen soll. Dabei verspürte er nach eigenen Angaben keine Schmerzen. Hoffentlich kann er unserer Abwehr wieder etwas Stabilität verleihen.

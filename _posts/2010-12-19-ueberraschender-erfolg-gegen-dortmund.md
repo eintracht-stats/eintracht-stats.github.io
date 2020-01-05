@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Überraschender Erfolg gegen Dortmund
+title: "Überraschender Erfolg gegen Dortmund"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris und Preuß fehlen wohl in Köln
+title: "Chris und Preuß fehlen wohl in Köln"
 
 ---
 

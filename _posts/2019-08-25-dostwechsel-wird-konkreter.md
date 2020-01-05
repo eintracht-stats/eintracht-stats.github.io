@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dost-Wechsel wird konkreter
+title: "Dost-Wechsel wird konkreter"
 
 ---
 

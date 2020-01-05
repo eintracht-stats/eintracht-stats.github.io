@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolgreicher Pokalauftakt in Pfullendorf
+title: "Erfolgreicher Pokalauftakt in Pfullendorf"
 
 ---
 

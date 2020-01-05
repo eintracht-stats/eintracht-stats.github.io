@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 10 Jahre Eintracht-Geschichte! Daily Flip feiert Geburtstag...
+title: "10 Jahre Eintracht-Geschichte! Daily Flip feiert Geburtstag..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingsauftakt mit Probespieler
+title: "Trainingsauftakt mit Probespieler"
 
 ---
 

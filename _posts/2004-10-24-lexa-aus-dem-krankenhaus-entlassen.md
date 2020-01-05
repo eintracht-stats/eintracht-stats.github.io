@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lexa aus dem Krankenhaus entlassen
+title: "Lexa aus dem Krankenhaus entlassen"
 
 ---
 

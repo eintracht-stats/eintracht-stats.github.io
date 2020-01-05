@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintrachts Höhenflug geht weiter
-subtitle: 2-1 gegen den HSV
+title: "Eintrachts Höhenflug geht weiter"
+subtitle: "2:1 gegen den HSV"
 ---
 
 Mit dem dritten Sieg im dritten Heimspiel hat sich die Eintracht auf Platz 3 der Tabelle vorgeschoben. Gegen den Hamburger SV gelang heute ein 2:1. Der HSV begann stark, musste jedoch bereits nach 8 Minuten eine kalte Dusche hinnehmen. Ein langer Pass von Streit fand den Weg zu Weissenberger, der sofort zurücklegte - Meier traf ins lange Eck! Neben einem Ellenbogenschlag von Atouba, der nicht geahndet wurde, gab es noch ein paar schöne Paraden von Markus Pröll zu sehen. Und Markus Weissenbergers Lupfer wurde auf der Linie geklärt. Dann war Halbzeit...

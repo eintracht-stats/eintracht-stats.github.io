@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt gegen Bielefeld
+title: "Eintracht siegt gegen Bielefeld"
 
 ---
 

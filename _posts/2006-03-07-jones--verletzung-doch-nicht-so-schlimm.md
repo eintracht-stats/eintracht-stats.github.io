@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones' Verletzung doch nicht so schlimm?
+title: "Jones' Verletzung doch nicht so schlimm?"
 
 ---
 

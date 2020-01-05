@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager ohne 4
+title: "Trainingslager ohne 4"
 
 ---
 

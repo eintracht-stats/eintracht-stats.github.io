@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertrag mit Russ verlängert
+title: "Vertrag mit Russ verlängert"
 
 ---
 

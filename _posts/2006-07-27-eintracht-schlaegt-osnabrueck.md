@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Osnabrück
+title: "Eintracht schlägt Osnabrück"
 
 ---
 

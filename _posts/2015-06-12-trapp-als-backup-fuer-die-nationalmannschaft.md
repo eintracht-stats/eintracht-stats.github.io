@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp als Backup für die Nationalmannschaft
+title: "Trapp als Backup für die Nationalmannschaft"
 
 ---
 

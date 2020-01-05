@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison-Aus für Meier!
+title: "Saison-Aus für Meier!"
 
 ---
 

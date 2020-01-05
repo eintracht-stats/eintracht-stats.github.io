@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unnötiger Punktverlust gegen den HSV
+title: "Unnötiger Punktverlust gegen den HSV"
 
 ---
 

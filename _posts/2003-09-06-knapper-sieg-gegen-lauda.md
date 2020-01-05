@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Knapper Sieg gegen Lauda
-subtitle: Eintracht im Pokal zu Hause gegen Duisburg!
+title: "Knapper Sieg gegen Lauda"
+subtitle: "Eintracht im Pokal zu Hause gegen Duisburg!"
 ---
 
 Ein durchwachsener Auftritt der Mannschaft, ein gelungener Einstand für Andreas Möller... So könnte man das Testspiel beim FV Lauda zusammenfassen. Nach 11 Minuten führte die Amateurmannschaft mit 1:0. Erst nach einer halben Stunde schaffte Stefan Lexa den Ausgleich. Den 2:1-Endstand erzielte Andreas Möller kurz vor der Pause durch einen Freistoß. Willi Reimann bescheinigte Möller und dem zweiten Neuzugang Chris eine gute Leistung. Er zeigte sich zuversichtlich, den  konditionellen Rückstand der beiden schnell in den Griff zu bekommen.

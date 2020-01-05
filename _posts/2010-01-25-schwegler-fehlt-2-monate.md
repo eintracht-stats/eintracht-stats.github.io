@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schwegler fehlt 2 Monate
-subtitle: Mahdavikia geht
+title: "Schwegler fehlt 2 Monate"
+subtitle: "Mahdavikia geht"
 ---
 
 Herber Schlag für die Eintracht: Pirmin Schwegler wird voraussichtlich 2 Monate ausfallen. Im Spiel gegen Nürnberg erlitt der Schweizer einen doppelten Bänderriss im Sprunggelenk. Nächste Woche entscheidet sich, ob sogar eine Operation notwendig wird. Da könnte unser US-Neuzugang früher als gedacht gebraucht werden...

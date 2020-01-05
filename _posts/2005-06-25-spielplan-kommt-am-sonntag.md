@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielplan kommt am Sonntag
+title: "Spielplan kommt am Sonntag"
 
 ---
 

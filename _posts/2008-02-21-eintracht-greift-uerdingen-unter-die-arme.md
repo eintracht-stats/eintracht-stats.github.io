@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht greift Uerdingen unter die Arme
+title: "Eintracht greift Uerdingen unter die Arme"
 
 ---
 

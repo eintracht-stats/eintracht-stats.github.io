@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg gegen Krakau
+title: "Sieg gegen Krakau"
 
 ---
 

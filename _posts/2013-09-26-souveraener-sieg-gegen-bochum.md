@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Souveräner Sieg gegen Bochum
+title: "Souveräner Sieg gegen Bochum"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwangspause für Varela
+title: "Zwangspause für Varela"
 
 ---
 

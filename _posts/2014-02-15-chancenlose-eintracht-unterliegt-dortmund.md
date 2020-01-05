@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chancenlose Eintracht unterliegt Dortmund
+title: "Chancenlose Eintracht unterliegt Dortmund"
 
 ---
 

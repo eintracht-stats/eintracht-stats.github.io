@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Adolf Bechtold ist tot
+title: "Adolf Bechtold ist tot"
 
 ---
 

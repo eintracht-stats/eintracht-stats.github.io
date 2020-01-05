@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel hofft auf Losglück
+title: "Funkel hofft auf Losglück"
 
 ---
 

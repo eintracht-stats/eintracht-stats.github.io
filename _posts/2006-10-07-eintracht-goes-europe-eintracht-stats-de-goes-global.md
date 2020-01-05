@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht goes Europe - eintracht-stats.de goes global
+title: "Eintracht goes Europe - eintracht-stats.de goes global"
 
 ---
 

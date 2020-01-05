@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Serbien oder Estland - der Start in die Euro League
+title: "Serbien oder Estland - der Start in die Euro League"
 
 ---
 

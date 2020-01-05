@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bald auch bei den Frauen erstklassig?
+title: "Eintracht bald auch bei den Frauen erstklassig?"
 
 ---
 

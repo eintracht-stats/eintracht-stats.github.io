@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Härtetest gegen Bayer Leverkusen endet Unentschieden
-subtitle: Neues zu Chris
+title: "Härtetest gegen Bayer Leverkusen endet Unentschieden"
+subtitle: "Neues zu Chris"
 ---
 
 Dank einer sehr ansprechenden Leistung hat die Eintracht gegen Bayer Leverkusen heute ein 2:2 erreicht. In der ersten Halbzeit konnte man sogar mit 2:0 in Führung gehen, als jeweils Alexander Meier nach tollen Pässen von Lenze bzw. Schur traf. Jones markierte noch vor der Pause den Anschlusstreffer. Direkt nach Wiederanpfiff erzielte Berbatov dann den Ausgleich. Natürlich darf man das Ergebnis in dieser Phase der Vorbereitung nicht überbewerten. Aber die Abwehr stand schon ganz gut. Auch Gastspieler Markus Heikkinen fügte sich gut ein. Nach vorne gab es noch ein paar Abstimmungsprobleme. Doch das ist normal. Auf diese Leistung kann man jedenfalls aufbauen.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rode-Wechsel jetzt perfekt
+title: "Rode-Wechsel jetzt perfekt"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Weiter Rätselraten über die Aufstellung
-subtitle: Madza suspendiert!
+title: "Weiter Rätselraten über die Aufstellung"
+subtitle: "Madza suspendiert!"
 ---
 
 Auch einen Tag vor dem Bundesligastart ist noch nicht klar, wer denn nun für die Eintracht in München auflaufen wird. Fest steht bislang nur, dass Markus Pröll wegen eines ausgerenkten Wirbels zu Hause bleiben und dementsprechend Andreas Menger auf der Bank sitzen wird. Aber ansonsten gibt es viele Fragezeichen: Im Training hatte Willi Reimann zuletzt mit drei Spitzen agieren lassen. Diese Taktik kann ich mir allerdings nicht wirklich vorstellen. Ebensowenig wie die in einigen Zeitungen gehandelte Viererkette mit zusätzlichem Libero Jens Keller dahinter... Wir werden uns also tatsächlich bis morgen gedulden müssen.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal- Eintracht empfängt Gladbach
+title: "Pokal: Eintracht empfängt Gladbach"
 
 ---
 

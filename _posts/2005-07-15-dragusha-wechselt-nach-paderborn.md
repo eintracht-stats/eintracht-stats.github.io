@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dragusha wechselt nach Paderborn
+title: "Dragusha wechselt nach Paderborn"
 
 ---
 

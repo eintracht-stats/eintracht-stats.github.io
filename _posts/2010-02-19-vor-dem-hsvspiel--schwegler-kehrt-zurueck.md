@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vor dem HSV-Spiel- Schwegler kehrt zurück
+title: "Vor dem HSV-Spiel: Schwegler kehrt zurück"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keller fährt erneut zur Reha
+title: "Keller fährt erneut zur Reha"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht packt auch Freiburg
+title: "Eintracht packt auch Freiburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Yakin im Trainerrennen
+title: "Auch Yakin im Trainerrennen"
 
 ---
 

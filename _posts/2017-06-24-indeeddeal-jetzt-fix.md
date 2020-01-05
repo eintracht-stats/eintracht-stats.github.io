@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Indeed-Deal jetzt fix
+title: "Indeed-Deal jetzt fix"
 
 ---
 

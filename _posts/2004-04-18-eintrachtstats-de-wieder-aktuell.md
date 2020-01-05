@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintracht-stats.de wieder aktuell!
+title: "eintracht-stats.de wieder aktuell!"
 
 ---
 

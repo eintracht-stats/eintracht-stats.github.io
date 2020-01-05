@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ein Punkt im letzten Auswärtsspiel
+title: "Ein Punkt im letzten Auswärtsspiel"
 
 ---
 

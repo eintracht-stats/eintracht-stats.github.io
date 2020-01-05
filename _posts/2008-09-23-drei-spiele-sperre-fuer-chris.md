@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drei Spiele Sperre für Chris
+title: "Drei Spiele Sperre für Chris"
 
 ---
 

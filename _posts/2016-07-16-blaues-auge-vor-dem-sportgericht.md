@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blaues Auge vor dem Sportgericht
+title: "Blaues Auge vor dem Sportgericht"
 
 ---
 

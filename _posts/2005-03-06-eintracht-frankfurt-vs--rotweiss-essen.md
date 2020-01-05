@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt vs. Rot-Weiß Essen
+title: "Eintracht Frankfurt vs. Rot-Weiß Essen"
 
 ---
 

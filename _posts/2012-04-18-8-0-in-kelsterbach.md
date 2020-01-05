@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 8-0 in Kelsterbach
+title: "8:0 in Kelsterbach"
 
 ---
 

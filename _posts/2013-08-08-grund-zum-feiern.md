@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Grund zum Feiern!
+title: "Grund zum Feiern!"
 
 ---
 

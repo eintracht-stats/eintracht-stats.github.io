@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstiegskampf ist voll entbrannt
+title: "Abstiegskampf ist voll entbrannt"
 
 ---
 

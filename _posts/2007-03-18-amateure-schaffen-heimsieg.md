@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schaffen Heimsieg
+title: "Amateure schaffen Heimsieg"
 
 ---
 

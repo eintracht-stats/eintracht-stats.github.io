@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Einige Spieler nicht im Training
-subtitle: Nikolov bleibt wohl im Tor
+title: "Einige Spieler nicht im Training"
+subtitle: "Nikolov bleibt wohl im Tor"
 ---
 
 Beim gestrigen Training fehlte Ingo Hertzsch, da er in Leverkusen noch einige organisatorische Dinge erledigen musste. Weiterhin nicht dabei waren Andree Wiedener (Muskelfaserriss) und Uwe Bindewald (Grippe), der jedoch heute wieder ins Training einsteigen wird. Andreas Möller absolvierte nur ein Lauftraining, während Tsoumou-Madza nach seinen Knie-Problemen erstmals ein spezielles Reha-Training machte. 

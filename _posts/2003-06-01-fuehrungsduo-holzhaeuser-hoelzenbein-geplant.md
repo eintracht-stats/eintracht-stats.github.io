@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Führungsduo Holzhäuser/Hölzenbein geplant?
-subtitle: Skela bleibt bei der Eintracht
+title: "Führungsduo Holzhäuser/Hölzenbein geplant?"
+subtitle: "Skela bleibt bei der Eintracht"
 ---
 
 Gegenüber der FAZ äußerte sich Aufsichtsratschef Jürgen Neppe zu den Planungen für Management und Vorstand. Er bekräftigte das Interesse an Wolfgang Holzhäuser. Die Eintracht brauche einen Typen wie ihn, der für absolut solide Fußball-Politik stehe. Für den Managerposten plant er mit einem alten bekannten: Bernd Hölzenbein ist offenbar neuester Kandidat... Einer Doppelfunktion Trainer/Manager in Person von Willi Reimann erteilte er erneut eine Absage.

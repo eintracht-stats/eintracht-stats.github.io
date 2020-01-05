@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure marschieren weiter
+title: "Amateure marschieren weiter"
 
 ---
 

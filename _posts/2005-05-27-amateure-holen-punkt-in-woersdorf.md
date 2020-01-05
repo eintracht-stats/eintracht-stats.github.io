@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure holen Punkt in Wörsdorf
+title: "Amateure holen Punkt in Wörsdorf"
 
 ---
 

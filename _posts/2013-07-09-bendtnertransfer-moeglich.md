@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bendtner-Transfer möglich
+title: "Bendtner-Transfer möglich"
 
 ---
 

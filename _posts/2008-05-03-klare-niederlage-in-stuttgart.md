@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klare Niederlage in Stuttgart
+title: "Klare Niederlage in Stuttgart"
 
 ---
 

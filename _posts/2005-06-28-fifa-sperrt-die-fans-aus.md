@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fifa sperrt die Fans aus!
+title: "Fifa sperrt die Fans aus!"
 
 ---
 

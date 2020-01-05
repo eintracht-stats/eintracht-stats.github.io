@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hinti ist wieder da - Trapp-Entscheidung naht
+title: "Hinti ist wieder da - Trapp-Entscheidung naht"
 
 ---
 

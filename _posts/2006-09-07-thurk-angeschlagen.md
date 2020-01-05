@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thurk angeschlagen
+title: "Thurk angeschlagen"
 
 ---
 

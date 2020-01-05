@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rekordstrafe für die Eintracht
+title: "Rekordstrafe für die Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorbereitung läuft- Trainingsauftakt bei der Eintracht
+title: "Vorbereitung läuft: Trainingsauftakt bei der Eintracht"
 
 ---
 

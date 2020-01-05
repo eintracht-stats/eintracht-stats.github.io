@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zambrano spielt trotz Verletzung
+title: "Zambrano spielt trotz Verletzung"
 
 ---
 

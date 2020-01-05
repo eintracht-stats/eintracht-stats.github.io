@@ -1,7 +1,7 @@
 ---
 layout: post
-title: FFH- Ganea kommt!!!  - FNP: Ganea kommt nicht!!!
-subtitle: Spielbetrieb auch ohne Investor gesichert
+title: "FFH: Ganea kommt!!!  - FNP: Ganea kommt nicht!!!"
+subtitle: "Spielbetrieb auch ohne Investor gesichert"
 ---
 
 Große Verwirrung in Frankfurt: Wie der Radiosender FFH erfahren haben will, hat sich die Eintracht mit Viorel Ganea vom VfB Stuttgart über einen Wechsel geeinigt. In Kürze soll der Rumäne, der in der vergangenen Saison 9 Treffer erzielt hatte, einen Dreijahresvertrag unterschreiben. Beim Trainingsauftakt am kommenden Montag würde er dementsprechend ebenfalls teilnehmen. Dagegen meldet die FNP, dass der Deal in letzter Sekunde geplatzt sei. Näheres hierzu will die Zeitung aber erst in ihrer morgigen Ausgabe schreiben. Ich weiß nicht, was denn nun stimmt...

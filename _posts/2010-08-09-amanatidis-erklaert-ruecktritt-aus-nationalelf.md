@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis erklärt Rücktritt aus Nationalelf
+title: "Amanatidis erklärt Rücktritt aus Nationalelf"
 
 ---
 

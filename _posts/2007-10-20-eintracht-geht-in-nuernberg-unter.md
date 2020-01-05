@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht geht in Nürnberg unter
+title: "Eintracht geht in Nürnberg unter"
 
 ---
 

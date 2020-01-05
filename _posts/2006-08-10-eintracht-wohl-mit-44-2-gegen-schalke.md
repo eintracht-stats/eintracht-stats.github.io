@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht wohl mit 4-4-2 gegen Schalke
+title: "Eintracht wohl mit 4-4-2 gegen Schalke"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolgreiche Länderspiele unserer Spieler
+title: "Erfolgreiche Länderspiele unserer Spieler"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Europa League-Abenteuer gegen Donezk
+title: "Europa League-Abenteuer gegen Donezk"
 
 ---
 

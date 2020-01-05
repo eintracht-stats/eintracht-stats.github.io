@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Neuzugang steht fest- Branimir Hrgota
+title: "Erster Neuzugang steht fest: Branimir Hrgota"
 
 ---
 

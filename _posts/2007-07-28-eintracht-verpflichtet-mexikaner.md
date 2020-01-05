@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Mexikaner!
+title: "Eintracht verpflichtet Mexikaner!"
 
 ---
 

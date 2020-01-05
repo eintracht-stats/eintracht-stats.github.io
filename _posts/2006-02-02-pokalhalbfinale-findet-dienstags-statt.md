@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalhalbfinale findet dienstags statt
+title: "Pokalhalbfinale findet dienstags statt"
 
 ---
 

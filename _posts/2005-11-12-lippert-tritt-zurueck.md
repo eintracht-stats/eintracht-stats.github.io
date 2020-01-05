@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lippert tritt zurück
+title: "Lippert tritt zurück"
 
 ---
 

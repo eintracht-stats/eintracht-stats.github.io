@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Holzhäuser kommt nicht!
-subtitle: Aufsichtsrat tagt - Abmahnung für Reimann?
+title: "Holzhäuser kommt nicht!"
+subtitle: "Aufsichtsrat tagt - Abmahnung für Reimann?"
 ---
 
 Typisch Eintracht... Der Streit zwischen Trainer Willi Reimann und dem Aufsichtsratsvorsitzenden Jürgen Neppe (siehe gestern) geht in die nächste Runde. Auf der heutigen Aufsichtsratssitzung geht es unter anderem um die Frage, ob Willi Reimann eine Abmahnung erhält! Das schloss Volker Sparmann jedoch aus: "Darüber kann ich nur lachen." Er ermahnte allerdings alle Parteien, Dinge intern zu klären.

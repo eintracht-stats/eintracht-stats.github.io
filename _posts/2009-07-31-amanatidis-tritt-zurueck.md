@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis tritt zurück
+title: "Amanatidis tritt zurück"
 
 ---
 

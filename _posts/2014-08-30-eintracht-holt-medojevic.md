@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Medojevic
+title: "Eintracht holt Medojevic"
 
 ---
 

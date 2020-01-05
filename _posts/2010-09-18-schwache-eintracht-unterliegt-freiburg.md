@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwache Eintracht unterliegt Freiburg
+title: "Schwache Eintracht unterliegt Freiburg"
 
 ---
 

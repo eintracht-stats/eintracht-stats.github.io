@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bindewald und Möller fehlen weiter
+title: "Bindewald und Möller fehlen weiter"
 
 ---
 

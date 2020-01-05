@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Update
+title: "Eintracht-Update"
 
 ---
 

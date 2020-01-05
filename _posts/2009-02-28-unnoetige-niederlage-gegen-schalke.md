@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unnötige Niederlage gegen Schalke
+title: "Unnötige Niederlage gegen Schalke"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4 Wochen Pause für Vasoski
+title: "4 Wochen Pause für Vasoski"
 
 ---
 

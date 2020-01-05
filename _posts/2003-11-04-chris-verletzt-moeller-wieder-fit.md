@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Chris verletzt - Möller wieder fit
-subtitle: Reimann kritisiert Presse und e.V-Präsident
+title: "Chris verletzt - Möller wieder fit"
+subtitle: "Reimann kritisiert Presse und e.V-Präsident"
 ---
 
 Unser Brasilianer Chris hat sich einen Muskelfaserriss zugezogen und wird am Samstag gegen Tabellenführer Stuttgart wohl nicht spielen können. Andreas Möller hingegen hat seine Magenverstimmung auskuriert und könnte wieder spielen.

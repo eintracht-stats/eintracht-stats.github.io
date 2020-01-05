@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem HSV-Spiel
+title: "Eintracht vor dem HSV-Spiel"
 
 ---
 

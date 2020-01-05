@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gibt Lizenzantrag ab
+title: "Eintracht gibt Lizenzantrag ab"
 
 ---
 

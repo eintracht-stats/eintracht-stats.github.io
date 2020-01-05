@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier trainiert in Österreich - Rebic zu Bayern?
+title: "Meier trainiert in Österreich - Rebic zu Bayern?"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Debakel für die Amateure
+title: "Debakel für die Amateure"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht-Mannschaft gegen Wolfsburg unverändert
-subtitle: Muss Madza operiert werden?
+title: "Eintracht-Mannschaft gegen Wolfsburg unverändert"
+subtitle: "Muss Madza operiert werden?"
 ---
 
 Willi Reimann ist sich offenbar schon sicher, mit welcher Mannschaft er im Heimspiel gegen Wolfsburg zu Punkten kommen möchte: Er erklärte, dass höchstwahrscheinlich die gleiche Elf wie in Freiburg auflaufen wird - wenn alle gesund bleiben. Wieder mit im Kader ist dann auch Nico Frommer, der nach seinem Muskelfaserriss heute wieder ins Mannschaftstraining einsteigt. Er wird ebenso wie der erkältete Mehmet Dragusha aber nur auf der Bank sitzen.

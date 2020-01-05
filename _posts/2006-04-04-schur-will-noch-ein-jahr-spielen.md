@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur will noch ein Jahr spielen
+title: "Schur will noch ein Jahr spielen"
 
 ---
 

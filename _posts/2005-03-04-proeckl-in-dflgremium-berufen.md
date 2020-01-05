@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröckl in DFL-Gremium berufen
+title: "Pröckl in DFL-Gremium berufen"
 
 ---
 

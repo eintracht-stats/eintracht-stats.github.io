@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sponsor gefunden - wer wird es?
+title: "Sponsor gefunden - wer wird es?"
 
 ---
 

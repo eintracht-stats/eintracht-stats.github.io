@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspielpleite in San Jose
+title: "Testspielpleite in San Jose"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones arbeitet am Comeback
+title: "Jones arbeitet am Comeback"
 
 ---
 

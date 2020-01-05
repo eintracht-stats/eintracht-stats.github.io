@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure hoffen wieder
+title: "Eintracht-Amateure hoffen wieder"
 
 ---
 

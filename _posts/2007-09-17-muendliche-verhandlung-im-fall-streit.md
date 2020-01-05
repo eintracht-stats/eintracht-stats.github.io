@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mündliche Verhandlung im Fall Streit
+title: "Mündliche Verhandlung im Fall Streit"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: PSP kann mehr Geld ausgeben
+title: "PSP kann mehr Geld ausgeben"
 
 ---
 

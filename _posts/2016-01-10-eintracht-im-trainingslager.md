@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im Trainingslager
+title: "Eintracht im Trainingslager"
 
 ---
 

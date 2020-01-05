@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Puljiz muss operiert werden
-subtitle: Spieltermine der Hinrunde stehen fest
+title: "Puljiz muss operiert werden"
+subtitle: "Spieltermine der Hinrunde stehen fest"
 ---
 
 Jurica Puljiz muss sich einer Operation unterziehen und kann frühestens im nächsten Jahr wieder spielen. Der Kroate leidet an einer Entzündung im Sprunggelenk, die durch konservative Behandlungsmethoden nicht in den Griff zu bekommen war. Daher muss jetzt eine Arthroskopie durchgeführt werden, wie Mannschaftsarzt Dr. Seeger mitteilte. Danach muss Puljiz sich in der Reha wieder an die Mannschaft herankämpfen.

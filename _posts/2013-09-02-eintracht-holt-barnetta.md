@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Barnetta
+title: "Eintracht holt Barnetta"
 
 ---
 

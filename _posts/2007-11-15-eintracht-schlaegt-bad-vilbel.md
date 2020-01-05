@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Bad Vilbel
+title: "Eintracht schlägt Bad Vilbel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hexenschuss bei Madlung, Erkältung bei Zambrano
+title: "Hexenschuss bei Madlung, Erkältung bei Zambrano"
 
 ---
 

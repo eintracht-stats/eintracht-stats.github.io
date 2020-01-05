@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saison-Aus für Vasoski!
+title: "Saison-Aus für Vasoski!"
 
 ---
 

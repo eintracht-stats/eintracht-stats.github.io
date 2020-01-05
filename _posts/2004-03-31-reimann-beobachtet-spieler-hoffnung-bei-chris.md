@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann beobachtet Spieler/Hoffnung bei Chris
-subtitle: FSV gewinnt Oberliga-Derby
+title: "Reimann beobachtet Spieler/Hoffnung bei Chris"
+subtitle: "FSV gewinnt Oberliga-Derby"
 ---
 
 Gestern weilte Willi Reimann zusammen mit Charly Körbel in Kroatien, wo er sich das U21-Länderspiel Kroatien gegen Bosnien-Herzegowina ansah. Welcher Spieler dabei beobachtet wurde, gab die Eintracht nicht bekannt. Ich kann mir nicht helfen: Es ist irgendwie seltsam, dass der Trainer mitten in der Woche zur Spielbeobachtung verreist...

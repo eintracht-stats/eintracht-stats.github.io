@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Trainingslager beendet - Eintracht-Pinneberg 4-0
-subtitle: Cipis Verletzung nicht gravierend
+title: "Trainingslager beendet - Eintracht-Pinneberg 4:0"
+subtitle: "Cipis Verletzung nicht gravierend"
 ---
 
 Willi Reimann zog ein positives Fazit über das heute zu Ende gegangene Trainingslager auf Sylt. Man sei ein schönes Stück weiter gekommen. Auch für die Integration der 8 Neuzugänge sei das Trainingslager ideal gewesen. Der Trainer ist davon überzeugt, sich auf allen Positionen gut verstärkt zu haben. Auf dem Heimweg legte die Eintracht noch einen Zwischenstopp in Pinneberg ein, wo das nächste Testspiel absolviert wurde.

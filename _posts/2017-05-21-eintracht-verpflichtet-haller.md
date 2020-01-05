@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Haller
+title: "Eintracht verpflichtet Haller"
 
 ---
 

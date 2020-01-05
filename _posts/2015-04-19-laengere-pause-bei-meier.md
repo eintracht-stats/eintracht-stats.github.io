@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Längere Pause bei Meier
+title: "Längere Pause bei Meier"
 
 ---
 

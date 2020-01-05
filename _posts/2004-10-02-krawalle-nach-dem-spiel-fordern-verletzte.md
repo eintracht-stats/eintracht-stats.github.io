@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krawalle nach dem Spiel fordern Verletzte
+title: "Krawalle nach dem Spiel fordern Verletzte"
 
 ---
 

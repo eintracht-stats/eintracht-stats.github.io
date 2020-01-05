@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Japan vor dem Aus
+title: "Japan vor dem Aus"
 
 ---
 

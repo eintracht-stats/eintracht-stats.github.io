@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder ein Last Minute Sieg
+title: "Wieder ein Last Minute Sieg"
 
 ---
 

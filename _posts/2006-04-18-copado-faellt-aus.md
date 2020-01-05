@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Copado fällt aus
+title: "Copado fällt aus"
 
 ---
 

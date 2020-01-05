@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Länderspielpause zwingt zur Langeweile
+title: "Länderspielpause zwingt zur Langeweile"
 
 ---
 

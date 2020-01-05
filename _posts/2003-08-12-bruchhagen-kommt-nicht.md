@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen kommt nicht
-subtitle: Eintracht mit dünnem 4-2 gegen Dornheim
+title: "Bruchhagen kommt nicht"
+subtitle: "Eintracht mit dünnem 4:2 gegen Dornheim"
 ---
 
 Gestern bereits wurde bekannt, dass Heribert Bruchhagen ein Angebot vorliegen hatte, den Vorstandsvorsitz bei der Eintracht zu übernehmen. Ihm sei gesagt worden, dass es keine anderen Kandidaten gebe. Am Freitag wurde dann die jetzige Lösung mit Peter Schuster aus dem Hut gezaubert. Bruchhagen kommt nun auch nicht mehr für den Posten des sportlichen Leiters in Betracht, da er sich verständlicherweise vor den Kopf gestoßen fühlt. Eintracht wie sie leibt und lebt...

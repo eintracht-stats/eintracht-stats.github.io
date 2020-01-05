@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vertragsverhandlungen mit Spycher
+title: "Vertragsverhandlungen mit Spycher"
 
 ---
 

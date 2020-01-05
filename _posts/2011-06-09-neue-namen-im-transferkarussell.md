@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Namen im Transferkarussell
+title: "Neue Namen im Transferkarussell"
 
 ---
 

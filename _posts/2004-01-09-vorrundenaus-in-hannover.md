@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorrundenaus in Hannover
+title: "Vorrundenaus in Hannover"
 
 ---
 

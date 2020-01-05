@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch genug Karten da- Kommt ins Stadion!
+title: "Noch genug Karten da: Kommt ins Stadion!"
 
 ---
 

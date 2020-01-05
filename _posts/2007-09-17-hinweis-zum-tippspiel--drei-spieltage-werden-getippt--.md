@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hinweis zum Tippspiel- Drei Spieltage werden getippt!!!
+title: "Hinweis zum Tippspiel: Drei Spieltage werden getippt!!!"
 
 ---
 

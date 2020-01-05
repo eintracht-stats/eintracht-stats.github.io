@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintrachts Pechsträhne geht weiter- 1:2 in Leverkusen
+title: "Eintrachts Pechsträhne geht weiter: 1:2 in Leverkusen"
 
 ---
 

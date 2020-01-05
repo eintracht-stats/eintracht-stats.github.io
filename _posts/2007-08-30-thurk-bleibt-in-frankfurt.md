@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thurk bleibt in Frankfurt
+title: "Thurk bleibt in Frankfurt"
 
 ---
 

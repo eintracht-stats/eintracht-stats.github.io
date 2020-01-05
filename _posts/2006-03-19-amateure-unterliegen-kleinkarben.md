@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure unterliegen Klein-Karben
+title: "Amateure unterliegen Klein-Karben"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFL vertagt Entscheidung über Aufstockung
+title: "DFL vertagt Entscheidung über Aufstockung"
 
 ---
 

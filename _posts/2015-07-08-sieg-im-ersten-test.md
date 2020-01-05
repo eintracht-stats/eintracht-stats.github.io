@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im ersten Test
+title: "Sieg im ersten Test"
 
 ---
 

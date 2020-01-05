@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Personalsituation verschärft sich
+title: "Personalsituation verschärft sich"
 
 ---
 

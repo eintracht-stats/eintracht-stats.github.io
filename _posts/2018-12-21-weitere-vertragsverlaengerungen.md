@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weitere Vertragsverlängerungen
+title: "Weitere Vertragsverlängerungen"
 
 ---
 

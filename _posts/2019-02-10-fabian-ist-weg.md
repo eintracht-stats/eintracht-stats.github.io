@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fabian ist weg
+title: "Fabian ist weg"
 
 ---
 

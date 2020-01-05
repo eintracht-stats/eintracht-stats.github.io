@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Haller erzielt Tor des Jahres
+title: "Haller erzielt Tor des Jahres"
 
 ---
 

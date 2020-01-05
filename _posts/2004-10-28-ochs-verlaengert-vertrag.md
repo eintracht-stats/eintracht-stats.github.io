@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs verlängert Vertrag
+title: "Ochs verlängert Vertrag"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zambrano erleidet Zehenbruch
+title: "Zambrano erleidet Zehenbruch"
 
 ---
 

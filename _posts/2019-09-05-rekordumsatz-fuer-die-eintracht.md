@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rekordumsatz für die Eintracht
+title: "Rekordumsatz für die Eintracht"
 
 ---
 

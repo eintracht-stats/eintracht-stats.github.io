@@ -1,7 +1,7 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2009!
-subtitle: Jahresrückblick XXL zum Ausklang...
+title: "eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2009!"
+subtitle: "Jahresrückblick XXL zum Ausklang..."
 ---
 
 2008 ist vorbei. Was für ein Jahr... Ein Jahr der Krise, ein Jahr der Veränderungen, ein Jahr des Aufbruchs? Wahrscheinlich von alldem ein bisschen. Traditionell werden die letzten 12 Monate an dieser Stelle noch einmal in bester Daily-Flip-Qualität aufgearbeitet. Zu Beginn wie immer der sportliche Teil, damit alle Eintracht-Fans sich danach verabschieden können und nur noch hartgesottene Daily-Flip-Anhänger sich den Rest geben können. Denn der ist diesmal etwas länger geraten als üblich... ;-)

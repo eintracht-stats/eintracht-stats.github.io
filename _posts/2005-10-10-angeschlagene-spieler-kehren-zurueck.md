@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Angeschlagene Spieler kehren zurück
+title: "Angeschlagene Spieler kehren zurück"
 
 ---
 

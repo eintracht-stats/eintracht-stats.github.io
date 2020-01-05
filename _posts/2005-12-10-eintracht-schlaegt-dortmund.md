@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Dortmund
+title: "Eintracht schlägt Dortmund"
 
 ---
 

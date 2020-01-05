@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFL legt Anstosszeiten fest
+title: "DFL legt Anstosszeiten fest"
 
 ---
 

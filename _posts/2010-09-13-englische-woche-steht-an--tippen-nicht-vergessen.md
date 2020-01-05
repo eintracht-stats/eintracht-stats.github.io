@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Englische Woche steht an- Tippen nicht vergessen!
+title: "Englische Woche steht an: Tippen nicht vergessen!"
 
 ---
 

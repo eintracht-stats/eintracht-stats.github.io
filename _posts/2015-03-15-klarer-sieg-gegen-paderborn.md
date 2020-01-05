@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg gegen Paderborn
+title: "Klarer Sieg gegen Paderborn"
 
 ---
 

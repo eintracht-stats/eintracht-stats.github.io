@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Husterer bleibt - Ochs muss weiter pausieren
+title: "Husterer bleibt - Ochs muss weiter pausieren"
 
 ---
 

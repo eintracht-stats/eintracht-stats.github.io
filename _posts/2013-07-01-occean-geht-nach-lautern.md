@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Occean geht nach Lautern
+title: "Occean geht nach Lautern"
 
 ---
 

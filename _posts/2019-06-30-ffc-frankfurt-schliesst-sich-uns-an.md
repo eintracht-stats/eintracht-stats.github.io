@@ -1,6 +1,6 @@
 ---
 layout: post
-title: FFC Frankfurt schließt sich uns an
+title: "FFC Frankfurt schließt sich uns an"
 
 ---
 

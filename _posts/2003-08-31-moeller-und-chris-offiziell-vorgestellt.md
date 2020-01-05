@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Möller und Chris offiziell vorgestellt
+title: "Möller und Chris offiziell vorgestellt"
 
 ---
 

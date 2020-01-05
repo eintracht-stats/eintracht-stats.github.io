@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jetzt doch Midtjylland? Kadlec vor dem Absprung...
+title: "Jetzt doch Midtjylland? Kadlec vor dem Absprung..."
 
 ---
 

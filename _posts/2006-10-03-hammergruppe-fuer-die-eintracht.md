@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hammergruppe für die Eintracht!
+title: "Hammergruppe für die Eintracht!"
 
 ---
 

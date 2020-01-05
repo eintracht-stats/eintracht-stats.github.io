@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Gescheiterte Verhandlungen betreffen auch die Eintracht
-subtitle: Möller ist angeschlagen - Lilien besiegen Amateure
+title: "Gescheiterte Verhandlungen betreffen auch die Eintracht"
+subtitle: "Möller ist angeschlagen - Lilien besiegen Amateure"
 ---
 
 Nach dem Scheitern der Verhandlungen mit dem erhofften Stadionbetreiber Stadiovarios, stehen auch der Eintracht Probleme ins Haus. Zwar wurden im laufenden Lizenzierungsverfahren keine Gelder des Investors eingeplant - die "Freunde der Eintracht" waren ja kurzfristig eingesprungen. Aber wenn kein neuer Geldgeber gefunden wird, müsste die Eintracht ihren Etat für die kommende Saison deutlich abspecken. Aus Eintracht-Kreisen verlautete unterdessen, dass man sich auch vorstellen könne, den Stadionbetrieb in Eigenregie gemeinsam mit der Stadt zu übernehmen...

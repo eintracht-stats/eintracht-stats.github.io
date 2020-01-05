@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Remis im US-Testspiel
+title: "Remis im US-Testspiel"
 
 ---
 

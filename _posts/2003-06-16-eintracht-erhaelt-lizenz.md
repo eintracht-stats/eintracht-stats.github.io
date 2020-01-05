@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht erhält Lizenz
-subtitle: Munteanu und Reghecampf im Gespräch
+title: "Eintracht erhält Lizenz"
+subtitle: "Munteanu und Reghecampf im Gespräch"
 ---
 
 Wie Werner Hackmann, seines Zeichens Liga-Präsident, heute auf einer Pressekonferenz mitteilte, haben alle 36 Profivereine die Lizenz für die kommende Saison erhalten. Laut Berichten des Kickers benötigte die Eintracht aber auch für die kommende Spielzeit wieder eine Bürgschaft der Hessischen Landesbank... Das wiederum dementierte die Eintracht in ihrer Pressemitteilung zur Lizenzvergabe. Allein durch die Vorlage von Sponsorenverträgen sei die Lizenz gesichert worden.

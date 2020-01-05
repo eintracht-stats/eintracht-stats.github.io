@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht seit heute im Trainingslager
+title: "Eintracht seit heute im Trainingslager"
 
 ---
 

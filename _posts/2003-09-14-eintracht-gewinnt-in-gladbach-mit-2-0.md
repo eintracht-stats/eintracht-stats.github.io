@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht gewinnt in Gladbach mit 2-0
-subtitle: Kreuz und Bürger treffen - Möller von Anfang an dabei
+title: "Eintracht gewinnt in Gladbach mit 2:0"
+subtitle: "Kreuz und Bürger treffen - Möller von Anfang an dabei"
 ---
 
 Nach einem langen Abschlag von Oka Nikolov konnte Markus Kreuz in der 17. Minute die 1:0 Führung für die Eintracht markieren, die bis zur Halbzeitpause Bestand haben sollte...

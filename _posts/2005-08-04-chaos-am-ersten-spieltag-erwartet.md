@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Chaos am ersten Spieltag erwartet
-subtitle: Frühe Anreise ist mehr als ratsam
+title: "Chaos am ersten Spieltag erwartet"
+subtitle: "Frühe Anreise ist mehr als ratsam"
 ---
 
 Der Saisonauftakt am Sonntag könnte zu einem großen Ärgernis werden: Dabei geht es weniger um die Leistung der Mannschaft, zu der ich natürlich großes Vertrauen habe. Vielmehr macht der teuerste Neuzugang Sorgen - das Stadion. Dort scheint schon jetzt das Chaos vorprogrammiert... 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hallenturnier in Oldenburg- Eintracht gewinnt erneut
+title: "Hallenturnier in Oldenburg: Eintracht gewinnt erneut"
 
 ---
 

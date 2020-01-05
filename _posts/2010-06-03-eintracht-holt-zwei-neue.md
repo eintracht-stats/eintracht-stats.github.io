@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt zwei Neue
+title: "Eintracht holt zwei Neue"
 
 ---
 

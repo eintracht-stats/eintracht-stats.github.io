@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thurk kommt zur Eintracht!
+title: "Thurk kommt zur Eintracht!"
 
 ---
 

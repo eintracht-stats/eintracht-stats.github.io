@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veränderungen gegen Fürth?
+title: "Veränderungen gegen Fürth?"
 
 ---
 

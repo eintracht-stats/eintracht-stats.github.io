@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hertzsch kann spielen
-subtitle: Copado und van Lent zur Eintracht?
+title: "Hertzsch kann spielen"
+subtitle: "Copado und van Lent zur Eintracht?"
 ---
 
 Ingo Hertzsch wird am Samstag gegen den SC Freiburg auflaufen können. Gestern trainierte er erstmals mit der Gesichtsmaske, die er wegen seines Nasenbeinbruchs tragen muss. Danach gab er grünes Licht für einen Einsatz. Aus medizinischer Sicht besteht demnach kein Risiko. Hertzsch muss sich in den kommenden Trainingseinheiten nun noch an die Maske gewöhnen.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Gekas
+title: "Eintracht holt Gekas"
 
 ---
 

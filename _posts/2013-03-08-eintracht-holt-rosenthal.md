@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Rosenthal
+title: "Eintracht holt Rosenthal"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler und Fenin haben noch frei
+title: "Schwegler und Fenin haben noch frei"
 
 ---
 

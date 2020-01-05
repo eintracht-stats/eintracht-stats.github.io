@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veränderte Eintracht-Mannschaft beim HSV
+title: "Veränderte Eintracht-Mannschaft beim HSV"
 
 ---
 

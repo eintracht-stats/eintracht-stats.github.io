@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kommt nicht in Schwung
+title: "Eintracht kommt nicht in Schwung"
 
 ---
 

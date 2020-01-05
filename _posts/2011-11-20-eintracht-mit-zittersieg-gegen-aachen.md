@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht mit Zittersieg gegen Aachen
+title: "Eintracht mit Zittersieg gegen Aachen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Muratagic ist Nikolov-Ersatz
+title: "Muratagic ist Nikolov-Ersatz"
 
 ---
 

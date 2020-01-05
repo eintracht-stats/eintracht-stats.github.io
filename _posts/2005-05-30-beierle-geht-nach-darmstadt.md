@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Beierle geht nach Darmstadt
+title: "Beierle geht nach Darmstadt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis ist neuer Kapitän
+title: "Amanatidis ist neuer Kapitän"
 
 ---
 

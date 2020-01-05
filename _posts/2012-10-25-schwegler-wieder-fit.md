@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler wieder fit
+title: "Schwegler wieder fit"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vier Spieler im Probetraining
+title: "Vier Spieler im Probetraining"
 
 ---
 

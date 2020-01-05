@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel bittet um Freigabe
+title: "Huggel bittet um Freigabe"
 
 ---
 

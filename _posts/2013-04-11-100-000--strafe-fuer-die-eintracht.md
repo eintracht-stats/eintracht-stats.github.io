@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 100.000 Strafe für die Eintracht
+title: "100.000 Strafe für die Eintracht"
 
 ---
 

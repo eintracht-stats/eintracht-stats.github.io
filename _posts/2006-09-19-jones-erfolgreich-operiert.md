@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones erfolgreich operiert
+title: "Jones erfolgreich operiert"
 
 ---
 

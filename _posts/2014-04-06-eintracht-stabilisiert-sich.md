@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht stabilisiert sich
+title: "Eintracht stabilisiert sich"
 
 ---
 

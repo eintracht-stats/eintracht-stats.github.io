@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bayer Leverkusen hat Option auf Cha
-subtitle: Reimann will Nicht-Abstiegs-Prämie für Liga 2!
+title: "Bayer Leverkusen hat Option auf Cha"
+subtitle: "Reimann will Nicht-Abstiegs-Prämie für Liga 2!"
 ---
 
 Die Probleme um Du-Ri Chas Spielberechtigung stehen kurz vor einer Lösung: Für den 1. Spieltag wurde Spielerlaubnis seitens der DFL nicht erteilt, weil Cha erst am Freitag nachmittag aus Asien zurückgekehrt war und danach seinen neuen Zwei-Jahres-Vertrag unterschrieben hatte. Damit war die Frist für den 1. Spieltag aber schon abgelaufen...

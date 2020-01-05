@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Stadion kaufen
+title: "Eintracht will Stadion kaufen"
 
 ---
 

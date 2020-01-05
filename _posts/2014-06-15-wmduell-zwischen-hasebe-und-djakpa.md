@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WM-Duell zwischen Hasebe und Djakpa
+title: "WM-Duell zwischen Hasebe und Djakpa"
 
 ---
 

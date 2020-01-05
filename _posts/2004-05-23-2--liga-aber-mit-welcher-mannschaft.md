@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2. Liga - aber mit welcher Mannschaft?
+title: "2. Liga - aber mit welcher Mannschaft?"
 
 ---
 

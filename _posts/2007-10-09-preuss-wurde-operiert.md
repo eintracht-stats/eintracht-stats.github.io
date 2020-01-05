@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Preuß wurde operiert
-subtitle: Relegation kehrt zurück
+title: "Preuß wurde operiert"
+subtitle: "Relegation kehrt zurück"
 ---
 
 Christoph Preuß wurde heute in einem operativen Eingriff die gebrochene Nase gerichtet. Morgen folgt eine Kontrolluntersuchung, nach der entschieden wird, wann der Mittelfeldspieler wieder ins Training einsteigen kann. 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalspiel gegen Dortmund
+title: "Pokalspiel gegen Dortmund"
 
 ---
 

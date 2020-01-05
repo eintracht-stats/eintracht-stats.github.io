@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Möller trainiert erstmals mit
-subtitle: Stadionbetreiber lässt weiter auf sich warten
+title: "Möller trainiert erstmals mit"
+subtitle: "Stadionbetreiber lässt weiter auf sich warten"
 ---
 
 Neben dem (glücklichen) Erfolg unserer Mannschaft gab es noch eine weitere positive Erkenntnis des Derbys: Es kam nicht ansatzweise zu den befürchteten Ausschreitungen. Das massive Polizeiaufgebot von über 1000 Mann hatte nicht mehr zu tun, als bei jedem normalen Bundesligaspiel auch. Das hört man gern...

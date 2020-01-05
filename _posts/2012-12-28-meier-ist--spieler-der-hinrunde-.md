@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier ist "Spieler der Hinrunde"
+title: "Meier ist Spieler der Hinrunde"
 
 ---
 

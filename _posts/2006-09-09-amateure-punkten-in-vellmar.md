@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure punkten in Vellmar
+title: "Amateure punkten in Vellmar"
 
 ---
 

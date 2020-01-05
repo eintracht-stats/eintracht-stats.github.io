@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fünf Eintrachtler im Team des Jahres
+title: "Fünf Eintrachtler im Team des Jahres"
 
 ---
 

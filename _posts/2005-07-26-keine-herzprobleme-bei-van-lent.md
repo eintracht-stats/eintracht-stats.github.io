@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Herzprobleme bei van Lent
+title: "Keine Herzprobleme bei van Lent"
 
 ---
 

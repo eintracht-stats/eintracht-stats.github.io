@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateur-Spiel abgesagt
+title: "Amateur-Spiel abgesagt"
 
 ---
 

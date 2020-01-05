@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rebic, Willems, Hrgota - wer geht?
+title: "Rebic, Willems, Hrgota - wer geht?"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nur ein Punkt gegen Mainz
+title: "Nur ein Punkt gegen Mainz"
 
 ---
 

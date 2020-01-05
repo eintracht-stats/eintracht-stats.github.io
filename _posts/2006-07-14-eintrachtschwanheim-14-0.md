@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Schwanheim 14-0
+title: "Eintracht-Schwanheim 14:0"
 
 ---
 

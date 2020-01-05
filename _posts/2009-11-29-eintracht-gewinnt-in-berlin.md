@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Berlin
+title: "Eintracht gewinnt in Berlin"
 
 ---
 

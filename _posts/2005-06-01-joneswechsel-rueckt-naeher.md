@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones-Wechsel rückt näher
+title: "Jones-Wechsel rückt näher"
 
 ---
 

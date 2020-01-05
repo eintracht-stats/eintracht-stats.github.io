@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure auf dem Vormarsch
+title: "Amateure auf dem Vormarsch"
 
 ---
 

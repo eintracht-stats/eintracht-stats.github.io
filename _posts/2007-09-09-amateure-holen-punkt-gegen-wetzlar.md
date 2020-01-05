@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure holen Punkt gegen Wetzlar
+title: "Amateure holen Punkt gegen Wetzlar"
 
 ---
 

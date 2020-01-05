@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel 2010/2011 ist eröffnet
+title: "Tippspiel 2010/2011 ist eröffnet"
 
 ---
 

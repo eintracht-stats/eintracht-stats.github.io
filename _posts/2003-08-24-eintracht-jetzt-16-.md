@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht jetzt 16.
+title: "Eintracht jetzt 16."
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert knapp
-subtitle: Elfmeter in der Schlussminute bringt die Entscheidung
+title: "Eintracht verliert knapp"
+subtitle: "Elfmeter in der Schlussminute bringt die Entscheidung"
 ---
 
 Das darf nicht wahr sein! In letzter Minute hat die Eintracht das Spiel bei 1860 München mit 0:1 verloren!Das Unheil begann schon vor dem Anpfiff: Es stellte sich heraus, dass Alexander Schur ohne Absprache mit dem Mannschaftsarzt ein Medikament gegen Erkältung eingenommen hatte, welches auf der Dopingliste steht. Daher konnte unser Mittelfeldabräumer natürlich nicht spielen und wurde durch Günther ersetzt... 

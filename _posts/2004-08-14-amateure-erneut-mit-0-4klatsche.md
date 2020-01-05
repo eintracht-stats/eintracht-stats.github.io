@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure erneut mit 0-4-Klatsche
+title: "Amateure erneut mit 0:4-Klatsche"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Möller-Rückkehr wird wahrscheinlicher
-subtitle: Einige Profis angeschlagen
+title: "Möller-Rückkehr wird wahrscheinlicher"
+subtitle: "Einige Profis angeschlagen"
 ---
 
 Eine Rückkehr von Andreas Möller zur Eintracht rückt immer näher. Höchstwahrscheinlich wird Möller spätestens zur neuen Saison Trainer der U23-Mannschaft in der Oberliga. Aber auch eine Entlassung des bisherigen Trainers Bernhard Lippert in der Winterpause und ein früherer Einstieg Möllers ist nicht ausgeschlossen. Derzeit steckt die Mannschaft im Abstiegskampf, und das trotz zahlreicher Abstellungen aus dem Profikader. Eine Verlängerung von Lipperts Vertrag über diese Saison hinaus ist daher nahezu ausgeschlossen.

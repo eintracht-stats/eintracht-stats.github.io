@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure holen Punkt in Alzenau
+title: "Amateure holen Punkt in Alzenau"
 
 ---
 

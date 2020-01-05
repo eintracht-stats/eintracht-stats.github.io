@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht punktet bei Schalke
+title: "Eintracht punktet bei Schalke"
 
 ---
 

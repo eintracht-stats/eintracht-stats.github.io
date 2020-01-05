@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler bleibt!!!
+title: "Schwegler bleibt!!!"
 
 ---
 

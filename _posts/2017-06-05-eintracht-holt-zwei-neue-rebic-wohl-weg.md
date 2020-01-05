@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt zwei Neue - Rebic wohl weg
+title: "Eintracht holt zwei Neue - Rebic wohl weg"
 
 ---
 

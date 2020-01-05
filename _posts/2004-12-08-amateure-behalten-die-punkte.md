@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure behalten die Punkte
+title: "Amateure behalten die Punkte"
 
 ---
 

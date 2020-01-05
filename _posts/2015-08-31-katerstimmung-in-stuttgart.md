@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Katerstimmung in Stuttgart
+title: "Katerstimmung in Stuttgart"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalspiel ist ausverkauft
+title: "Pokalspiel ist ausverkauft"
 
 ---
 

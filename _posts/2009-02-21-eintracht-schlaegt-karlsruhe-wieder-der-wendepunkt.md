@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Karlsruhe - Wieder der Wendepunkt?
+title: "Eintracht schlägt Karlsruhe - Wieder der Wendepunkt?"
 
 ---
 

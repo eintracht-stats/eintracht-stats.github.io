@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rebic rockt die WM, Mascarell vor Wechsel?
+title: "Rebic rockt die WM, Mascarell vor Wechsel?"
 
 ---
 

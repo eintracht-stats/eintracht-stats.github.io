@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stadion ist abgeriegelt
+title: "Stadion ist abgeriegelt"
 
 ---
 

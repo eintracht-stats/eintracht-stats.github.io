@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zieht sich vom Transfermarkt zurück
+title: "Eintracht zieht sich vom Transfermarkt zurück"
 
 ---
 

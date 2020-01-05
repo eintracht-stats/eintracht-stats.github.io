@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure besiegen Alzenau
+title: "Amateure besiegen Alzenau"
 
 ---
 

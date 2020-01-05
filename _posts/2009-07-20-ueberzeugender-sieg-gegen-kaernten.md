@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Überzeugender Sieg gegen Kärnten
+title: "Überzeugender Sieg gegen Kärnten"
 
 ---
 

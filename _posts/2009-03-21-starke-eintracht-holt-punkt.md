@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Starke Eintracht holt Punkt
+title: "Starke Eintracht holt Punkt"
 
 ---
 

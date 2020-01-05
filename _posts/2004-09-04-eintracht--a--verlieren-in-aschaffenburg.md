@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht (A) verlieren in Aschaffenburg
+title: "Eintracht (A) verlieren in Aschaffenburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torro und N'Dicka kommen
+title: "Torro und N'Dicka kommen"
 
 ---
 

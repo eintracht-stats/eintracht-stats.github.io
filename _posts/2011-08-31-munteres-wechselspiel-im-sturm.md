@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Munteres Wechselspiel im Sturm!
+title: "Munteres Wechselspiel im Sturm!"
 
 ---
 

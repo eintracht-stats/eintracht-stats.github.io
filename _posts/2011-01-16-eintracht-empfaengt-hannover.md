@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Hannover
+title: "Eintracht empfängt Hannover"
 
 ---
 

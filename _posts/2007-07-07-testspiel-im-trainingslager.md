@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel im Trainingslager
+title: "Testspiel im Trainingslager"
 
 ---
 

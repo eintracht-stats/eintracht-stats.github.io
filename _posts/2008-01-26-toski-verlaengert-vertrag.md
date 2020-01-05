@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Toski verlängert Vertrag
+title: "Toski verlängert Vertrag"
 
 ---
 

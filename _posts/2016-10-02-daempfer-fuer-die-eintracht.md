@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dämpfer für die Eintracht
+title: "Dämpfer für die Eintracht"
 
 ---
 

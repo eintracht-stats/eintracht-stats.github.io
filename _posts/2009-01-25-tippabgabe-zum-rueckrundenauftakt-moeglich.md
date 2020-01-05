@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippabgabe zum Rückrundenauftakt möglich!
+title: "Tippabgabe zum Rückrundenauftakt möglich!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heim-Debakel gegen Stuttgart
+title: "Heim-Debakel gegen Stuttgart"
 
 ---
 

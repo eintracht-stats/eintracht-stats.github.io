@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht plant Vuvuzela-Verbot
+title: "Eintracht plant Vuvuzela-Verbot"
 
 ---
 

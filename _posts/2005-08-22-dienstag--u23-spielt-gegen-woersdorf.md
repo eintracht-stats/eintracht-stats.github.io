@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dienstag- U23 spielt gegen Wörsdorf
+title: "Dienstag: U23 spielt gegen Wörsdorf"
 
 ---
 

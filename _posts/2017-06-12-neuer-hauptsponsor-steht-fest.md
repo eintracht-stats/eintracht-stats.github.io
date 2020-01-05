@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Hauptsponsor steht fest
+title: "Neuer Hauptsponsor steht fest"
 
 ---
 

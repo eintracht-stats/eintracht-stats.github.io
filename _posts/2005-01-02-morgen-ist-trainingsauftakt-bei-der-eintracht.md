@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen ist Trainingsauftakt bei der Eintracht
+title: "Morgen ist Trainingsauftakt bei der Eintracht"
 
 ---
 

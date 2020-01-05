@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht ermauert Punkt auf Schalke
-subtitle: Chris schießt sein erstes Tor
+title: "Eintracht ermauert Punkt auf Schalke"
+subtitle: "Chris schießt sein erstes Tor"
 ---
 
 Die Eintracht hat wieder einen Punkt auf dem Weg zum Klassenerhalt ergattert: Dank einer couragierten Abwehrleistung entführte die Mannschaft einen Punkt aus der Schalke-Arena und bleibt damit auf Platz 15.Willi Reimann musste seine Mannschaft notgedrungen umstellen. Für den gesperrten Skela und den verletzten Preuß rückten Chris und etwas überraschend Puljiz in die Startaufstellung...

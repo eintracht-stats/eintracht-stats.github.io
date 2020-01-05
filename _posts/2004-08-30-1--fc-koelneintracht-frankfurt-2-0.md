@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1. FC Köln-Eintracht Frankfurt 2-0
+title: "1. FC Köln-Eintracht Frankfurt 2:0"
 
 ---
 

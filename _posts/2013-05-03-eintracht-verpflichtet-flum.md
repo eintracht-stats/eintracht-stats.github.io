@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Flum
+title: "Eintracht verpflichtet Flum"
 
 ---
 

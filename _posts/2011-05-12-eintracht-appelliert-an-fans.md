@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht appelliert an Fans
+title: "Eintracht appelliert an Fans"
 
 ---
 

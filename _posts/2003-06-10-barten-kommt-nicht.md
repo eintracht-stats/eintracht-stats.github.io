@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Barten kommt nicht
-subtitle: Personalie Holzhäuser weiterhin unklar
+title: "Barten kommt nicht"
+subtitle: "Personalie Holzhäuser weiterhin unklar"
 ---
 
 Wie Volker Sparmann der FR in seinem Urlaubsdomizili auf Kreta berichtete, wird Mike Barten nicht zur Eintracht kommen. Auch im Fall Holzhäuser ist keine Entscheidung gefallen. Holzhäuser wolle zunächst ein klärendes Gespräch mit Bayer-Konzern-Chef Werner Wenning führen, der aber zur Zeit im Urlaub weile, so die FR...

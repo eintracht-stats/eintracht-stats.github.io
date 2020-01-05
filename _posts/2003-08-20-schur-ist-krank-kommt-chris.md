@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schur ist krank - Kommt Chris?
-subtitle: Derby-Übertragung ist gesichert!!!
+title: "Schur ist krank - Kommt Chris?"
+subtitle: "Derby-Übertragung ist gesichert!!!"
 ---
 
 Ich würde gerne mal wieder positive Nachrichten vermelden, doch zur Zeit läuft irgendwie gar nichts zusammen. Wegen Magen-Darm-Problemen musste Alex Schur gestern pausieren. Sein Einsatz gegen Hertha BSC ist gefährdet. Außerdem fehlen im Training unsere drei Albaner, die für ihre Nationalmannschaft im Einsatz sind, sowie Jermaine Jones (U21). Henning Bürger kann nach seiner Sprunggelenksverletzung frühestens morgen wieder mittrainieren. Jens Keller befindet sich nach seiner Operation wieder in Frankfurt und soll während seiner Reha möglichst nahe an der Mannschaft sein, um diese so zu unterstützen.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Bremen
+title: "Eintracht holt Punkt in Bremen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara verletzt sich in letztem WM-Spiel
+title: "Takahara verletzt sich in letztem WM-Spiel"
 
 ---
 

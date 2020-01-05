@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fenin erleidet Hirnblutung!
+title: "Fenin erleidet Hirnblutung!"
 
 ---
 

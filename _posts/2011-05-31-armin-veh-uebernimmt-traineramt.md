@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Armin Veh übernimmt Traineramt
+title: "Armin Veh übernimmt Traineramt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Flip besucht Klopp-City
+title: "Flip besucht Klopp-City"
 
 ---
 

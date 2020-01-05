@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Skandalöser Elfmeter kostet den Sieg
+title: "Skandalöser Elfmeter kostet den Sieg"
 
 ---
 

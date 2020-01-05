@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hallenturnier in Frankfurt
-subtitle: Eintracht verliert Finale
+title: "Hallenturnier in Frankfurt"
+subtitle: "Eintracht verliert Finale"
 ---
 
 Die Eintracht hat das erste Spiel beim Hallenturnier in Frankfurt mit 2:3 gegen die Offenbacher Kickers verloren. Die Tore von Fenin und Köhler zum zwischenzeitlichen 2:1 reichten am Ende nicht. Nun brauchte die Eintracht unbedingt einen Sieg gegen Wehen-Wiesbaden - und das klappte: Galm, Russ, Toski und Hess schossen ein 4:2 heraus. Damit war das Halbfinale erreicht...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht 2. in der Halle
+title: "Eintracht 2. in der Halle"
 
 ---
 

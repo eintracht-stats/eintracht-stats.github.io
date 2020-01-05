@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler hat Ausstiegsklausel
+title: "Schwegler hat Ausstiegsklausel"
 
 ---
 

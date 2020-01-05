@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dreifacher Bänderriss bei Spycher
+title: "Dreifacher Bänderriss bei Spycher"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht organisiert sich um
+title: "Eintracht organisiert sich um"
 
 ---
 

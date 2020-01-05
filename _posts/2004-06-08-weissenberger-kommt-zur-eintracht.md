@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weissenberger kommt zur Eintracht
+title: "Weissenberger kommt zur Eintracht"
 
 ---
 

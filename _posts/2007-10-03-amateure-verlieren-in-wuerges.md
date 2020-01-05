@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren in Würges
+title: "Amateure verlieren in Würges"
 
 ---
 

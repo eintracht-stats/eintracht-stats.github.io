@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fürth verliert in Aue
+title: "Fürth verliert in Aue"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gegen Braunfels unentschieden
+title: "Amateure gegen Braunfels unentschieden"
 
 ---
 

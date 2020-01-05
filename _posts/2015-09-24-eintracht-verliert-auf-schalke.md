@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert auf Schalke
+title: "Eintracht verliert auf Schalke"
 
 ---
 

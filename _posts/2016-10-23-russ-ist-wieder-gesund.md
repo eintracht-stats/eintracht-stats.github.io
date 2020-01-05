@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Russ ist wieder gesund!
+title: "Russ ist wieder gesund!"
 
 ---
 

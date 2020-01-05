@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Sieg unter Schaaf- 10:0 gegen TuS Norderney
+title: "Erster Sieg unter Schaaf: 10:0 gegen TuS Norderney"
 
 ---
 

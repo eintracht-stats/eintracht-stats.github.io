@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp und Zambrano - bleiben sie?
+title: "Trapp und Zambrano - bleiben sie?"
 
 ---
 

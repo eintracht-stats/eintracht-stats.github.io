@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bangt noch um Spieler
+title: "Eintracht bangt noch um Spieler"
 
 ---
 

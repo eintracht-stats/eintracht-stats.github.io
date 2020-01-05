@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht muss nachsitzen
+title: "Eintracht muss nachsitzen"
 
 ---
 

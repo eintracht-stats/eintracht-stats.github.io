@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris fällt weiter aus
+title: "Chris fällt weiter aus"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: DFL will Eintracht antworten
-subtitle: Russ bei den Amateuren - Van Lent noch krank
+title: "DFL will Eintracht antworten"
+subtitle: "Russ bei den Amateuren - Van Lent noch krank"
 ---
 
 Die DFL hat bekannt gegeben, dass Präsident Werner Hackmann der Eintracht wohl noch in dieser Woche einen Zwischenbericht als Antwort auf den seit Montag vorliegenden Fragenkatalog zukommen lassen wird. Da bin ich ja mal gespannt, was die Herren sich schönes ausdenken...

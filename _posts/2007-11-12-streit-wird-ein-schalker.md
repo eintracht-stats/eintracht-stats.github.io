@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit wird ein Schalker
+title: "Streit wird ein Schalker"
 
 ---
 

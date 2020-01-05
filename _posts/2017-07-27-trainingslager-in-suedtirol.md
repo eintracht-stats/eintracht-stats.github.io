@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Südtirol
+title: "Trainingslager in Südtirol"
 
 ---
 

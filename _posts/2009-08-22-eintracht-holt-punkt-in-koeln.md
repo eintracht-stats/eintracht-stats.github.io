@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Köln
+title: "Eintracht holt Punkt in Köln"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mit Lexa und Cha nach Aachen
+title: "Mit Lexa und Cha nach Aachen"
 
 ---
 

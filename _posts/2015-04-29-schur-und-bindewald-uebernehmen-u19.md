@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur und Bindewald übernehmen U19
+title: "Schur und Bindewald übernehmen U19"
 
 ---
 

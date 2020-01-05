@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Heikkinen
+title: "Eintracht will Heikkinen"
 
 ---
 

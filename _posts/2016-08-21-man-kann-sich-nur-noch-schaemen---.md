@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Man kann sich nur noch schämen...
+title: "Man kann sich nur noch schämen..."
 
 ---
 

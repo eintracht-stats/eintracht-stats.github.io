@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Karten gegen Schalke sind heiß begehrt
+title: "Karten gegen Schalke sind heiß begehrt"
 
 ---
 

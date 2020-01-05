@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gute Neuigkeiten von Preuß
+title: "Gute Neuigkeiten von Preuß"
 
 ---
 

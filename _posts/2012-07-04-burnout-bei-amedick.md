@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Burnout bei Amedick
+title: "Burnout bei Amedick"
 
 ---
 

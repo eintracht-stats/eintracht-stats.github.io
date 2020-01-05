@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Stammplatzgarantie für Neuzugänge
+title: "Keine Stammplatzgarantie für Neuzugänge"
 
 ---
 

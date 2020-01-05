@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen bleibt bis 2012
+title: "Bruchhagen bleibt bis 2012"
 
 ---
 

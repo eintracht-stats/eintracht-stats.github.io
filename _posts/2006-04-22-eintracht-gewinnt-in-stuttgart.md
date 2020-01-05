@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht gewinnt in Stuttgart
-subtitle: Amateure schlagen Wattenbach
+title: "Eintracht gewinnt in Stuttgart"
+subtitle: "Amateure schlagen Wattenbach"
 ---
 
 Was für ein Spieltag! Zur Pause musste man schon das schlimmste befürchten: Köln führte, Kaiserslautern führte, Wolfsburg führte - und die Eintracht hielt das 0:0. Zu diesem Zeitpunkt waren es nur noch magere 2 Punkte Vorsprung. In der zweiten Halbzeit änderte sich das glücklicherweise wieder. Zwar konnten die Konkurrenten ausnahmslos ihre Spiele gewinnen. Doch auch die Eintracht drehte auf: Ein Kopfball von Meier und ein Elfmeter von Amanatidis bescherten uns einen nicht zu erwartenden 2:0-Sieg...

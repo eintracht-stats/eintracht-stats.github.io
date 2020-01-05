@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippabgabe endet heute abend!
+title: "Tippabgabe endet heute abend!"
 
 ---
 

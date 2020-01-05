@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen ist Mitgliederversammlung
+title: "Morgen ist Mitgliederversammlung"
 
 ---
 

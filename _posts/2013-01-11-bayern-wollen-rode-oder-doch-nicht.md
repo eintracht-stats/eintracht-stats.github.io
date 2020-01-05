@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bayern wollen Rode - oder doch nicht?
+title: "Bayern wollen Rode - oder doch nicht?"
 
 ---
 

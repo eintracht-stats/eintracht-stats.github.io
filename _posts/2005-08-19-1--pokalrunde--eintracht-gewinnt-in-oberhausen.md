@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1. Pokalrunde- Eintracht gewinnt in Oberhausen
+title: "1. Pokalrunde: Eintracht gewinnt in Oberhausen"
 
 ---
 

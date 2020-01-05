@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiele in Baunatal und Großkrotzenburg
+title: "Testspiele in Baunatal und Großkrotzenburg"
 
 ---
 

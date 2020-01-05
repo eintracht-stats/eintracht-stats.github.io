@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kittel fehlte Spielberechtigung
+title: "Kittel fehlte Spielberechtigung"
 
 ---
 

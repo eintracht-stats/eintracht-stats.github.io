@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletzungsprobleme halten an
+title: "Verletzungsprobleme halten an"
 
 ---
 

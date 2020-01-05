@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Spiele für Falette
+title: "Zwei Spiele für Falette"
 
 ---
 

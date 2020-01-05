@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainerstab verlängert um ein Jahr
+title: "Trainerstab verlängert um ein Jahr"
 
 ---
 

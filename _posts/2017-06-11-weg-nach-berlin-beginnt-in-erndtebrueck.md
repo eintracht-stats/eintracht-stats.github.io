@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weg nach Berlin beginnt in Erndtebrück
+title: "Weg nach Berlin beginnt in Erndtebrück"
 
 ---
 

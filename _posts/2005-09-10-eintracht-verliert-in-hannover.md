@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert in Hannover
+title: "Eintracht verliert in Hannover"
 
 ---
 

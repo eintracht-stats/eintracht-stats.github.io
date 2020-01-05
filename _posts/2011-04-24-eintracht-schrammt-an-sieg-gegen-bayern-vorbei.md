@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schrammt an Sieg gegen Bayern vorbei
+title: "Eintracht schrammt an Sieg gegen Bayern vorbei"
 
 ---
 

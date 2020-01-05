@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Franz weist Rassismus-Vorwürfe zurück
+title: "Franz weist Rassismus-Vorwürfe zurück"
 
 ---
 

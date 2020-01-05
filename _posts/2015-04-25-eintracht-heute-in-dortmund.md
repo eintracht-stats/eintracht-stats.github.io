@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht heute in Dortmund
+title: "Eintracht heute in Dortmund"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Petz neuer Torwarttrainer
+title: "Petz neuer Torwarttrainer"
 
 ---
 

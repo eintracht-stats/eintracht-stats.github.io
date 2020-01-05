@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Grünberg beginnt
+title: "Trainingslager in Grünberg beginnt"
 
 ---
 

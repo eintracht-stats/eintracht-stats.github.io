@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones-OP gut verlaufen
-subtitle: Nationalspieler gehen wieder auf Reisen
+title: "Jones-OP gut verlaufen"
+subtitle: "Nationalspieler gehen wieder auf Reisen"
 ---
 
 Ohne Probleme verlief der operative Eingriff am rechten Schienbein von Jermaine Jones, bei dem eine Gewebeprobe entnommen wurde. Diese wird nun untersucht. Wenn in etwa 10 Tagen das Ergebnis vorliegt, erhofft man sich bei der Eintracht Erkenntnisse über die Ursache der Entzündung, die Jones in den letzten Wochen immer wieder zu Pausen zwang.

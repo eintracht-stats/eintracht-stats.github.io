@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure sorgen für Furore
+title: "Amateure sorgen für Furore"
 
 ---
 

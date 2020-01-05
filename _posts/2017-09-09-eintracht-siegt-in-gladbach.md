@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt in Gladbach
+title: "Eintracht siegt in Gladbach"
 
 ---
 

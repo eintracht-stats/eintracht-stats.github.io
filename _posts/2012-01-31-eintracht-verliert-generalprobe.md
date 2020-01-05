@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert Generalprobe
+title: "Eintracht verliert Generalprobe"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glücklicher Punktgewinn in Cottbus
+title: "Glücklicher Punktgewinn in Cottbus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen bleibt offenbar
+title: "Bruchhagen bleibt offenbar"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert Spiel und Preuß
+title: "Eintracht verliert Spiel und Preuß"
 
 ---
 

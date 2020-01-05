@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Preuß kann schon morgen spielen
-subtitle: Steht Möller-Comeback bevor?
+title: "Preuß kann schon morgen spielen"
+subtitle: "Steht Möller-Comeback bevor?"
 ---
 
 Willi Reimann erhofft sich von Christoph Preuß (der schon morgen gegen Hertha BSC spielberechtigt ist) neue Impulse für das Mittelfeld. Der Spieler begründet seinen Wechsel zur Eintracht damit, dass er wieder Spielpraxis bekommen möchte, nachdem er in Leverkusen ein Jahr lang fast nur auf der Bank verbracht hatte. Tja, und Bayer Leverkusen dürfte sich über die Einsparungen auf der Gehaltsliste freuen, auch wenn Bayer den Großteil des Gehalts des U21-Nationalspielers weiterhin trägt. Deshalb ist es verständlich, dass Vorstandschef Schuster von einem Geschäft spricht, bei dem alle Parteien nur gewinnen können.

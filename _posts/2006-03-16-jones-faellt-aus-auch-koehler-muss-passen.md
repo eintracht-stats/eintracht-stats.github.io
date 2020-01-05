@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones fällt aus - Auch Köhler muss passen
+title: "Jones fällt aus - Auch Köhler muss passen"
 
 ---
 

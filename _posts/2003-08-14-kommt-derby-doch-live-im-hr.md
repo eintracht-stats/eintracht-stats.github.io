@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kommt Derby doch live im HR?
-subtitle: Keller fehlt mindestens zwei Monate
+title: "Kommt Derby doch live im HR?"
+subtitle: "Keller fehlt mindestens zwei Monate"
 ---
 
 Kaum zu glauben: Das Pokalderby zwischen dem OFC und der Eintracht wird nun möglicherweise doch im HR live übertragen! Wie es aussieht ist der DFB mit seiner Forderung von 1 Million Euro zunächst auf 600.000 Euro und jetzt sogar auf 300.000 Euro zurückgegangen. Und diese Summe könnte der HR eventuell stemmen. Das ZDF möchte jedoch eine andere attraktive Erstrundenbegegnung anstelle des Derbys im Sportstudio zeigen. Und hier wurde noch keine Einigung erzielt. Die Zeit drängt langsam... Sollte es zu einer Übertragung kommen, würde das Spiel auf einen anderen Termin verschoben - höchstwahrscheinlich auf Montag, den 1. September um 18 Uhr.

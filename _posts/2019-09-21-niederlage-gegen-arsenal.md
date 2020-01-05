@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Arsenal
+title: "Niederlage gegen Arsenal"
 
 ---
 

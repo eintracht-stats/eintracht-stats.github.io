@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knorpelschaden bei Amanatidis!!!
+title: "Knorpelschaden bei Amanatidis!!!"
 
 ---
 

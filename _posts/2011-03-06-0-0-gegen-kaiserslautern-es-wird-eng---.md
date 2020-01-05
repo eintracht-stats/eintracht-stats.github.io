@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 0-0 gegen Kaiserslautern - es wird eng...
+title: "0:0 gegen Kaiserslautern - es wird eng..."
 
 ---
 

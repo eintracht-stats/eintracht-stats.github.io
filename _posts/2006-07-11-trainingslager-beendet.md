@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager beendet
+title: "Trainingslager beendet"
 
 ---
 

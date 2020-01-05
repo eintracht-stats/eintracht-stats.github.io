@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Ottl bestätigt
+title: "Interesse an Ottl bestätigt"
 
 ---
 

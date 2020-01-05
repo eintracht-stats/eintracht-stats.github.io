@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara wechselt nach Japan
+title: "Takahara wechselt nach Japan"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Talent Chaftar erhält Profivertrag
+title: "Talent Chaftar erhält Profivertrag"
 
 ---
 

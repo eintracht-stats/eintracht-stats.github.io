@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bochum gewinnt Hallenturnier
+title: "Bochum gewinnt Hallenturnier"
 
 ---
 

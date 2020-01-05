@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara trifft für Japan
+title: "Takahara trifft für Japan"
 
 ---
 

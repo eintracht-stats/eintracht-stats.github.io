@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fehlstart für die Amateure
+title: "Fehlstart für die Amateure"
 
 ---
 

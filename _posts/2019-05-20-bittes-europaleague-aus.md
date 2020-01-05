@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bittes Europa-League-Aus
+title: "Bittes Europa-League-Aus"
 
 ---
 

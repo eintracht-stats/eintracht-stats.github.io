@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler hat verlängert
+title: "Schwegler hat verlängert"
 
 ---
 

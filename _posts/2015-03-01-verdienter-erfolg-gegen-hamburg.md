@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verdienter Erfolg gegen Hamburg
+title: "Verdienter Erfolg gegen Hamburg"
 
 ---
 

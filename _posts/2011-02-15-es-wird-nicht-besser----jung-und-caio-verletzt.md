@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Es wird nicht besser... Jung und Caio verletzt
+title: "Es wird nicht besser... Jung und Caio verletzt"
 
 ---
 

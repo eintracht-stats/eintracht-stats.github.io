@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schlagen Schwalmstadt
+title: "Amateure schlagen Schwalmstadt"
 
 ---
 

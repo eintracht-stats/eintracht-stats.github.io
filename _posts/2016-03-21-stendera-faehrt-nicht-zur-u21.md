@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stendera fährt nicht zur U21
+title: "Stendera fährt nicht zur U21"
 
 ---
 

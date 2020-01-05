@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp geht nach Paris
+title: "Trapp geht nach Paris"
 
 ---
 

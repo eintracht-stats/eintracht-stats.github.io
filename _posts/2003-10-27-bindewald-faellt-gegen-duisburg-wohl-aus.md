@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bindewald fällt gegen Duisburg wohl aus
+title: "Bindewald fällt gegen Duisburg wohl aus"
 
 ---
 

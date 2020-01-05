@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic bleibt! Hellmann bleibt! REBIC BLEIB!!!
+title: "Bobic bleibt! Hellmann bleibt! REBIC BLEIB!!!"
 
 ---
 

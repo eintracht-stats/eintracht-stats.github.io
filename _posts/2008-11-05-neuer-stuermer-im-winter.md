@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Stürmer im Winter
+title: "Neuer Stürmer im Winter"
 
 ---
 

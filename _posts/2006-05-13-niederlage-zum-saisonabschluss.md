@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Niederlage zum Saisonabschluss
-subtitle: Schur verabschiedet sich
+title: "Niederlage zum Saisonabschluss"
+subtitle: "Schur verabschiedet sich"
 ---
 
 Mit 0:2 hat die Eintracht das letzte Saisonspiel gegen Borussia Mönchengladbach verloren. Neuville in der 56. Minute und Rafael in der Nachspielzeit sorgten für die Tore. Oka Nikolov verhinderte mit einigen Glanzparaden schlimmeres. Die Leistung heute war nicht berauschend. Aber was soll's - wir sind 14., wir waren im Pokalfinale und wir spielen jetzt Uefa-Cup. Was will man mehr...!?!?

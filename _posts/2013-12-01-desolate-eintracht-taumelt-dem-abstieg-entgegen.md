@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Desolate Eintracht taumelt dem Abstieg entgegen
+title: "Desolate Eintracht taumelt dem Abstieg entgegen"
 
 ---
 

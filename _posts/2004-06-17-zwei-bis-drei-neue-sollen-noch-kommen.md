@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Zwei bis drei Neue sollen noch kommen
-subtitle: Eintracht hat Preuß noch nicht abgeschrieben - Verbleib aber unwahrscheinlich
+title: "Zwei bis drei Neue sollen noch kommen"
+subtitle: "Eintracht hat Preuß noch nicht abgeschrieben - Verbleib aber unwahrscheinlich"
 ---
 
 Nach der Verpflichtung von Torben Hoffmann und der Vertragsverlängerung von Alex Schur (dessen Einjahresvertrag sich nun bei einer bestimmten Anzahl von Spielen automatisch verlängert) will man bei der Eintracht noch zwei bis drei weitere Spieler verpflichten. Ein heißer Kandidat ist Christian Lenze vom VfL Osnabrück. Unterschrieben ist allerdings noch nichts. Zur Zeit besteht der Kader aus 23 Spielern. 17 davon sind Deutsche. Lexa, Weissenberger und Cha sprechen zudem deutsch. Diese Tendenz sei gewollt, so Heribert Bruchhagen.

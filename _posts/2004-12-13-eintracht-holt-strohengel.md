@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Stroh-Engel
+title: "Eintracht holt Stroh-Engel"
 
 ---
 

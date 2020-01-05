@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorstandsverträge verlängert
+title: "Vorstandsverträge verlängert"
 
 ---
 

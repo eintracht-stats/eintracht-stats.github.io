@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov fällt lange aus - Rode noch fraglich
+title: "Nikolov fällt lange aus - Rode noch fraglich"
 
 ---
 

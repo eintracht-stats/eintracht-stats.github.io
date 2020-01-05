@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dezember-Zusammenfassung
+title: "Dezember-Zusammenfassung"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aktualisierung der Seiten beginnt
+title: "Aktualisierung der Seiten beginnt"
 
 ---
 

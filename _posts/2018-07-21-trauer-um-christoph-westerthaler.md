@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trauer um Christoph Westerthaler
+title: "Trauer um Christoph Westerthaler"
 
 ---
 

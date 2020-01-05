@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones kehrt zurück - aber spielt er auch?
+title: "Jones kehrt zurück - aber spielt er auch?"
 
 ---
 

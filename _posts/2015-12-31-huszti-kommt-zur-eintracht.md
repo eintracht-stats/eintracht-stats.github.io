@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huszti kommt zur Eintracht
+title: "Huszti kommt zur Eintracht"
 
 ---
 

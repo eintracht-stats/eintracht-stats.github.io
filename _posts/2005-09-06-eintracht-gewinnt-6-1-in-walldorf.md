@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt 6-1 in Walldorf
+title: "Eintracht gewinnt 6:1 in Walldorf"
 
 ---
 

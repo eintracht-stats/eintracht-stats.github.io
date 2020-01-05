@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Pokalrunde bei Waldhof Mannheim
+title: "Erste Pokalrunde bei Waldhof Mannheim"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure gewinnen gegen Kassel
+title: "Amateure gewinnen gegen Kassel"
 
 ---
 

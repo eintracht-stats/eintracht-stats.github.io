@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lautern will Amanatidis nicht gehen lassen
+title: "Lautern will Amanatidis nicht gehen lassen"
 
 ---
 

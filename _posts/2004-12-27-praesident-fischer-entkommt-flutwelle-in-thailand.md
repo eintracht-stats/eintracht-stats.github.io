@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Präsident Fischer entkommt Flutwelle in Thailand
+title: "Präsident Fischer entkommt Flutwelle in Thailand"
 
 ---
 

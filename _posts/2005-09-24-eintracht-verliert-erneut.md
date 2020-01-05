@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verliert erneut
-subtitle: U23 beim FSV zu Gast
+title: "Eintracht verliert erneut"
+subtitle: "U23 beim FSV zu Gast"
 ---
 
 Langsam wird es kritisch: Auch beim VfL Wolfsburg unterlag die Eintracht mit 0:1. Beim Debüt von Torhüter Jan Zimmermann traf Klimowicz traf nach 35 Minuten. Damit steht die Mannschaft nun wieder auf einem Abstiegsplatz. Zwar fehlt nur ein Punkt zum rettenden Ufer. Aber wenn nicht bald irgendetwas passiert, dann kommen nicht mehr viele Punkte hinzu. Nächste Woche kommt Schalke... Unsere Offensive ist zu harmlos, die Abwehr bekommt immer ein Gegentor. So wird das nix...

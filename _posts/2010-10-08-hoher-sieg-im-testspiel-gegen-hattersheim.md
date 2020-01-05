@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoher Sieg im Testspiel gegen Hattersheim
+title: "Hoher Sieg im Testspiel gegen Hattersheim"
 
 ---
 

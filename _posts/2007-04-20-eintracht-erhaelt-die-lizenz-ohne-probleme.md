@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erhält die Lizenz ohne Probleme
+title: "Eintracht erhält die Lizenz ohne Probleme"
 
 ---
 

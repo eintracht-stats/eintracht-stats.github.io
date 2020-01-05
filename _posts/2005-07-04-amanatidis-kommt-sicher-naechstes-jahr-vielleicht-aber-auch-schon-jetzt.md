@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis kommt sicher nächstes Jahr - vielleicht aber auch schon jetzt
+title: "Amanatidis kommt sicher nächstes Jahr - vielleicht aber auch schon jetzt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingsauftakt für Saison 2007/2008
+title: "Trainingsauftakt für Saison 2007/2008"
 
 ---
 

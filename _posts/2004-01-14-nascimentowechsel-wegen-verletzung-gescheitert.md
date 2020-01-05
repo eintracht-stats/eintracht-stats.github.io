@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Nascimento-Wechsel wegen Verletzung gescheitert
-subtitle: Bruchhagen spricht mit Sportfive
+title: "Nascimento-Wechsel wegen Verletzung gescheitert"
+subtitle: "Bruchhagen spricht mit Sportfive"
 ---
 
 Der Wechsel des Brasilianers Nascimento zur Eintracht ist geplatzt! Wie sich herausstellte, hat sich der Spieler vom FC St. Pauli einen Riss des Syndesmosebandes zugezogen und fällt etwa 8 Wochen aus. Damit würde ein Wechsel nach Frankfurt natürlich keinen Sinn mehr machen. Die Eintracht muss also weiter nach Verstärkungen Ausschau halten...

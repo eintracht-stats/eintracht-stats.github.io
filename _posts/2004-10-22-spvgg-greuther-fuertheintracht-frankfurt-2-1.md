@@ -1,7 +1,7 @@
 ---
 layout: post
-title: SpVgg Greuther Fürth-Eintracht Frankfurt 2-1
-subtitle: Eintracht muss sich nach unten orientieren...
+title: "SpVgg Greuther Fürth-Eintracht Frankfurt 2:1"
+subtitle: "Eintracht muss sich nach unten orientieren..."
 ---
 
 Die Krise ist komplett: Mit der zweiten Niederlage in Folge kann die Eintracht die Aufstiegsplätze erstmal abhaken. Vielmehr geht es nun darum, nicht noch weiter hinten rein zu rutschen... Zwar konnte die Eintracht durch Lenzes Freistoß in der 36. Minute in Führung gehen. Doch im Gegenzug traf Rösler ebenfalls per Freistoß zum Ausgleich. In der 57. Minute traf Hilbert zum 2:1 für den Tabellenführer. Alexander Schur sah in der 79. Minute zum zweiten Mal in dieser Saison die gelb-rote Karte. Schöner Mist...

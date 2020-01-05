@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt auch Leverkusen
-subtitle: Traumtor von Caio
+title: "Eintracht schlägt auch Leverkusen"
+subtitle: "Traumtor von Caio"
 ---
 
 Es ist unglaublich! Wann haben wir denn zuletzt in zwei Heimspielen hintereinander derart verdient gegen den Tabellenersten und den Tabellendritten gewonnen? Ich kann mich nicht erinnern... Nach den Bayern musste heute Bayer Leverkusen dran glauben. Und das Spiel stand dem Spiel vor zwei Wochen in Sachen Dramatik in nichts nach. Wieder fiel der Siegtreffer in der Schlussphase...

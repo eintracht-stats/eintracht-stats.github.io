@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Abstiegskampf geht weiter
+title: "Abstiegskampf geht weiter"
 
 ---
 

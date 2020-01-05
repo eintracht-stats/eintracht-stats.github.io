@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hracecky lehnt Angebot ab - aber bleibt noch ein Jahr
+title: "Hracecky lehnt Angebot ab - aber bleibt noch ein Jahr"
 
 ---
 

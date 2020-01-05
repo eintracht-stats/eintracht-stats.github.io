@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lexa auf Vereinssuche
+title: "Lexa auf Vereinssuche"
 
 ---
 

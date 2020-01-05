@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht baut Vorsprung aus
+title: "Eintracht baut Vorsprung aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Madlung schlägt Angebot aus - Geht Valdez?
+title: "Madlung schlägt Angebot aus - Geht Valdez?"
 
 ---
 

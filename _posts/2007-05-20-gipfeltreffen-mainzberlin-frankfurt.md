@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gipfeltreffen Mainz-Berlin-Frankfurt
+title: "Gipfeltreffen Mainz-Berlin-Frankfurt"
 
 ---
 

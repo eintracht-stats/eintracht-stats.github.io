@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalknaller- Eintracht empfängt die Bayern
+title: "Pokalknaller: Eintracht empfängt die Bayern"
 
 ---
 

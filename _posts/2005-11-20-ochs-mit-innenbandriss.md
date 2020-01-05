@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs mit Innenbandriss!
+title: "Ochs mit Innenbandriss!"
 
 ---
 

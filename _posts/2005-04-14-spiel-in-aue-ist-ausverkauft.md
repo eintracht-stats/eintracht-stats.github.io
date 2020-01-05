@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spiel in Aue ist ausverkauft
+title: "Spiel in Aue ist ausverkauft"
 
 ---
 

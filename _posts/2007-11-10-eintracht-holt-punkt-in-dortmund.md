@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Punkt in Dortmund
+title: "Eintracht holt Punkt in Dortmund"
 
 ---
 

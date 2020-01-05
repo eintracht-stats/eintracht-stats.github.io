@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hradecky wird wohl kommen - nur wann?
+title: "Hradecky wird wohl kommen - nur wann?"
 
 ---
 

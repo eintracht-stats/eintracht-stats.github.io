@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Vorsprung schmilzt dahin...
+title: "Der Vorsprung schmilzt dahin..."
 
 ---
 

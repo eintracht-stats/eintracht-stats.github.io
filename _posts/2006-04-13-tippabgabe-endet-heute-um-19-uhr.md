@@ -1,6 +1,6 @@
 ---
 layout: post
-title: TIPPABGABE ENDET HEUTE UM 19 UHR!
+title: "TIPPABGABE ENDET HEUTE UM 19 UHR!"
 
 ---
 

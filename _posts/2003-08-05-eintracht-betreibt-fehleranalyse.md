@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht betreibt Fehleranalyse
-subtitle: Neue Aufstellung gegen Leverkusen
+title: "Eintracht betreibt Fehleranalyse"
+subtitle: "Neue Aufstellung gegen Leverkusen"
 ---
 
 Gestern war bei der Eintracht neben Training auch eine ausführliche Fehleranalyse des Bayern-Spiels angesagt. Das Videostudium dauerte so lange, dass selbst der aus Leverkusen zu Besuch gekommene Christoph Preuß eine Zeit auf seine ehemaligen Kollegen warten musste ehe es zu dem Wiedersehen kam. Eigentlich logisch, denn in der ersten Halbzeit hatte - bei aller Stärke der Bayern - wirklich nichts gepasst. 

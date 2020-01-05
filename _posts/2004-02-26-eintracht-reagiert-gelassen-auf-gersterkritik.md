@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht reagiert gelassen auf Gerster-Kritik
+title: "Eintracht reagiert gelassen auf Gerster-Kritik"
 
 ---
 

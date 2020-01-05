@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 7-1 gegen Baunatal
+title: "7:1 gegen Baunatal"
 
 ---
 

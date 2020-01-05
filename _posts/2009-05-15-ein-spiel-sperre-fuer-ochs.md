@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ein Spiel Sperre für Ochs
+title: "Ein Spiel Sperre für Ochs"
 
 ---
 

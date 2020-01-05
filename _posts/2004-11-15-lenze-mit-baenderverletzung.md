@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lenze mit Bänderverletzung
+title: "Lenze mit Bänderverletzung"
 
 ---
 

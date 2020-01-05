@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis suspendiert! Skibbe greift durch...
+title: "Amanatidis suspendiert! Skibbe greift durch..."
 
 ---
 

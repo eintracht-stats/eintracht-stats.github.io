@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klare Niederlage gegen Bayern
+title: "Klare Niederlage gegen Bayern"
 
 ---
 

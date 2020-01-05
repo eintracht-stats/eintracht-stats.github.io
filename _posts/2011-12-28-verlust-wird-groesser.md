@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verlust wird größer
+title: "Verlust wird größer"
 
 ---
 

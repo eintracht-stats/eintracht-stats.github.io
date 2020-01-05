@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Kyrgiakos!
+title: "Eintracht holt Kyrgiakos!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Termine sind da
+title: "Neue Termine sind da"
 
 ---
 

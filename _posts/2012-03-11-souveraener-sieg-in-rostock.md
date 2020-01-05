@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Souveräner Sieg in Rostock
+title: "Souveräner Sieg in Rostock"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Schalke
+title: "Eintracht schlägt Schalke"
 
 ---
 

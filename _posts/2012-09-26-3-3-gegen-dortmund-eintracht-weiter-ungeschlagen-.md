@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3-3 gegen Dortmund! Eintracht weiter ungeschlagen!
+title: "3:3 gegen Dortmund! Eintracht weiter ungeschlagen!"
 
 ---
 

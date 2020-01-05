@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glückslos im Pokal
+title: "Glückslos im Pokal"
 
 ---
 

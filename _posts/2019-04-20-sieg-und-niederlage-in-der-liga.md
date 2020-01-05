@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg und Niederlage in der Liga
+title: "Sieg und Niederlage in der Liga"
 
 ---
 

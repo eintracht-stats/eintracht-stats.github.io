@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel- Abgabeschluss bereits am Donnerstag!!!
+title: "Tippspiel: Abgabeschluss bereits am Donnerstag!!!"
 
 ---
 

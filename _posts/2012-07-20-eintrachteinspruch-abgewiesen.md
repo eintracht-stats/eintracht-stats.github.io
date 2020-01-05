@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Einspruch abgewiesen
+title: "Eintracht-Einspruch abgewiesen"
 
 ---
 

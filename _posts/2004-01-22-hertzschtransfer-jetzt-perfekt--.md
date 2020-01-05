@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hertzsch-Transfer jetzt perfekt!!!
-subtitle: Marques kommt nicht - Nascimento vielleicht
+title: "Hertzsch-Transfer jetzt perfekt!!!"
+subtitle: "Marques kommt nicht - Nascimento vielleicht"
 ---
 
 Mit Ingo Hertzsch von Bayer Leverkusen hat die Eintracht heute ihren 2. Neuzugang verpflichtet. Wie Ioannis Amanatidis erhält der Abwehrspieler einen Vertrag bis 2005, der nur für die 1. Liga gilt. Das ist zwar nicht optimal. Aber Spieler, die uns wirklich weiterhelfen, sind halt keine Zweitligaspieler...

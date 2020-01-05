@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ein Tag mit meiner Lieblings-Innenarchitektin - oder eine kilometerlange Geschichte von Hochhäusern, Uhren und Flüssen...
+title: "Ein Tag mit meiner Lieblings-Innenarchitektin - oder eine kilometerlange Geschichte von Hochhäusern, Uhren und Flüssen..."
 
 ---
 

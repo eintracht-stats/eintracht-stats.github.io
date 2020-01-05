@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler geht von Bord
+title: "Schwegler geht von Bord"
 
 ---
 

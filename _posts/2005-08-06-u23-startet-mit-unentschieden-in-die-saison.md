@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 startet mit Unentschieden in die Saison
+title: "U23 startet mit Unentschieden in die Saison"
 
 ---
 

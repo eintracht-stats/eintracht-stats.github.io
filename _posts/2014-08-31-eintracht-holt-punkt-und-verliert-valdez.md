@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Punkt und verliert Valdez
+title: "Eintracht holt Punkt und verliert Valdez"
 
 ---
 

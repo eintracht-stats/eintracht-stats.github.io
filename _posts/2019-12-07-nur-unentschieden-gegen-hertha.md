@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nur Unentschieden gegen Hertha
+title: "Nur Unentschieden gegen Hertha"
 
 ---
 

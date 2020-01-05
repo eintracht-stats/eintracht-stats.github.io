@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Aufsichtsratssitzung ohne Ergebnis
-subtitle: Jones hat keine neue Verletzung
+title: "Aufsichtsratssitzung ohne Ergebnis"
+subtitle: "Jones hat keine neue Verletzung"
 ---
 
 Wie fast schon zu erwarten war, ging die gestrige Aufsichtsratssitzung ohne große Ergebnisse zu Ende. Dass der Aufsichtsrat hinter Willi Reimanns sportlichem Konzept steht und die finanzielle Situation dem Plan entspricht, ist ja ganz nett - aber zumindest der zweite Punkt ist eigentlich selbstverständlich. Bleibt noch die Managerfrage: Und hier ist keine Entscheidung gefallen. Es sollen weitere Gespräche stattfinden und "zeitnah" eine Entscheidung fallen. Wie schon so oft...

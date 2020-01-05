@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erfolgreiches Wochenende- Profis und U23 gewinnen
+title: "Erfolgreiches Wochenende: Profis und U23 gewinnen"
 
 ---
 

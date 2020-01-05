@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cha trifft den Bundespräsident
+title: "Cha trifft den Bundespräsident"
 
 ---
 

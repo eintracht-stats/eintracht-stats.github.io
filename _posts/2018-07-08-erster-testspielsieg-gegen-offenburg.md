@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Testspielsieg gegen Offenburg
+title: "Erster Testspielsieg gegen Offenburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wichtiger Dreier gegen Cottbus
+title: "Wichtiger Dreier gegen Cottbus"
 
 ---
 

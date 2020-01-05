@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wir taumeln in den Abstieg...
+title: "Wir taumeln in den Abstieg..."
 
 ---
 

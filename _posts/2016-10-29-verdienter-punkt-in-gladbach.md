@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verdienter Punkt in Gladbach
+title: "Verdienter Punkt in Gladbach"
 
 ---
 

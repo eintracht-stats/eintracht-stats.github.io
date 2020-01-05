@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Varela, Russ soll verlängern
+title: "Interesse an Varela, Russ soll verlängern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rebic hat Drüsenfieber
+title: "Rebic hat Drüsenfieber"
 
 ---
 

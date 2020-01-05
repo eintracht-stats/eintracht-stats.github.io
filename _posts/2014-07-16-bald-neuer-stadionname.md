@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bald neuer Stadionname?
+title: "Bald neuer Stadionname?"
 
 ---
 

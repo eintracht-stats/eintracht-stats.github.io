@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thomas Pröckl verlässt die Eintracht
+title: "Thomas Pröckl verlässt die Eintracht"
 
 ---
 

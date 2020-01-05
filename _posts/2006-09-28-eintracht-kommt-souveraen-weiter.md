@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht kommt souverän weiter
-subtitle: 2-2 in Bröndby
+title: "Eintracht kommt souverän weiter"
+subtitle: "2:2 in Bröndby"
 ---
 
 Die Eintracht ist ohne Probleme in die Gruppenphase des Uefa-Cups eingezogen. Nach dem 4:0-Sieg gegen Bröndby im Hinspiel hätte sich die Mannschaft von Friedhelm Funkel ohnehin nur noch selbst schlagen können. Aber sie ließ von Anfang an keine Zweifel aufkommen, wer hier als Sieger vom Platz gehen wird. Nachdem Benjamin Huggel bereits nach drei Minuten eine große Möglichkeit vergeben hatte, war es in der 7. Minute Aleksandar Vasoski, der den letzten Rest an Spannung vernichtete. Der Mazedonier traf nach einer Ecke von Weissenberger zum 1:0.

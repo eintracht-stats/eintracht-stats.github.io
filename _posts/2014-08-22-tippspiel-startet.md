@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel startet
+title: "Tippspiel startet"
 
 ---
 

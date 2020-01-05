@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel gegen St. Pauli 
+title: "Eintracht gewinnt Testspiel gegen St. Pauli "
 
 ---
 

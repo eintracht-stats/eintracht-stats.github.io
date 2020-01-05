@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gespräche mit Zambrano vertagt
+title: "Gespräche mit Zambrano vertagt"
 
 ---
 

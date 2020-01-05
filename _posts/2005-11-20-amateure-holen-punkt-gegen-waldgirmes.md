@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure holen Punkt gegen Waldgirmes
+title: "Amateure holen Punkt gegen Waldgirmes"
 
 ---
 

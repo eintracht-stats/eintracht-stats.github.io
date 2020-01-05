@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Perfekter Tag- Eintracht gewinnt in Bremen
-subtitle: Aachen nächster Pokalgegner
+title: "Perfekter Tag: Eintracht gewinnt in Bremen"
+subtitle: "Aachen nächster Pokalgegner"
 ---
 
 Bremen gegen Eintracht - in der vergangenen Saison fielen hier zweimal 5 Tore. Und auch heute wurde es turbulent. Allerdings hatte die Eintracht diesmal das bessere Ende für sich. Nach einer stark geführten ersten Hälfte stand es 2:2. Amanatidis hatte die Eintracht zweimal in Führung gebracht. Doch die Gastgeber schlugen jeweils postwendend zurück...

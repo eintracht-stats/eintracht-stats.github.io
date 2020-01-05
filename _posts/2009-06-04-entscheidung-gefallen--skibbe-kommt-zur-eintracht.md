@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Entscheidung gefallen- Skibbe kommt zur Eintracht
+title: "Entscheidung gefallen: Skibbe kommt zur Eintracht"
 
 ---
 

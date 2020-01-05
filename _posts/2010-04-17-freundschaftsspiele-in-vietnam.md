@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Freundschaftsspiele in Vietnam
+title: "Freundschaftsspiele in Vietnam"
 
 ---
 

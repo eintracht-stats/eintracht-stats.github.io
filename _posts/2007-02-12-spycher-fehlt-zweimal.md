@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher fehlt zweimal
+title: "Spycher fehlt zweimal"
 
 ---
 

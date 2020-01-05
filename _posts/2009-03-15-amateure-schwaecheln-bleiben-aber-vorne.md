@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schwächeln - bleiben aber vorne
+title: "Amateure schwächeln - bleiben aber vorne"
 
 ---
 

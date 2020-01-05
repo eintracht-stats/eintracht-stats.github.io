@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Dortmund
+title: "Eintracht gewinnt in Dortmund"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erster Sieg gegen Darmstadt - Fans dürfen in die Stadt
+title: "Erster Sieg gegen Darmstadt - Fans dürfen in die Stadt"
 
 ---
 

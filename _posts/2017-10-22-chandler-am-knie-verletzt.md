@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chandler am Knie verletzt
+title: "Chandler am Knie verletzt"
 
 ---
 

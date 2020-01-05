@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Team von eintracht-stats.de macht Urlaub
-subtitle: News sind aber weiterhin verfügbar!!!
+title: "Team von eintracht-stats.de macht Urlaub"
+subtitle: "News sind aber weiterhin verfügbar!!!"
 ---
 
 Morgen werden Chris und ich unseren wohlverdienten Urlaub antreten und für eine Woche dem Alltag entfliehen. Eintracht-stats.de wird in dieser Zeit aber keineswegs brachliegen: Wenn alles so läuft, wie wir uns das vorstellen (und davon gehe ich mal aus), werden wir euch weiterhin mit News über unsere Eintracht versorgen. Die Aktualisierung der Statistiken wird allerdings erst nach unserer Rückkehr erfolgen, doch das dürfte zu verschmerzen sein... ;-)In diesem Sinne, drückt die Daumen: Für drei Punkte gegen die Hertha, einen guten Einstand von Christoph Preuß und schönes Wetter für uns! Wir hören/lesen uns dann morgen wieder...Flip und Chris, euer Team von eintracht-stats.de

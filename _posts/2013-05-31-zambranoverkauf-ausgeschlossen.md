@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zambrano-Verkauf ausgeschlossen
+title: "Zambrano-Verkauf ausgeschlossen"
 
 ---
 

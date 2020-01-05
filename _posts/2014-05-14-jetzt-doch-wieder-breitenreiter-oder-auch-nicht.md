@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jetzt doch wieder Breitenreiter - oder auch nicht
+title: "Jetzt doch wieder Breitenreiter - oder auch nicht"
 
 ---
 

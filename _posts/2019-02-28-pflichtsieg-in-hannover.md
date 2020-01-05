@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflichtsieg in Hannover
+title: "Pflichtsieg in Hannover"
 
 ---
 

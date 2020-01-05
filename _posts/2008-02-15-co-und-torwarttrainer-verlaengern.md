@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Co- und Torwarttrainer verlängern
+title: "Co- und Torwarttrainer verlängern"
 
 ---
 

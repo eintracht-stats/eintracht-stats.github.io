@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anderson und Idrissou operiert
+title: "Anderson und Idrissou operiert"
 
 ---
 

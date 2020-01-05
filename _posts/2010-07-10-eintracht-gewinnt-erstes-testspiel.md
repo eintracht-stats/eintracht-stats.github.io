@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt erstes Testspiel
+title: "Eintracht gewinnt erstes Testspiel"
 
 ---
 

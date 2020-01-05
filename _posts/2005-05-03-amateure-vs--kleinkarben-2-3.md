@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure vs. Klein-Karben 2-3
+title: "Amateure vs. Klein-Karben 2:3"
 
 ---
 

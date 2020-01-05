@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wird Jovic billiger?
+title: "Wird Jovic billiger?"
 
 ---
 

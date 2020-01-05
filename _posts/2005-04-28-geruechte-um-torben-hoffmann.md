@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gerüchte um Torben Hoffmann
+title: "Gerüchte um Torben Hoffmann"
 
 ---
 

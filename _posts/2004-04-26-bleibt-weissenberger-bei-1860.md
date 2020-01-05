@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bleibt Weissenberger bei 1860?
+title: "Bleibt Weissenberger bei 1860?"
 
 ---
 

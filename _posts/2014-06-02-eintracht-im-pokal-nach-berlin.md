@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im Pokal nach Berlin
+title: "Eintracht im Pokal nach Berlin"
 
 ---
 

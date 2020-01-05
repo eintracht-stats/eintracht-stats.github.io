@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt Oczipka? Lehmann vor dem Absprung
+title: "Kommt Oczipka? Lehmann vor dem Absprung"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Einspruch gegen DFB-Urteil
+title: "Einspruch gegen DFB-Urteil"
 
 ---
 

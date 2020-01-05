@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt vs. Arminia Bielefeld 3-0
+title: "Eintracht Frankfurt vs. Arminia Bielefeld 3:0"
 
 ---
 

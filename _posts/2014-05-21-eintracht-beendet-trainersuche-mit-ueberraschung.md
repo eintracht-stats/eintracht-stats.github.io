@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht beendet Trainersuche mit Überraschung
+title: "Eintracht beendet Trainersuche mit Überraschung"
 
 ---
 

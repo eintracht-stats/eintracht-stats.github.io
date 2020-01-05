@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Aleksandar Vasoski bleibt bis 2009
-subtitle: Cha angeschlagen
+title: "Aleksandar Vasoski bleibt bis 2009"
+subtitle: "Cha angeschlagen"
 ---
 
 Aleksandar Vasoski hat seinen Vertrag bei der Eintracht vorzeitig bis 2009 verlängert. Damit einher ging eine Anhebung des Gehalts des Mazedoniers, der seit Jahresbeginn in Frankfurt spielt und seither die Abwehr zusammenhält.

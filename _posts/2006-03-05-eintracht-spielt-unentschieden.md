@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt unentschieden
+title: "Eintracht spielt unentschieden"
 
 ---
 

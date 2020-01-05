@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Rasen im Waldstadion
+title: "Neuer Rasen im Waldstadion"
 
 ---
 

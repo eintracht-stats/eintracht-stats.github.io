@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fürth protestiert gegen Niederlage in Duisburg
+title: "Fürth protestiert gegen Niederlage in Duisburg"
 
 ---
 

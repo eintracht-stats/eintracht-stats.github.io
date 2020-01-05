@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht rutscht ab...
+title: "Eintracht rutscht ab..."
 
 ---
 

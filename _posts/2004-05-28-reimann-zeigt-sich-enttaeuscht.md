@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann zeigt sich enttäuscht
-subtitle: Rangnick als Nachfolger im Gespräch
+title: "Reimann zeigt sich enttäuscht"
+subtitle: "Rangnick als Nachfolger im Gespräch"
 ---
 
 Über die Gründe der Entlassung von Willi Reimann wurde ja in den letzten Tagen schon ausreichend diskutiert. Darauf brauche ich daher wohl kaum noch eingehen. Heribert Bruchhagen jedenfalls vermied es gestern, gegenüber dem Trainer nachzukarten: "Nach allen Vorkommnissen war das die einzige Lösung", war sein knapper Kommentar. Er erklärte, dass Reimann nach dem Gespräch auf Sylt enttäuscht war.

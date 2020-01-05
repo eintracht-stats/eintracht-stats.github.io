@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schröck und Rosenthal dürfen gehen
+title: "Schröck und Rosenthal dürfen gehen"
 
 ---
 

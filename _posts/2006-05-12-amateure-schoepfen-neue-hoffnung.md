@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schöpfen neue Hoffnung
+title: "Amateure schöpfen neue Hoffnung"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 4-2 im Eröffnungsspiel gegen Costa Rica
+title: "4:2 im Eröffnungsspiel gegen Costa Rica"
 
 ---
 

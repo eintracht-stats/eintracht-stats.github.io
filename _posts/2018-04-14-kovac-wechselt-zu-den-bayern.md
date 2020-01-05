@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kovac wechselt zu den Bayern!
+title: "Kovac wechselt zu den Bayern!"
 
 ---
 

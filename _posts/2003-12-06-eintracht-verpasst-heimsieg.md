@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verpasst Heimsieg
-subtitle: Zweimalige Führung reichte nicht...
+title: "Eintracht verpasst Heimsieg"
+subtitle: "Zweimalige Führung reichte nicht..."
 ---
 
 Leider nur einen Punkt konnte die Eintracht heute gegen Hannover 96 ergattern. Kurz vor Schluss konnten die Niedersachsen zum 2:2 ausgleichen.Willi Reimann war mit der erwarteten Startformation ins Spiel gegangen: Die Sieger von Wolfsburg, nur Lexa anstelle von Möller...

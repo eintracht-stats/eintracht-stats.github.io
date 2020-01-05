@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder einmal die letzte Chance
+title: "Wieder einmal die letzte Chance"
 
 ---
 

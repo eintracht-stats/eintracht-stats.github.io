@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Teheran
+title: "Eintracht schlägt Teheran"
 
 ---
 

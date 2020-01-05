@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel zufrieden - Rehmer mal wieder krank
+title: "Funkel zufrieden - Rehmer mal wieder krank"
 
 ---
 

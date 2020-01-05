@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel in Koblenz abgesagt
+title: "Testspiel in Koblenz abgesagt"
 
 ---
 

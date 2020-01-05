@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Fährmann
+title: "Eintracht holt Fährmann"
 
 ---
 

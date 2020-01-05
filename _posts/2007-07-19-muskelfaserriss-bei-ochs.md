@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Muskelfaserriss bei Ochs
+title: "Muskelfaserriss bei Ochs"
 
 ---
 

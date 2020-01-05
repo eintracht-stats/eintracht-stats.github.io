@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unfassbares Remis gegen Berlin
+title: "Unfassbares Remis gegen Berlin"
 
 ---
 

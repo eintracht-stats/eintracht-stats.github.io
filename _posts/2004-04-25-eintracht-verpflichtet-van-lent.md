@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet van Lent
+title: "Eintracht verpflichtet van Lent"
 
 ---
 

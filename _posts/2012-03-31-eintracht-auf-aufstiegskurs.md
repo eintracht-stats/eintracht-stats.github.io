@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht auf Aufstiegskurs
+title: "Eintracht auf Aufstiegskurs"
 
 ---
 

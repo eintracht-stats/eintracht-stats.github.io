@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris kehrt in die Mannschaft zurück
+title: "Chris kehrt in die Mannschaft zurück"
 
 ---
 

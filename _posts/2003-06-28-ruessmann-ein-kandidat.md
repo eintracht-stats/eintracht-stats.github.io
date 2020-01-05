@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Rüssmann ein Kandidat?
-subtitle: Keller, Bindewald und Wiedener verlängern
+title: "Rüssmann ein Kandidat?"
+subtitle: "Keller, Bindewald und Wiedener verlängern"
 ---
 
 Bei einem der beiden von Jürgen Neppe präsentierten Kandidaten für den Posten des Vorstandsvorsitzenden soll es sich laut Zeitungsberichten um Rolf Rüssmann handeln. Allerdings vertagte der Aufsichtsrat eine Entscheidung auf seine nächste Sitzung am 9. Juli. Rüssmann... muss das sein?

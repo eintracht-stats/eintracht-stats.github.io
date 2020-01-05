@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Beeck nicht von Bruchhagen-Verpflichtung unterrichtet!
-subtitle: Gastspieler Dica überzeugt im Testspiel
+title: "Beeck nicht von Bruchhagen-Verpflichtung unterrichtet!"
+subtitle: "Gastspieler Dica überzeugt im Testspiel"
 ---
 
 Der ehrenamtliche Vorstandssprecher Heiko Beeck hat von der Verpflichtung des neuen Vorstandsvorsitzenden Heribert Bruchhagen durch die Medien erfahren. Aufsichtsratschef Becker hielt es offenbar nicht für nötig, ihn vorab darüber zu informieren. Merkwürdig ist auch, dass Bruchhagen sämtliche Aufgabenbereich übertragen wurden, die bislang Beeck betreute. Dennoch ist Beeck sicher, gut mit Bruchhagen zusammen zu arbeiten. 

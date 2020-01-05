@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Dortmund, Remis gegen Braunschweig
+title: "Niederlage gegen Dortmund, Remis gegen Braunschweig"
 
 ---
 

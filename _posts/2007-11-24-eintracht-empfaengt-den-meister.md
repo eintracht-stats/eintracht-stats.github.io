@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt den Meister
+title: "Eintracht empfängt den Meister"
 
 ---
 

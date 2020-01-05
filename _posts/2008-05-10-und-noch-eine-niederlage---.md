@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Und noch eine Niederlage...
+title: "Und noch eine Niederlage..."
 
 ---
 

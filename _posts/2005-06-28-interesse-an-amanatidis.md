@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Amanatidis?
+title: "Interesse an Amanatidis?"
 
 ---
 

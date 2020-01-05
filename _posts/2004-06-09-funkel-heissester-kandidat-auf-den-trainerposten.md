@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Funkel heißester Kandidat auf den Trainerposten
-subtitle: Schur vor dem Abgang
+title: "Funkel heißester Kandidat auf den Trainerposten"
+subtitle: "Schur vor dem Abgang"
 ---
 
 Friedhelm Funkel ist nach der Absage von Ralf Rangnick nun erster Anwärter auf den Trainerposten bei der Eintracht. Gestern abend gab es ein Treffen mit Heribert Bruchhagen. Und heute könnte alles klar gemacht werden: Der Aufsichtsrat tagt wegen des Sportfive-Vertrags ohnehin...

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kader nimmt Formen an
-subtitle: Spycher kommt aus Zürich
+title: "Kader nimmt Formen an"
+subtitle: "Spycher kommt aus Zürich"
 ---
 
 Die Eintracht bastelt eifrig am Kader für die neue Saison. Neben den bereits feststehenden Neuzugängen Dominik Stroh-Engel aus Waldgirmes, Francisco Copado aus Unterhaching sowie Mounir Chaftar aus der eigenen Jugend ist auch die Verpflichtung von Christoph Preuß perfekt. Der Spieler hatte in Bochum eine Ausstiegsklausel für den Abstiegsfall und wechselt für eine festgeschriebene Ablösesumme an den Main. Er wäre auch in der 2. Liga zur Eintracht gekommen und unterschreibt bis 2009! Diesmal dürfte er also länger bleiben...

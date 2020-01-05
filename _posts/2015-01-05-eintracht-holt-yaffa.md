@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Yaffa
+title: "Eintracht holt Yaffa"
 
 ---
 

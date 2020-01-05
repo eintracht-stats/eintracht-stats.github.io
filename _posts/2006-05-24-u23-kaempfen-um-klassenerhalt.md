@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 kämpfen um Klassenerhalt
+title: "U23 kämpfen um Klassenerhalt"
 
 ---
 

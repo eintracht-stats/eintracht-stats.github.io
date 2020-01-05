@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Spekulationen um den Kader - Amanatidis geht nach Lautern!
-subtitle: Bleibt Reimann im Amt?
+title: "Spekulationen um den Kader - Amanatidis geht nach Lautern!"
+subtitle: "Bleibt Reimann im Amt?"
 ---
 
 Nach dem Abstieg sind noch zahlreiche Personalfragen offen: Nach Ioannis Amanatidis hat auch Ingo Hertzsch erklärt, dass er nicht in der 2. Liga spielen werde. Amanatidis hat einen Vertrag beim 1. FC Kaiserslautern unterschrieben. Ein Abschied von Ervin Skela scheint ebenfalls wahrscheinlich. Etwas Hoffnung äußerte Heribert Bruchhagen bezüglich einer Verlängerung mit Christoph Preuß, an dem aber auch Mainz 05 Interesse haben soll.

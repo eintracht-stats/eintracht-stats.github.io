@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Spiel gegen Lautern steht bevor
-subtitle: Amateure spielen Unentschieden
+title: "Spiel gegen Lautern steht bevor"
+subtitle: "Amateure spielen Unentschieden"
 ---
 
 Willi Reimann erklärte vor dem Heimspiel gegen den 1. FC Kaiserslautern am morgigen Sonntag, dass sich seine Mannschaft engagiert präsentieren werde, um den ersten Heimsieg einzufahren. Dass Lautern-Coach Eric Gerets bei einer Niederlage wahrscheinlich seinen Hut nehmen müsste, spielt für Reimann natürlich keine Rolle: "Wir müssen uns um unsere Arbeitsplätze kümmern". Die Eintracht wird vermutlich mit derselben Anfangsformation beginnen, wie in Mönchengladbach. 

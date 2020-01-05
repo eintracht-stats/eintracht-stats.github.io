@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rosenthal bleibt in Darmstadt
+title: "Rosenthal bleibt in Darmstadt"
 
 ---
 

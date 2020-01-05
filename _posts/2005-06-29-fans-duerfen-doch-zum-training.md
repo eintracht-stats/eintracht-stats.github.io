@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fans dürfen doch zum Training!
+title: "Fans dürfen doch zum Training!"
 
 ---
 

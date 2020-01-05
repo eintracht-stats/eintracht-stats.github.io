@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones schießt gegen Bruchhagen
+title: "Jones schießt gegen Bruchhagen"
 
 ---
 

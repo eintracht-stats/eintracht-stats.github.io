@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Chris angeschlagen - Neue Termine sind da
-subtitle: Eintracht schlägt Egelsbach 11-0
+title: "Chris angeschlagen - Neue Termine sind da"
+subtitle: "Eintracht schlägt Egelsbach 11:0"
 ---
 
 Unser brasilianischer Neuzugang Chris hat sich das Innenband im rechten Sprunggelenk überdehnt und angerissen. Er muss nur etwa zwei Tage mit dem Training aussetzen, was mich angesichts dieser Diagnose schon etwas überrascht. Nach Angaben von Mannschaftsarzt Dr. Seeger könnte Chris aber wahrscheinlich sogar am Samstag spielen. Nachtrag: Im Laufe des Tages meldeten die meisten Medien eine Verletzungspause "auf unbestimmte Zeit". Möglicherweise ist die Sache also doch schlimmer...

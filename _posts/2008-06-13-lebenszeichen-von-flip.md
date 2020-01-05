@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lebenszeichen von Flip
+title: "Lebenszeichen von Flip"
 
 ---
 

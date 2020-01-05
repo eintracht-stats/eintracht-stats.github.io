@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kessler erkrankt, Nikolov soll bleiben
+title: "Kessler erkrankt, Nikolov soll bleiben"
 
 ---
 

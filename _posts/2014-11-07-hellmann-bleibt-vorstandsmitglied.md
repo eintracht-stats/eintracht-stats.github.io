@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hellmann bleibt Vorstandsmitglied
+title: "Hellmann bleibt Vorstandsmitglied"
 
 ---
 

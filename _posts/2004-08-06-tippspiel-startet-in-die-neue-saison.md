@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel startet in die neue Saison
+title: "Tippspiel startet in die neue Saison"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure mit Unentschieden zum Saisonabschluss
+title: "Eintracht-Amateure mit Unentschieden zum Saisonabschluss"
 
 ---
 

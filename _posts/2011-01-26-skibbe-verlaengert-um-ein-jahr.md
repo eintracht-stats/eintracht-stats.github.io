@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Skibbe verlängert um ein Jahr
+title: "Skibbe verlängert um ein Jahr"
 
 ---
 

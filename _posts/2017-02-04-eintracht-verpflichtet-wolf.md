@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verpflichtet Wolf
+title: "Eintracht verpflichtet Wolf"
 
 ---
 

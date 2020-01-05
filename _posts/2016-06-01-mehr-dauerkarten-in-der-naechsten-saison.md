@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mehr Dauerkarten in der nächsten Saison
+title: "Mehr Dauerkarten in der nächsten Saison"
 
 ---
 

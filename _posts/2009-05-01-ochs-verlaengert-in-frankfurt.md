@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs verlängert in Frankfurt!
+title: "Ochs verlängert in Frankfurt!"
 
 ---
 

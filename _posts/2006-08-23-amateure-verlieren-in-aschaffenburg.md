@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren in Aschaffenburg
+title: "Amateure verlieren in Aschaffenburg"
 
 ---
 

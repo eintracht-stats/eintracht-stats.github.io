@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2. Liga- Der Freitag
+title: "2. Liga: Der Freitag"
 
 ---
 

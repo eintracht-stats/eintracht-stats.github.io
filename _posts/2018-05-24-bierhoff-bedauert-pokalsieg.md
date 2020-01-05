@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bierhoff bedauert Pokalsieg
+title: "Bierhoff bedauert Pokalsieg"
 
 ---
 

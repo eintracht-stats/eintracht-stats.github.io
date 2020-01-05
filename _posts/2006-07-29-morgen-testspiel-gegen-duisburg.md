@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen Testspiel gegen Duisburg
+title: "Morgen Testspiel gegen Duisburg"
 
 ---
 

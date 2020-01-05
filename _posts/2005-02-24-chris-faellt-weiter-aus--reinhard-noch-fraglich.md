@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris fällt weiter aus, Reinhard noch fraglich
+title: "Chris fällt weiter aus, Reinhard noch fraglich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure scheitern am Schlusslicht
+title: "Amateure scheitern am Schlusslicht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fenin operiert! 4 Wochen Pause!
+title: "Fenin operiert! 4 Wochen Pause!"
 
 ---
 

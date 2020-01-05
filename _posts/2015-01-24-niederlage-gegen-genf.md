@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Genf
+title: "Niederlage gegen Genf"
 
 ---
 

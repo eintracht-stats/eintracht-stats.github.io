@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Galindo will weg - Eintracht mit 26 Mann im Trainingslager
+title: "Galindo will weg - Eintracht mit 26 Mann im Trainingslager"
 
 ---
 

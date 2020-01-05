@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure unterliegen Eschborn
+title: "Amateure unterliegen Eschborn"
 
 ---
 

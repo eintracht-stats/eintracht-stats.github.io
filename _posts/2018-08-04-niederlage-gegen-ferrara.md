@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Ferrara
+title: "Niederlage gegen Ferrara"
 
 ---
 

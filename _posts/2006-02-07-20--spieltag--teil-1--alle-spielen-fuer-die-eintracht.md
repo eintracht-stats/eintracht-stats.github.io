@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 20. Spieltag, Teil 1- Alle spielen für die Eintracht
+title: "20. Spieltag, Teil 1: Alle spielen für die Eintracht"
 
 ---
 

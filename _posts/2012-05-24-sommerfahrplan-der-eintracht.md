@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sommerfahrplan der Eintracht
+title: "Sommerfahrplan der Eintracht"
 
 ---
 

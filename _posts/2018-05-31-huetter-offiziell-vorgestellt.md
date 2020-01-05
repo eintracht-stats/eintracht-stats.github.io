@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hütter offiziell vorgestellt
+title: "Hütter offiziell vorgestellt"
 
 ---
 

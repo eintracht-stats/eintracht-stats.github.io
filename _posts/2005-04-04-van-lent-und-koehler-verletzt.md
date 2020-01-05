@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Van Lent und Köhler verletzt
+title: "Van Lent und Köhler verletzt"
 
 ---
 

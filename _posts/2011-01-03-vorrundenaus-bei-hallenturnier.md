@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vorrunden-Aus bei Hallenturnier
+title: "Vorrunden-Aus bei Hallenturnier"
 
 ---
 

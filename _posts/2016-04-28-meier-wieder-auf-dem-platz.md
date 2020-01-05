@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier wieder auf dem Platz
+title: "Meier wieder auf dem Platz"
 
 ---
 

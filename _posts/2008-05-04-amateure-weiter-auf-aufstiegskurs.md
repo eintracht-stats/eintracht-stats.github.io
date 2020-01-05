@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure weiter auf Aufstiegskurs
+title: "Amateure weiter auf Aufstiegskurs"
 
 ---
 

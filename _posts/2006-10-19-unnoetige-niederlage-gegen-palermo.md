@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Unnötige Niederlage gegen Palermo
-subtitle: Halbzeitführung reicht nicht
+title: "Unnötige Niederlage gegen Palermo"
+subtitle: "Halbzeitführung reicht nicht"
 ---
 
 So fühlt es sich also an, wenn man verliert... 1:2 gegen US Palermo - damit dürften die Chancen auf ein Weiterkommen im Uefa-Cup schon ziemlich geschrumpft sein. Aber diese Niederlage war ziemlich unnötig. In der Nachspielzeit einer soliden ersten Halbzeit traf Albert Streit mit einem Traumtor aus 17m zur Pausenführung. Besser hätte es also nicht laufen können...

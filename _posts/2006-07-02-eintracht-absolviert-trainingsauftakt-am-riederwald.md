@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht absolviert Trainingsauftakt am Riederwald
+title: "Eintracht absolviert Trainingsauftakt am Riederwald"
 
 ---
 

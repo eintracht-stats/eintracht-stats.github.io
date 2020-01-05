@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Daily Flip - Melancholie-Edition
+title: "Daily Flip - Melancholie-Edition"
 
 ---
 

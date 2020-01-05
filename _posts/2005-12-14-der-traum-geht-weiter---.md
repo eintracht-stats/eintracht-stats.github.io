@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Der Traum geht weiter...
-subtitle: Eintracht siegt in Kaiserslautern!
+title: "Der Traum geht weiter..."
+subtitle: "Eintracht siegt in Kaiserslautern!"
 ---
 
 Es ist unglaublich: Die Eintracht steht nach dem 2:1-Sieg in Kaiserslautern auf Rang 9 der Tabelle und sage und schreibe 9 Punkte vor einem Abstiegsplatz! Dabei sah es in der ersten Halbzeit gar nicht so gut aus. Die Pfälzer hatten durchaus Chancen, selbst in Führung zu gehen. Zudem musste kurz vor der Pause Alex Meier mit einer Zerrung gegen Weissenberger ausgetauscht werden...

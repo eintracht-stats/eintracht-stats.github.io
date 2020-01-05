@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Cipi-Wechsel perfekt - Was ist mit Jones?
-subtitle: Traningsauftakt am Nachmittag
+title: "Cipi-Wechsel perfekt - Was ist mit Jones?"
+subtitle: "Traningsauftakt am Nachmittag"
 ---
 
 Der HR meldet, dass der Wechsel von Geri Cipi zur Eintracht nun perfekt ist. Die Ablöse beträgt wie berichtet 125.000 Euro. Der Albaner nahm heute auch am ersten Training teil, das vor etwa 500 Zuschauern stattfand. Es fehlten nur Du-Ri Cha, der erst am Donnerstag von einer Länderspielreise mit der koreanischen Nationalmannschaft zurückerwartet wird, sowie Jermaine Jones...

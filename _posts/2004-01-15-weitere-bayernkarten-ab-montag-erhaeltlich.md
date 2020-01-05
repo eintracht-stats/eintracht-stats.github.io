@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weitere Bayern-Karten ab Montag erhältlich!
+title: "Weitere Bayern-Karten ab Montag erhältlich!"
 
 ---
 

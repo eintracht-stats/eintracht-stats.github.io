@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spielplan ist da
+title: "Spielplan ist da"
 
 ---
 

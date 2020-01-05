@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Profis und Amateure im Einsatz
+title: "Profis und Amateure im Einsatz"
 
 ---
 

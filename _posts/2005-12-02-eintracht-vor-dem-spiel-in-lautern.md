@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem Spiel in Lautern
+title: "Eintracht vor dem Spiel in Lautern"
 
 ---
 

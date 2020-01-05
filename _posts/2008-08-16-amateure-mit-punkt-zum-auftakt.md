@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure mit Punkt zum Auftakt
+title: "Amateure mit Punkt zum Auftakt"
 
 ---
 

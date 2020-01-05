@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Bereich für internationale Beziehungen
+title: "Neuer Bereich für internationale Beziehungen"
 
 ---
 

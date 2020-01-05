@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bundesliga-Auftakt im Breisgau
+title: "Bundesliga-Auftakt im Breisgau"
 
 ---
 

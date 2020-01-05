@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thurk jetzt doch auf dem Markt!
+title: "Thurk jetzt doch auf dem Markt!"
 
 ---
 

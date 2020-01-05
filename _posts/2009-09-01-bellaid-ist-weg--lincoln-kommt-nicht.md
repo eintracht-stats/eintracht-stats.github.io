@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bellaid ist weg, Lincoln kommt nicht
+title: "Bellaid ist weg, Lincoln kommt nicht"
 
 ---
 

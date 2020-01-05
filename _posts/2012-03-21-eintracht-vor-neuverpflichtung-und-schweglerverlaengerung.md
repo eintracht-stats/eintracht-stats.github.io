@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor Neuverpflichtung und Schwegler-Verlängerung
+title: "Eintracht vor Neuverpflichtung und Schwegler-Verlängerung"
 
 ---
 

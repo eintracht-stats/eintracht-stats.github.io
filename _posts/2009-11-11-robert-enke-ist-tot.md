@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Robert Enke ist tot
-subtitle: Nationaltorhüter begeht Selbstmord
+title: "Robert Enke ist tot"
+subtitle: "Nationaltorhüter begeht Selbstmord"
 ---
 
 Robert Enke ist tot. Der Nationaltorhüter beging am gestrigen Abend Selbstmord. In der Nähe seines Wohnorts wurde der 32jährige von einem Zug überrollt. Wie seine Wittwe auf einer bewegenden Pressekonferenz bekannt gab, litt Enke seit Jahren an Depressionen. Tausende Menschen nahmen heute bei einer Andacht in Hannover Abschied. Im Anschluss fand ein Trauermarsch mit über 30.000 Teilnehmern statt. Das Länderspiel am Wochenende gegen Chile wurde abgesagt.

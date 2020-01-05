@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht besiegt Worms nur knapp
+title: "Eintracht besiegt Worms nur knapp"
 
 ---
 

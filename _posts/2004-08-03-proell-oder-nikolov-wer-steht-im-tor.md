@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll oder Nikolov - wer steht im Tor?
+title: "Pröll oder Nikolov - wer steht im Tor?"
 
 ---
 

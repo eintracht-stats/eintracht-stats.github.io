@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure auf Erfolgskurs
+title: "Amateure auf Erfolgskurs"
 
 ---
 

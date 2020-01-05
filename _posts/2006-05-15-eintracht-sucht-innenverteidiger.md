@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht sucht Innenverteidiger
+title: "Eintracht sucht Innenverteidiger"
 
 ---
 

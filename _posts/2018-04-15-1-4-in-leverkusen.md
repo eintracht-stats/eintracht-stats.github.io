@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1-4 in Leverkusen
+title: "1:4 in Leverkusen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Amateure verlieren deutlich
+title: "Eintracht-Amateure verlieren deutlich"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht ohne Pröll in Bielefeld
+title: "Eintracht ohne Pröll in Bielefeld"
 
 ---
 

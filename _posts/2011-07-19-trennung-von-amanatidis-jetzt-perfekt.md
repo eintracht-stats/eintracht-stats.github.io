@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trennung von Amanatidis jetzt perfekt
+title: "Trennung von Amanatidis jetzt perfekt"
 
 ---
 

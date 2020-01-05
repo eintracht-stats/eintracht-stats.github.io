@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Trainingslager ohne Fünf - aber mit Keller
-subtitle: Finanzielle Situation leicht verbessert
+title: "Trainingslager ohne Fünf - aber mit Keller"
+subtitle: "Finanzielle Situation leicht verbessert"
 ---
 
 Von heute an belegt die Eintracht ein einwöchiges Trainingslager im spanischen Jerez. Willi Reimann muss dabei neben den langzeitverletzten Jones und Tsoumou-Madza auch auf die beiden U19-Nationalspieler Cimen und Huber verzichten, die sich auf einem DFB-Lehrgang befinden. Ebenfalls nicht dabei ist Andreas Möller, der am Wochende einen Muskelfaserriss erlitten hatte. 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morgen geht's gegen Duisburg
+title: "Morgen geht's gegen Duisburg"
 
 ---
 

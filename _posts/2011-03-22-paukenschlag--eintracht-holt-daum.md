@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Paukenschlag- Eintracht holt Daum!
+title: "Paukenschlag: Eintracht holt Daum!"
 
 ---
 

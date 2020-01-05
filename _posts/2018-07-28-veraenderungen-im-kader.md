@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veränderungen im Kader
+title: "Veränderungen im Kader"
 
 ---
 

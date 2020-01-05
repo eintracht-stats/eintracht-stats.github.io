@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jetzt auch noch Stendera...
+title: "Jetzt auch noch Stendera..."
 
 ---
 

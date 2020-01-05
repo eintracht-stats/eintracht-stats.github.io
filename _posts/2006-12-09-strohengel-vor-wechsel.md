@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stroh-Engel vor Wechsel
+title: "Stroh-Engel vor Wechsel"
 
 ---
 

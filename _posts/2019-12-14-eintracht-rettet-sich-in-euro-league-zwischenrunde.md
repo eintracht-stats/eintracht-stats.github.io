@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht rettet sich in Euro League Zwischenrunde
+title: "Eintracht rettet sich in Euro League Zwischenrunde"
 
 ---
 

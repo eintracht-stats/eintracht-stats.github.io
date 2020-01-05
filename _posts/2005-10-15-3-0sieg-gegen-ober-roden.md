@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3-0-Sieg gegen Ober-Roden
+title: "3:0-Sieg gegen Ober-Roden"
 
 ---
 

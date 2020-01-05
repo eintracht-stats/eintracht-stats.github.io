@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verschläft den Sieg
-subtitle: 1-1 gegen Bochum
+title: "Eintracht verschläft den Sieg"
+subtitle: "1:1 gegen Bochum"
 ---
 
 Das hätten heute drei Punkte sein müssen - aber ein kollektiver Blackout brachte die Eintracht um den verdienten Lohn... Die Partie gegen Bochum entwickelte sich wie erwartet: Beide Mannschaften standen kompakt, so dass sich keine großartigen Torszenen entwickelten. Die erste Halbzeit war denn auch eher langweilig.

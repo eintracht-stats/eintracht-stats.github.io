@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch keine weiteren Transfers getätigt
-subtitle: Sommertheater, Folge 10254 (oder so...)
+title: "Noch keine weiteren Transfers getätigt"
+subtitle: "Sommertheater, Folge 10254 (oder so...)"
 ---
 
 Die Zeitungen sind heute voll von Berichten über die Eintracht - wirklich interessant ist das alles jedoch nicht: Der Wechsel von Viorel Ganea ist nach FR-Information eher unwahrscheinlich. Bei Du-Ri Cha ist man dagegen offenbar schon weiter. Volker Sparmann hat wohl auch schon mit dessen Mutter gesprochen ;-) Eine Entscheidung ist jedoch auch hier noch nicht gefallen.

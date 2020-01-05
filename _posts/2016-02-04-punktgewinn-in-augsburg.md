@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Punktgewinn in Augsburg
+title: "Punktgewinn in Augsburg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Clark
+title: "Eintracht holt Clark"
 
 ---
 

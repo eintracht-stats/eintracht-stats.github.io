@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schlagen Erzhausen
+title: "Amateure schlagen Erzhausen"
 
 ---
 

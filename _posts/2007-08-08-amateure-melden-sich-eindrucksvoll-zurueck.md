@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure melden sich eindrucksvoll zurück
+title: "Amateure melden sich eindrucksvoll zurück"
 
 ---
 

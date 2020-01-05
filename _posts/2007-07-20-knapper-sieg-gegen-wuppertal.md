@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knapper Sieg gegen Wuppertal
+title: "Knapper Sieg gegen Wuppertal"
 
 ---
 

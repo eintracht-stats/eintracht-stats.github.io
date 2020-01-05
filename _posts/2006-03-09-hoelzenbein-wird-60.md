@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hölzenbein wird 60
+title: "Hölzenbein wird 60"
 
 ---
 

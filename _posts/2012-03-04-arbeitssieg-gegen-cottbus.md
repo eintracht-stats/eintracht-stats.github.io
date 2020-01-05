@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Arbeitssieg gegen Cottbus
+title: "Arbeitssieg gegen Cottbus"
 
 ---
 

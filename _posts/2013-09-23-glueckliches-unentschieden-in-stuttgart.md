@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glückliches Unentschieden in Stuttgart
+title: "Glückliches Unentschieden in Stuttgart"
 
 ---
 

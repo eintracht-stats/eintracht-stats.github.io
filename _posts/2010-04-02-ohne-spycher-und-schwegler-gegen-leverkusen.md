@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ohne Spycher und Schwegler gegen Leverkusen
+title: "Ohne Spycher und Schwegler gegen Leverkusen"
 
 ---
 

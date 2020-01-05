@@ -1,7 +1,7 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2007!
-subtitle: Kleiner Jahresrückblick zum Ausklang...
+title: "eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2007!"
+subtitle: "Kleiner Jahresrückblick zum Ausklang..."
 ---
 
 Es ist wieder einmal soweit: Ein Jahr ist vergangen - und damit steht mein ganz persönlicher Daily-Flip-Jahresrückblick an. Beginnen wir wie immer mit dem positiven, dem Sport: Die Eintracht hat uns 2006 wieder ein sehr erfreuliches Jahr beschert. Zwar war die Rückrunde der vergangenen Saison von zahlreichen Verletzungen und nicht ganz so vielen Punkten geprägt. Aber das unvergessliche Erlebnis beim Pokalfinale und die damit verbundene Uefa-Cup-Qualifikation hat für vieles entschädigt. Und in dieser Saison läuft es kaum schlechter: Im Pokal sind wir erneut im Viertelfinale, in der Liga steht ein schöner 10. Platz zu Buche und im Uefa-Cup sind wir ganz knapp an der großen Sensation, dem Erreichen der Zwischenrunde, vorbeigeschrammt. Das Fazit dieses Jahres muss daher einfach positiv ausfallen...

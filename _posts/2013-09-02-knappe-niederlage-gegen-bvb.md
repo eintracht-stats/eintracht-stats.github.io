@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knappe Niederlage gegen BVB
+title: "Knappe Niederlage gegen BVB"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung bleibt ohne Einsatz
+title: "Jung bleibt ohne Einsatz"
 
 ---
 

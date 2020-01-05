@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel vor Vertragsverlängerung!
+title: "Funkel vor Vertragsverlängerung!"
 
 ---
 

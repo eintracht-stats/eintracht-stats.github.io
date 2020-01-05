@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Verrücktes Pokalspiel gegen Aachen
-subtitle: Vasoski mit Rippenbruch
+title: "Verrücktes Pokalspiel gegen Aachen"
+subtitle: "Vasoski mit Rippenbruch"
 ---
 
 In einem völlig verrückten Spiel schaffte die Eintracht den Einzug ins DFB-Pokalachtelfinale. Gegen Zweitligist Alemannia Aachen stand es am Ende 6:4... Dabei schien die Partie nach 5 Minuten bereits gelaufen zu sein. Bereits in der 1. Minute traf Caio nach Vorarbeit von Meier zur Führung. Liberopoulos erhöhte kurz darauf auf 2:0.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dickes Ding- Caio bricht Laktattest ab
+title: "Dickes Ding: Caio bricht Laktattest ab"
 
 ---
 

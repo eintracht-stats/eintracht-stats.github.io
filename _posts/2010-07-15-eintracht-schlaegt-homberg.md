@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Homberg
+title: "Eintracht schlägt Homberg"
 
 ---
 

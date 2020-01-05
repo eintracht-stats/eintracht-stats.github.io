@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Entwarnung bei Pröll
+title: "Entwarnung bei Pröll"
 
 ---
 

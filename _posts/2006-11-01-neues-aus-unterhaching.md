@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neues aus Unterhaching
+title: "Neues aus Unterhaching"
 
 ---
 

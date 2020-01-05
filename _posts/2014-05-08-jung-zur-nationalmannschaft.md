@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung zur Nationalmannschaft
+title: "Jung zur Nationalmannschaft"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Testspiel gegen SC Freiburg endet unentschieden
+title: "Testspiel gegen SC Freiburg endet unentschieden"
 
 ---
 

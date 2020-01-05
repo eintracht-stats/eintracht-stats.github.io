@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler-Einsatz fraglich
+title: "Schwegler-Einsatz fraglich"
 
 ---
 

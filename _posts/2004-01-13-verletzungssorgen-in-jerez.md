@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletzungssorgen in Jerez
+title: "Verletzungssorgen in Jerez"
 
 ---
 

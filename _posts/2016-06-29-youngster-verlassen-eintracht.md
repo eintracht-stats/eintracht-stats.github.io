@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Youngster verlassen Eintracht
+title: "Youngster verlassen Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Menger verlängert um ein Jahr
+title: "Menger verlängert um ein Jahr"
 
 ---
 

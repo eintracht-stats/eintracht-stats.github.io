@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Huggel hat unterschrieben!
-subtitle: Neue Stürmernamen im Gespräch
+title: "Huggel hat unterschrieben!"
+subtitle: "Neue Stürmernamen im Gespräch"
 ---
 
 Was lange währt, wird endlich gut: Heribert Bruchhagen hat die Verhandlungen mit Benjamin Huggel und dem FC Basel rechtzeitig vor dem Trainingsbeginn am Donnerstag abgeschlossen. Der Schweizer Nationalspieler (14 Länderspiele) unterschrieb einen Dreijahresvertrag. Nach den Presseberichten der letzten Tage zahlt die Eintracht eine Ablösesumme von etwa 550.000 Euro an den FC Basel. Damit ist nur noch ein Platz im Kader zu besetzen - ein weiterer Stürmer wird gesucht....

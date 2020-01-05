@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gladbach-Spiel steht an
+title: "Gladbach-Spiel steht an"
 
 ---
 

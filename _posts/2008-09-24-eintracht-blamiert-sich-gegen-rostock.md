@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht blamiert sich gegen Rostock
+title: "Eintracht blamiert sich gegen Rostock"
 
 ---
 

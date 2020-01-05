@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht vs. Bayer Leverkusen 1-4
-subtitle: Schwache zweite Hälfte macht guten Start zunichte
+title: "Eintracht vs. Bayer Leverkusen 1:4"
+subtitle: "Schwache zweite Hälfte macht guten Start zunichte"
 ---
 
 Das erste Bundesligaspiel der Saison hat die Eintracht mit 1:4 gegen Bayer Leverkusen verloren. Dabei gelang der Mannschaft ein regelrechter Traumstart, als Vasoski eine Ecke von Meier bereits nach 7 Minuten einköpfen konnte. Danach zeigte die Eintracht weiterhin tollen Offensivfußball. Nur das 2:0 wollte nicht fallen. Erst langsam kamen die Gäste besser ins Spiel...

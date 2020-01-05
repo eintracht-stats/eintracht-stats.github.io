@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht fährt im Pokal nach Siegen
+title: "Eintracht fährt im Pokal nach Siegen"
 
 ---
 

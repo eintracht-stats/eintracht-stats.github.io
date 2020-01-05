@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainersuche geht weiter
+title: "Trainersuche geht weiter"
 
 ---
 

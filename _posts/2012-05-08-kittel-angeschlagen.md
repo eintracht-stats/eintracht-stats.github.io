@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kittel angeschlagen
+title: "Kittel angeschlagen"
 
 ---
 

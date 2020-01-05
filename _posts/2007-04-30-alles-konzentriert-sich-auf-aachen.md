@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alles konzentriert sich auf Aachen
+title: "Alles konzentriert sich auf Aachen"
 
 ---
 

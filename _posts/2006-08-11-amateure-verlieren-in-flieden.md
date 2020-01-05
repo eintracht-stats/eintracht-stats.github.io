@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren in Flieden
+title: "Amateure verlieren in Flieden"
 
 ---
 

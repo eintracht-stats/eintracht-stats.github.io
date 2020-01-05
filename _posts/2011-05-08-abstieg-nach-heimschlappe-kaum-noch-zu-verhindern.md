@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Abstieg nach Heimschlappe kaum noch zu verhindern
-subtitle: Idioten aus dem Fanblock stürmen den Platz
+title: "Abstieg nach Heimschlappe kaum noch zu verhindern"
+subtitle: "Idioten aus dem Fanblock stürmen den Platz"
 ---
 
 Nach dem 0:2 gegen den 1. FC Köln ist der Abstieg in die 2. Bundesliga kaum noch zu verhindern. Die Eintracht ist sogar hinter Borussia Mönchengladbach auf den direkten Abstiegsplatz 17 abgerutscht. Nächste Woche beim deutschen Meister in Dortmund müsste die Eintracht also mindestens einen Punkt mitnehmen und auf eine gleichzeitige Niederlage der Gladbacher in Hamburg hoffen. Nach dieser Leistung gestern kaum zu erwarten...

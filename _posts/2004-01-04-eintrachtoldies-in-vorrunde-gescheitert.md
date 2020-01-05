@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Oldies in Vorrunde gescheitert
+title: "Eintracht-Oldies in Vorrunde gescheitert"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert in Karlsruhe
+title: "Eintracht verliert in Karlsruhe"
 
 ---
 

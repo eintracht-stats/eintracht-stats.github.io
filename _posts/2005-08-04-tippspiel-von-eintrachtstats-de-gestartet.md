@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Tippspiel von eintracht-stats.de gestartet
-subtitle: Erster Spieltag muss leider entfallen
+title: "Tippspiel von eintracht-stats.de gestartet"
+subtitle: "Erster Spieltag muss leider entfallen"
 ---
 
 Auch in dieser Saison veranstalten wir von eintracht-stats.de wieder unser beliebtes Tippspiel. Getippt werden wie immer die Spiele der ersten und zweiten Bundesliga. Nähere Informationen erhaltet auf unseren Tippspiel-Seiten. Wer bereits registriert ist, kann sofort lostippen. Einen wichtigen Hinweis haben wir noch: Der erste Spieltag kann in dieser Saison leider nicht getippt werden, so dass wir direkt mit der Tippabgabe für den zweiten Spieltag starten. Wie ihr sicher wisst, betreiben wir diese Seite ehrenamtlich und in unserer Freizeit, was aufgrund der enormen Datenfülle auf eintracht-stats.de ohnehin sehr zeitaufwändig ist... 

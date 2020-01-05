@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Waldstadion wird zur Commerzbank-Arena
+title: "Waldstadion wird zur Commerzbank-Arena"
 
 ---
 

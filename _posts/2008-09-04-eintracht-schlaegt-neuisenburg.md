@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Neu-Isenburg
+title: "Eintracht schlägt Neu-Isenburg"
 
 ---
 

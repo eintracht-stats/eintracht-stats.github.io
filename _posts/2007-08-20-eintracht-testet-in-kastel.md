@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet in Kastel
+title: "Eintracht testet in Kastel"
 
 ---
 

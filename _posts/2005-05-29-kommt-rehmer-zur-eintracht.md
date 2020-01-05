@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt Rehmer zur Eintracht?
+title: "Kommt Rehmer zur Eintracht?"
 
 ---
 

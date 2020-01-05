@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingsauftakt bei der Eintracht
+title: "Trainingsauftakt bei der Eintracht"
 
 ---
 

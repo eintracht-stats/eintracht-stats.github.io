@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoeneß schießt zurück
+title: "Hoeneß schießt zurück"
 
 ---
 

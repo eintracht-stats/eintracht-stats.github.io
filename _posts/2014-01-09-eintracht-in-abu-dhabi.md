@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Abu Dhabi
+title: "Eintracht in Abu Dhabi"
 
 ---
 

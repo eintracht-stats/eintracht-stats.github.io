@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure empfangen Fulda
+title: "Amateure empfangen Fulda"
 
 ---
 

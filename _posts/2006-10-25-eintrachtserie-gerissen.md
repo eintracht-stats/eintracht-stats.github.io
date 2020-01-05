@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Serie gerissen
+title: "Eintracht-Serie gerissen"
 
 ---
 

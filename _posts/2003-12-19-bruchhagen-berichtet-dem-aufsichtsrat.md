@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bruchhagen berichtet dem Aufsichtsrat
-subtitle: Ganea wieder im Gespräch?
+title: "Bruchhagen berichtet dem Aufsichtsrat"
+subtitle: "Ganea wieder im Gespräch?"
 ---
 
 Heribert Bruchhagen hat auf der heutigen Aufsichtsratssitzung über den geplanten Vermarktungsvertrag mit HSG und Sportfive berichtet. Unklar ist, ob die Eintracht das Angebot annehmen wird bzw. ob dieses von Seiten von Sportfive nachgebessert wurde. Die Eintracht möchte 20 % ihrer AG-Anteile verkaufen und dem Vernehmen nach dafür 7 Millionen Euro erhalten. Sportfive möchte logischerweise weniger zahlen und verlangt zudem eine zu hohe Stadionmiete für den Abstiegsfall. 

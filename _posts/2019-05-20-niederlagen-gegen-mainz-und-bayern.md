@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlagen gegen Mainz und Bayern
+title: "Niederlagen gegen Mainz und Bayern"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Spielbericht Eintracht-Bayer
-subtitle: Wie schwer ist Kellers Verletzung?
+title: "Spielbericht Eintracht-Bayer"
+subtitle: "Wie schwer ist Kellers Verletzung?"
 ---
 
 Hier ist der Spielbericht zur gestrigen Partie: Willi Reimann begann mit der erwarteten Aufstellung, also mit Lexa, Dragusha, Frommer und Bindewald. Bereits nach 5 Minuten musste er jedoch umstellen. Jens Keller verspürte ein Stechen im Knie, was ohne gegnerische Einwirkung auftrat. Er musste gehen und wurde durch Tsoumou-Madza ersetzt. Der Verdacht auf Kreuzbandriss bei unserem Kapitän scheint sich zwar nicht zu bestätigen. Aber die jetzt im Raum stehende Knorpel - oder Meniskusverletzung ist nicht wesentlich besser. Sobald die endgültige Diagnose vorliegt, werde ich euch natürlich sofort informieren. Jetzt aber wirklich zum Spiel...

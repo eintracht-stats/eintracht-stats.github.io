@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingsauftakt mit Trapp
+title: "Trainingsauftakt mit Trapp"
 
 ---
 

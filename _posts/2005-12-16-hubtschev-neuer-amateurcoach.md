@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hubtschev neuer Amateur-Coach
+title: "Hubtschev neuer Amateur-Coach"
 
 ---
 

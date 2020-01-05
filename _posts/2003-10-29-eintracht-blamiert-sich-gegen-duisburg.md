@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht blamiert sich gegen Duisburg
-subtitle: Pokal-Aus in Runde 2 trifft Eintracht hart
+title: "Eintracht blamiert sich gegen Duisburg"
+subtitle: "Pokal-Aus in Runde 2 trifft Eintracht hart"
 ---
 
 Die Eintracht hat sich im Pokalspiel gegen den MSV Duisburg nach einer indiskutablen Leistung aus dem Wettbewerb verabschiedet. Die Eintracht mit einer offensiven Aufstellung: Skela kehrte in die Mannschaft zurück, Lexa und Beierle spielten von Anfang an. Dafür blieben Bindewald, Möller und Cha draußen. Und eigentlich begann alles planmäßig...

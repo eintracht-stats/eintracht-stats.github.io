@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will Leihspieler halten
+title: "Eintracht will Leihspieler halten"
 
 ---
 

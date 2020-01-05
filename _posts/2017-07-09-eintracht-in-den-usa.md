@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in den USA
+title: "Eintracht in den USA"
 
 ---
 

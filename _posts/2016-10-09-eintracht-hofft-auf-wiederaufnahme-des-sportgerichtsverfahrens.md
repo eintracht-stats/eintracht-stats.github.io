@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht hofft auf Wiederaufnahme des Sportgerichtsverfahrens
+title: "Eintracht hofft auf Wiederaufnahme des Sportgerichtsverfahrens"
 
 ---
 

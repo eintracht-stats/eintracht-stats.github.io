@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Preuß erteilt endgültige Absage
+title: "Preuß erteilt endgültige Absage"
 
 ---
 

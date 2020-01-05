@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Butscher geht nach Bochum
+title: "Butscher geht nach Bochum"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bellaid vor Wechsel
+title: "Bellaid vor Wechsel"
 
 ---
 

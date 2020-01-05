@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure heißen jetzt U23
+title: "Amateure heißen jetzt U23"
 
 ---
 

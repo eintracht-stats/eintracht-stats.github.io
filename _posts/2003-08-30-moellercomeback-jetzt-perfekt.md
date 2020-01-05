@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Möller-Comeback jetzt perfekt!
-subtitle: Auch Chris wird verpflichtet
+title: "Möller-Comeback jetzt perfekt!"
+subtitle: "Auch Chris wird verpflichtet"
 ---
 
 Ich hätte es nie für möglich gehalten, jetzt ist es soweit: Andreas Möller wird wieder die Fußballschuhe für die Eintracht schnüren! Er wird für ein geringes Gehalt versuchen, die Eintracht in diesem Jahr zum Klassenerhalt zu führen. In der kommenden Saison soll er als Assistent des Vorstands in den Bereichen Sport, Marketing und Öffentlichkeitsarbeit wirken. 

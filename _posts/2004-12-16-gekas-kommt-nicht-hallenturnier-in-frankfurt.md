@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gekas kommt nicht - Hallenturnier in Frankfurt
+title: "Gekas kommt nicht - Hallenturnier in Frankfurt"
 
 ---
 

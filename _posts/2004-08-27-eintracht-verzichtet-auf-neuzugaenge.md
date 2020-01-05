@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verzichtet auf Neuzugänge
+title: "Eintracht verzichtet auf Neuzugänge"
 
 ---
 

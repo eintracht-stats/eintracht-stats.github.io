@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streik beeinträchtigt Anreise zum Bayern-Spiel
+title: "Streik beeinträchtigt Anreise zum Bayern-Spiel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov verletzt sich bei Testspielsieg
+title: "Nikolov verletzt sich bei Testspielsieg"
 
 ---
 

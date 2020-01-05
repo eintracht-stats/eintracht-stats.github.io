@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 verliert zu Hausen
+title: "U23 verliert zu Hausen"
 
 ---
 

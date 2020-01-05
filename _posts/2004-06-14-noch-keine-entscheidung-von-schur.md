@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Noch keine Entscheidung von Schur
-subtitle: Fünf Neue sollen kommen- Hoffmann und Quatrocchi sind Kandidaten
+title: "Noch keine Entscheidung von Schur"
+subtitle: "Fünf Neue sollen kommen: Hoffmann und Quatrocchi sind Kandidaten"
 ---
 
 Die Personalie Alexander Schur bleibt eine Hängepartie: Nach seiner Rückkehr aus dem Urlaub sprach der Kapitän mit Friedhelm Funkel und telefonierte auch mit Heribert Bruchhagen. Doch eine Entscheidung wird erst in einer Woche fallen. So lange weilt Schur als Zuschauer bei der Europameisterschaft. Ihm liegen Angebote aus Saarbrücken und Aachen vor, wo man Schur auch mit der Teilnahme am Uefa-Cup lockt.

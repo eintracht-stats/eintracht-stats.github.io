@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler fällt einen Monat aus
+title: "Schwegler fällt einen Monat aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bindewald muss gehen! Kein neuer Vertrag für das Urgestein...
+title: "Bindewald muss gehen! Kein neuer Vertrag für das Urgestein..."
 
 ---
 

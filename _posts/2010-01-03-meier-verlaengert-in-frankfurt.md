@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier verlängert in Frankfurt
+title: "Meier verlängert in Frankfurt"
 
 ---
 

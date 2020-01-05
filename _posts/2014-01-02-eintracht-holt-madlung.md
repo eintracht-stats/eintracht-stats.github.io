@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Madlung
+title: "Eintracht holt Madlung"
 
 ---
 

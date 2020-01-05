@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keller bleibt Kapitän
+title: "Keller bleibt Kapitän"
 
 ---
 

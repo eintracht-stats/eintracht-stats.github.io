@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Neue Führungsspitze installiert
-subtitle: Suche nach Sportlichem Leiter hat Priorität
+title: "Neue Führungsspitze installiert"
+subtitle: "Suche nach Sportlichem Leiter hat Priorität"
 ---
 
 Hier habe ich die Ergebnisse der gestrigen Aufsichtsratssitzung noch einmal zusammengefasst: Wie berichtet wird Dr. Peter Schuster ehrenamtlich den Vorstandsvorsitz übernehmen. Der bisherige stellvertretende Aufsichtsratsvorsitzende Heiko Beeck rückt ebenfalls ehrenamtlich in den Vorstand auf. Das hauptamtliche Vorstandsmitglied Dr. Pröckl wurde in seinem Amt bestätigt. Er wurde wie die beiden anderen Vorstandsmitglieder für drei Jahre berufen, um Kontinuität in der Führungsetage zu schaffen. Herbert Becker von Fraport hat den Aufsichtsratsvorsitz übernommen. Das Gremium besteht nur noch aus sieben Personen, nachdem Volker Sparmann entgegen eines früheren Beschlusses nicht wieder aufgenommen wurde. 

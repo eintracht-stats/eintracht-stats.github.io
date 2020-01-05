@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Agostino soll für Tore sorgen
-subtitle: Personalsituation entspannt sich
+title: "Agostino soll für Tore sorgen"
+subtitle: "Personalsituation entspannt sich"
 ---
 
 Wie der Kicker berichtet, ist die Eintracht an der Verpflichtung von Paul Agostino von 1860 München interessiert. Der 28jährige soll nach der Absage von Nicolae Dica den Sturm beleben. Zudem soll ein Abwehrspieler verpflichtet werden.

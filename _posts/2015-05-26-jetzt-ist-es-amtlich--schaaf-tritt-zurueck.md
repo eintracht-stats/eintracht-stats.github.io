@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jetzt ist es amtlich- Schaaf tritt zurück!
+title: "Jetzt ist es amtlich: Schaaf tritt zurück!"
 
 ---
 

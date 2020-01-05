@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lexa geht nach Kaiserslautern
+title: "Lexa geht nach Kaiserslautern"
 
 ---
 

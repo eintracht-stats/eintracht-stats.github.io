@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bellaid geht nach Sedan
+title: "Bellaid geht nach Sedan"
 
 ---
 

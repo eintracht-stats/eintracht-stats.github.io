@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jung verlängert Vertrag!
+title: "Jung verlängert Vertrag!"
 
 ---
 

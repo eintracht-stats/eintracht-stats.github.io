@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ordonez geht, Rebic bleibt
+title: "Ordonez geht, Rebic bleibt"
 
 ---
 

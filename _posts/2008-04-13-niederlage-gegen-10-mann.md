@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen 10 Mann
+title: "Niederlage gegen 10 Mann"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kreuz vor Wechsel nach Aachen
-subtitle: Pröll wird bleiben
+title: "Kreuz vor Wechsel nach Aachen"
+subtitle: "Pröll wird bleiben"
 ---
 
 Nachdem Markus Kreuz die Freigabe für einen Wechsel erteilt wurde, hat der Linksfuß offenbar bereits einen neuen Verein gefunden: Er wird sich wohl Alemannia Aachen anschließen, dem Auftaktgegner der Eintracht. Allerdings müssen sich die beiden Vereine noch über die Ablösesumme einig werden. Friedhelm Funkel zu der Personalie: "Wenn er glaubt, den Konkurrenzkampf nicht annehmen zu können, ist es so besser."

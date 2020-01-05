@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gerüchte um Mascarell und Seferovic
+title: "Gerüchte um Mascarell und Seferovic"
 
 ---
 

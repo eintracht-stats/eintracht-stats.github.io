@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unglückliches Pokal-Aus in Aachen
+title: "Unglückliches Pokal-Aus in Aachen"
 
 ---
 

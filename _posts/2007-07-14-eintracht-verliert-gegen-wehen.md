@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Wehen
+title: "Eintracht verliert gegen Wehen"
 
 ---
 

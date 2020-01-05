@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht stellt finanzielle Weichen
+title: "Eintracht stellt finanzielle Weichen"
 
 ---
 

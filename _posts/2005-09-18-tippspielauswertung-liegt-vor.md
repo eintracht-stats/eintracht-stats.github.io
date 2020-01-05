@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel-Auswertung liegt vor
+title: "Tippspiel-Auswertung liegt vor"
 
 ---
 

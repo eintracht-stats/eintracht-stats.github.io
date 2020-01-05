@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht startet gegen Berlin
+title: "Eintracht startet gegen Berlin"
 
 ---
 

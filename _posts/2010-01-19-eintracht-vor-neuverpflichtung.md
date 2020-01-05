@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor Neuverpflichtung
+title: "Eintracht vor Neuverpflichtung"
 
 ---
 

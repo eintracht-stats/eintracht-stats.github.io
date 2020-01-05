@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hat Jones längst unterschrieben?
+title: "Hat Jones längst unterschrieben?"
 
 ---
 

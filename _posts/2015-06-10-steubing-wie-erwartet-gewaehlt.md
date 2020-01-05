@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Steubing wie erwartet gewählt
+title: "Steubing wie erwartet gewählt"
 
 ---
 

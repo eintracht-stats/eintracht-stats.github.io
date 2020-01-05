@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure haben Glück- Geldstrafe
+title: "Amateure haben Glück: Geldstrafe"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: e.V. mit Verlust
+title: "e.V. mit Verlust"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris wieder im Training
+title: "Chris wieder im Training"
 
 ---
 

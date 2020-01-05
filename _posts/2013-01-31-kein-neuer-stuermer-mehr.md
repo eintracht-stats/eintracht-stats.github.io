@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kein neuer Stürmer mehr
+title: "Kein neuer Stürmer mehr"
 
 ---
 

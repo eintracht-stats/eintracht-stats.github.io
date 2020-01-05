@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kickt in der Halle
+title: "Eintracht kickt in der Halle"
 
 ---
 

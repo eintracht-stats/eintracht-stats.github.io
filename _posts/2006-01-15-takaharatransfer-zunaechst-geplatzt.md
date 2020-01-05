@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Takahara-Transfer zunächst geplatzt
+title: "Takahara-Transfer zunächst geplatzt"
 
 ---
 

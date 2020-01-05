@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Frommer angeschlagen - Chris wieder fit
-subtitle: Keller macht Fortschritte
+title: "Frommer angeschlagen - Chris wieder fit"
+subtitle: "Keller macht Fortschritte"
 ---
 
 Chris hat seinen Muskelfaserriss überstanden und wird gegen Freiburg wohl spielen können. Ebenso wieder im Training ist Jean Tsoumou-Madza. Henning Bürger hat seine Angina auskuriert und wird wieder in den Kader rutschen. Ein Fragezeichen steht noch hinter dem Einsatz von Nico Frommer: Er hat sich einen leichten Muskelfaserriss zugezogen. Noch ist nicht klar, ob er bis Sonntag fit wird...

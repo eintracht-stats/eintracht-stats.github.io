@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem nächsten Endspiel
+title: "Eintracht vor dem nächsten Endspiel"
 
 ---
 

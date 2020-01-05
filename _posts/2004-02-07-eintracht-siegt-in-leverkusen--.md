@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht siegt in Leverkusen!!!
-subtitle: Hertzsch und Amanatidis treffen
+title: "Eintracht siegt in Leverkusen!!!"
+subtitle: "Hertzsch und Amanatidis treffen"
 ---
 
 Die Eintracht ist weiter im Rennen: Heute wurde in der BayArena Bayer Leverkusen mit 2:1 geschlagen. Dabei hätte das Spiel für die Eintracht, die in der gleichen Anfangsformation wie gegen Bayern begann, beinahe erneut katastrophal begonnen. Nach drei Minuten verschätzte sich Preuß bei einem langen Ball genauso wie vor einer Woche nach 40 Sekunden. Doch diesmal stand dort zum Glück Dimitar Berbatov, der ja nicht gerade als eiskalter Vollstrecker bekannt ist und setzte den Ball an den Innenpfosten...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure bleiben in Erfolgsspur
+title: "Amateure bleiben in Erfolgsspur"
 
 ---
 

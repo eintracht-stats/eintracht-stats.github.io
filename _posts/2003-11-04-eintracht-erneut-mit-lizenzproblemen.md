@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht erneut mit Lizenzproblemen?
-subtitle: Sparmann soll helfen
+title: "Eintracht erneut mit Lizenzproblemen?"
+subtitle: "Sparmann soll helfen"
 ---
 
 Die FNP widmet heute einen Artikel der bevorstehenden Rückkehr Volker Sparmanns in den Aufsichtsrat. Darin erklärt der frühere Eintracht-Vorstandschef, dass er zurückkommen werde, weil es "Probleme zu lösen gilt". Vorstand Heiko Beeck wird deutlicher: Lizenzprobleme seien nicht auszuschließen, wenn sich die Lage bis Januar nicht verbessere...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor ausverkauften Haus gegen Mainz
+title: "Eintracht vor ausverkauften Haus gegen Mainz"
 
 ---
 

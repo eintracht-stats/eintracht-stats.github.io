@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Fink interessiert
+title: "Eintracht an Fink interessiert"
 
 ---
 

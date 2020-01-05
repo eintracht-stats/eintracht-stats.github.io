@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verstärkt Bemühungen um Amanatidis
+title: "Eintracht verstärkt Bemühungen um Amanatidis"
 
 ---
 

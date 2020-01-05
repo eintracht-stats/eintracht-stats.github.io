@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei Neuzugänge bei eintracht-stats.de
+title: "Zwei Neuzugänge bei eintracht-stats.de"
 
 ---
 

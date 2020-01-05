@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verletzungen nach dem Nürnberg-Spiel
+title: "Verletzungen nach dem Nürnberg-Spiel"
 
 ---
 

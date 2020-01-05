@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlängert mit Routiniers
+title: "Eintracht verlängert mit Routiniers"
 
 ---
 

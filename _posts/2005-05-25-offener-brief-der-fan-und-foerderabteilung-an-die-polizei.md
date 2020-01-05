@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offener Brief der Fan- und Förderabteilung an die Polizei
+title: "Offener Brief der Fan- und Förderabteilung an die Polizei"
 
 ---
 

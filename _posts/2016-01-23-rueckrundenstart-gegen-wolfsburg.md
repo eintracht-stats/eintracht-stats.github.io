@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rückrundenstart gegen Wolfsburg
+title: "Rückrundenstart gegen Wolfsburg"
 
 ---
 

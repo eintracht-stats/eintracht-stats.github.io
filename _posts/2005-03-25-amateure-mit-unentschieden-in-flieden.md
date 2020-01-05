@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure mit Unentschieden in Flieden
+title: "Amateure mit Unentschieden in Flieden"
 
 ---
 

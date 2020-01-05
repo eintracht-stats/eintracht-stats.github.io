@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt in Wolfsburg
+title: "Eintracht siegt in Wolfsburg"
 
 ---
 

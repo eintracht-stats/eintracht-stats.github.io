@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt mit viel Glück
+title: "Eintracht gewinnt mit viel Glück"
 
 ---
 

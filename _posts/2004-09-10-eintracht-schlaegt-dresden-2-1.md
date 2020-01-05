@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Dresden 2-1
+title: "Eintracht schlägt Dresden 2:1"
 
 ---
 

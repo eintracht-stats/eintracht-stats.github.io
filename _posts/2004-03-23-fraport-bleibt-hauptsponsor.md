@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fraport bleibt Hauptsponsor
+title: "Fraport bleibt Hauptsponsor"
 
 ---
 

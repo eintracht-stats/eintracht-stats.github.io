@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor dem Rückrundenauftakt
+title: "Eintracht vor dem Rückrundenauftakt"
 
 ---
 

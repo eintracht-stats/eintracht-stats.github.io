@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Leichte Blessuren bei Eintracht-Spielern
-subtitle: Madza wohl wieder im Kader
+title: "Leichte Blessuren bei Eintracht-Spielern"
+subtitle: "Madza wohl wieder im Kader"
 ---
 
 Trotz der unerträglichen Hitze wird bei der Eintracht in vollem Umfang und zu den gewohnten Zeiten trainiert. Gestern fehlte Jurica Puljiz mit Muskelbeschwerden, Markus Pröll musste weiterhin wegen seiner Rückenprobleme pausieren. Sven Günther brach das Training aufgrund von Leistenbeschwerden ab.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippabgabe nur bis Donnerstag!!!
+title: "Tippabgabe nur bis Donnerstag!!!"
 
 ---
 

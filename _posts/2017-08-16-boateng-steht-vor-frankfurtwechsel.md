@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Boateng steht vor Frankfurt-Wechsel!
+title: "Boateng steht vor Frankfurt-Wechsel!"
 
 ---
 

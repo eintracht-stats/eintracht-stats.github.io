@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Spanien steht an
+title: "Trainingslager in Spanien steht an"
 
 ---
 

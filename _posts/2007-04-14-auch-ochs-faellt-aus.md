@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Ochs fällt aus
+title: "Auch Ochs fällt aus"
 
 ---
 

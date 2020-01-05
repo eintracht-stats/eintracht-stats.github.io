@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lazarett lichtet sich
+title: "Lazarett lichtet sich"
 
 ---
 

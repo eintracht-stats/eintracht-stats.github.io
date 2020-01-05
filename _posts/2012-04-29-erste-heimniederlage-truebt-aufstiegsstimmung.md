@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erste Heimniederlage trübt Aufstiegsstimmung
+title: "Erste Heimniederlage trübt Aufstiegsstimmung"
 
 ---
 

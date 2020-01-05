@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Linksverteidiger noch offen
+title: "Linksverteidiger noch offen"
 
 ---
 

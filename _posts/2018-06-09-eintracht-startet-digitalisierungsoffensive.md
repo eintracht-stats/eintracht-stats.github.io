@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht startet Digitalisierungsoffensive
+title: "Eintracht startet Digitalisierungsoffensive"
 
 ---
 

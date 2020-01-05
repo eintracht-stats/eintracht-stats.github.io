@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aufstieg zum Greifen nah
+title: "Aufstieg zum Greifen nah"
 
 ---
 

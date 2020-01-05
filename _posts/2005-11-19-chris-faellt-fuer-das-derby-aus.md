@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris fällt für das Derby aus
+title: "Chris fällt für das Derby aus"
 
 ---
 

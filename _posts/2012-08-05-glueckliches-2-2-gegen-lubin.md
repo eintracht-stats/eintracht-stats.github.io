@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Glückliches 2-2 gegen Lubin
+title: "Glückliches 2:2 gegen Lubin"
 
 ---
 

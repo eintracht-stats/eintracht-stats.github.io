@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dortmund ist Finalgegner
+title: "Dortmund ist Finalgegner"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amedick fällt aus
+title: "Amedick fällt aus"
 
 ---
 

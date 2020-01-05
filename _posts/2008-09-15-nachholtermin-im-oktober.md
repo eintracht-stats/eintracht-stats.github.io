@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nachholtermin im Oktober
+title: "Nachholtermin im Oktober"
 
 ---
 

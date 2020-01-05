@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reutershahn neuer Co-Trainer
+title: "Reutershahn neuer Co-Trainer"
 
 ---
 

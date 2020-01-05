@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalfinal-Tickets nur für Dauerkarteninhaber
+title: "Pokalfinal-Tickets nur für Dauerkarteninhaber"
 
 ---
 

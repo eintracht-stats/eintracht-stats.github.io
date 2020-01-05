@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt gegen Netanya
+title: "Eintracht siegt gegen Netanya"
 
 ---
 

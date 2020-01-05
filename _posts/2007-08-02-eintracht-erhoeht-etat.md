@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht erhöht Etat
+title: "Eintracht erhöht Etat"
 
 ---
 

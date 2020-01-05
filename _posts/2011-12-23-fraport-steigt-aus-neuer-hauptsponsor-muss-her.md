@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Fraport steigt aus - Neuer Hauptsponsor muss her
+title: "Fraport steigt aus - Neuer Hauptsponsor muss her"
 
 ---
 

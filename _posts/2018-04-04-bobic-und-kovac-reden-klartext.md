@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bobic und Kovac reden Klartext
+title: "Bobic und Kovac reden Klartext"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren Pokalspiel
+title: "Amateure verlieren Pokalspiel"
 
 ---
 

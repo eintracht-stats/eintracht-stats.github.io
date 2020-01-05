@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Mainz schlägt die Eintracht
+title: "Auch Mainz schlägt die Eintracht"
 
 ---
 

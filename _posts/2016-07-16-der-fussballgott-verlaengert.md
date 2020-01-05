@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Fußballgott verlängert!
+title: "Der Fußballgott verlängert!"
 
 ---
 

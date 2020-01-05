@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kommt noch ein Neuer?
+title: "Kommt noch ein Neuer?"
 
 ---
 

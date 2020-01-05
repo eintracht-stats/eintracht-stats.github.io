@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Verhandlung im Fall Chris terminiert
+title: "Verhandlung im Fall Chris terminiert"
 
 ---
 

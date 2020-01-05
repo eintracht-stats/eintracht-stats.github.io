@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht vor Verpflichtung von Rui Marques!?
-subtitle: Was passiert mit Cipi?
+title: "Eintracht vor Verpflichtung von Rui Marques!?"
+subtitle: "Was passiert mit Cipi?"
 ---
 
 Der Kicker berichtet in seiner heutigen Ausgabe, dass die Eintracht unmittelbar vor der Verpflichtung des portugiesischen Innenverteidigers Rui Marques vom VfB Stuttgart steht. Die Vertragsinhalte (auch für die 2. Liga) wurden offenbar schon ausgehandelt. Heute könnte ein Treffen zwischen dem Spieler, seinem Berater und dem Eintracht-Vorstand eine Entscheidung bringen.

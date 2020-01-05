@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unentschieden in Nürnberg
+title: "Unentschieden in Nürnberg"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spieltage 12-17 terminiert
+title: "Spieltage 12-17 terminiert"
 
 ---
 

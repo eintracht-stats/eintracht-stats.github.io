@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt in Erfurt
+title: "Eintracht spielt in Erfurt"
 
 ---
 

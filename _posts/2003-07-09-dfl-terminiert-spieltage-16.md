@@ -1,7 +1,7 @@
 ---
 layout: post
-title: DFL terminiert Spieltage 1-6
-subtitle: Erneut ein klarer Eintracht-Sieg
+title: "DFL terminiert Spieltage 1-6"
+subtitle: "Erneut ein klarer Eintracht-Sieg"
 ---
 
 Die DFL hat heute die genauen Termine für die Spieltage 1-6 festgelegt. Nach dem Saisoneröffnungsspiel bei den Bayern folgt das erste Heimspiel gegen Bayer Leverkusen, das sonntags ausgetragen wird. In Rostock und gegen Berlin spielt die Eintracht dann endlich wieder samstags um 15.30 Uhr, ehe zwei weitere Sonntagsspiele anstehen...

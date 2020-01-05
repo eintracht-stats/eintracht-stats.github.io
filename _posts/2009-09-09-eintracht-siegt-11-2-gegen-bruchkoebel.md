@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht siegt 11-2 gegen Bruchköbel
+title: "Eintracht siegt 11:2 gegen Bruchköbel"
 
 ---
 

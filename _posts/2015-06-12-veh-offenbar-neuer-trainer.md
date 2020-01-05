@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veh offenbar neuer Trainer
+title: "Veh offenbar neuer Trainer"
 
 ---
 

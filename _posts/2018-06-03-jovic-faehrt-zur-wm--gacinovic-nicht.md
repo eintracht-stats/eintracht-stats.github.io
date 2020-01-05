@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jovic fährt zur WM, Gacinovic nicht
+title: "Jovic fährt zur WM, Gacinovic nicht"
 
 ---
 

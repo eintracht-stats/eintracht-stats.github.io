@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schöpft neue Hoffnung
+title: "Eintracht schöpft neue Hoffnung"
 
 ---
 

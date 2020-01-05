@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Russ will Comeback im Januar
+title: "Russ will Comeback im Januar"
 
 ---
 

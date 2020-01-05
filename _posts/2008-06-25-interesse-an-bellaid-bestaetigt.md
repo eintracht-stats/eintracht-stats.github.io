@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interesse an Bellaid bestätigt
+title: "Interesse an Bellaid bestätigt"
 
 ---
 

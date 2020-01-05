@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht spielt in Illertissen
+title: "Eintracht spielt in Illertissen"
 
 ---
 

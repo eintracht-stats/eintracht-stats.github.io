@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mehr Alternativen für Funkel
+title: "Mehr Alternativen für Funkel"
 
 ---
 

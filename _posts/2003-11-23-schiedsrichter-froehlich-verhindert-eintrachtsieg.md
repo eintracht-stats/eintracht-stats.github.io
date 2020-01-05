@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schiedsrichter Fröhlich verhindert Eintracht-Sieg
-subtitle: Torwart-Fehler sorgt für Niederlage...
+title: "Schiedsrichter Fröhlich verhindert Eintracht-Sieg"
+subtitle: "Torwart-Fehler sorgt für Niederlage..."
 ---
 
 SC Freiburg besiegt Eintracht Frankfurt mit 1:0. So sind die nüchternen Fakten einer ereignisreichen Partie. Die ganze Dramatik, die in diesem Spiel steckt, lässt sich aber anhand dieses Ergebnisses kaum erahnen... Die Eintracht spielte ungewohnt offensiv: Mit Kreuz, Skela, Möller, Beierle und Cha standen 5 Offensivkräfte von Beginn an auf dem Feld.

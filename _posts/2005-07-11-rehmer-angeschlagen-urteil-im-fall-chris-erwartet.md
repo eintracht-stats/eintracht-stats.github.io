@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rehmer angeschlagen - Urteil im Fall Chris erwartet
+title: "Rehmer angeschlagen - Urteil im Fall Chris erwartet"
 
 ---
 

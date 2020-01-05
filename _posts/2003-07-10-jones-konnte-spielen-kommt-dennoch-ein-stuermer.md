@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Jones konnte spielen - Kommt dennoch ein Stürmer?
-subtitle: Probleme mit Cipis Berater(n)
+title: "Jones konnte spielen - Kommt dennoch ein Stürmer?"
+subtitle: "Probleme mit Cipis Berater(n)"
 ---
 
 Das gestrige Testspiel bewertete Willi Reimann als lockere Trainingseinheit, die dazu diente um im Spielrhythmus zu bleiben. Das Ergebnis ist dabei natürlich immer zweitrangig, aber die deutlichen Siege tun auch gegen schwächere Gegner ganz gut. Das Positivste am Spiel war aber sicherlich die Tatsache, dass Jermaine Jones eine Halbzeit schmerzfrei durchgehalten hat und sogar zwei Tore erzielte. Vielleicht klappt es mit seinem Fuß ja wirklich...

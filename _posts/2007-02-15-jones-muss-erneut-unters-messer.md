@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones muss erneut unters Messer!
+title: "Jones muss erneut unters Messer!"
 
 ---
 

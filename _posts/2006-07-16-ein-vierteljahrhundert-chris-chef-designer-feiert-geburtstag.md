@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ein Vierteljahrhundert Chris - Chef-Designer feiert Geburtstag
+title: "Ein Vierteljahrhundert Chris - Chef-Designer feiert Geburtstag"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2013!
+title: "eintracht-stats.de wünscht einen guten Rutsch ins Jahr 2013!"
 
 ---
 

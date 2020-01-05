@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt trauert um Erich Meier
+title: "Eintracht Frankfurt trauert um Erich Meier"
 
 ---
 

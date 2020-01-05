@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Reinhard fehlt gegen Bremen
+title: "Auch Reinhard fehlt gegen Bremen"
 
 ---
 

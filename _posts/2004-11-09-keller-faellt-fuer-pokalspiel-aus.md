@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Keller fällt für Pokalspiel aus
-subtitle: Eintracht droht ein Punktabzug
+title: "Keller fällt für Pokalspiel aus"
+subtitle: "Eintracht droht ein Punktabzug"
 ---
 
 Morgen steht der Pokalknaller gegen Schalke 04 auf dem Programm. Erneut fehlen wird Jens Keller, der wegen Nackenproblemen nicht trainieren kann. Mit dabei sein können allerdings die angeschlagenen Meier und Reinhard. Und Chris wird ebenfalls wieder mindestens im Kader stehen. Das waren dann aber auch schon die positiven Nachrichten...

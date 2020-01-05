@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler vor Comeback und Vertragsverlängerung?
+title: "Schwegler vor Comeback und Vertragsverlängerung?"
 
 ---
 

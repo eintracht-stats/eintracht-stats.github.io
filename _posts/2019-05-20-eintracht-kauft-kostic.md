@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kauft Kostic
+title: "Eintracht kauft Kostic"
 
 ---
 

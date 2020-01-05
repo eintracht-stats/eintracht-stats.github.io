@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht vergibt Sieg gegen Newcastle
-subtitle: Amanatidis verletzt sich
+title: "Eintracht vergibt Sieg gegen Newcastle"
+subtitle: "Amanatidis verletzt sich"
 ---
 
 Jetzt kommt's ganz dick: Nicht nur, dass die Eintracht gegen Newcastle drückend überlegen war und einfach ihre Chancen nicht nutzte. Nein, auch die Verletzung von Ioannis Amanatidis ist nicht gerade das, was wir brauchen. Bei ihm besteht der Verdacht auf einen Bänderriss im Knöchel...

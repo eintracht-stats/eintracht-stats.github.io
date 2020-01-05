@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg gegen Wetzlar
+title: "Klarer Sieg gegen Wetzlar"
 
 ---
 

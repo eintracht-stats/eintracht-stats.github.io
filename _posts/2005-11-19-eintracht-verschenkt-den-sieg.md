@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verschenkt den Sieg
+title: "Eintracht verschenkt den Sieg"
 
 ---
 

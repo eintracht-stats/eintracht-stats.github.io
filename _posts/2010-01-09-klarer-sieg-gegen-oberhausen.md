@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg gegen Oberhausen
+title: "Klarer Sieg gegen Oberhausen"
 
 ---
 

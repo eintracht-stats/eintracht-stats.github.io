@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veh bleibt noch ein Jahr!
+title: "Veh bleibt noch ein Jahr!"
 
 ---
 

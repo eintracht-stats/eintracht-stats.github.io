@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Drama um Jones geht weiter
+title: "Drama um Jones geht weiter"
 
 ---
 

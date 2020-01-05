@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mühevoller Sieg gegen Illertissen
+title: "Mühevoller Sieg gegen Illertissen"
 
 ---
 

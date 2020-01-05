@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sponsor Indeed verlängert Vertrag
+title: "Sponsor Indeed verlängert Vertrag"
 
 ---
 

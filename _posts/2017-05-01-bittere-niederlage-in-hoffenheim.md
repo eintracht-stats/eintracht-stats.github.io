@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bittere Niederlage in Hoffenheim
+title: "Bittere Niederlage in Hoffenheim"
 
 ---
 

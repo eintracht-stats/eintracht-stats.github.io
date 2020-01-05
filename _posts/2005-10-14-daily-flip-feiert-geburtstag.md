@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Daily Flip feiert Geburtstag
+title: "Daily Flip feiert Geburtstag"
 
 ---
 

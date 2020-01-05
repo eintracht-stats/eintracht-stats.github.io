@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis kommt sofort!
+title: "Amanatidis kommt sofort!"
 
 ---
 

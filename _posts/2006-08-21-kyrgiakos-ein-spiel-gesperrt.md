@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos ein Spiel gesperrt
+title: "Kyrgiakos ein Spiel gesperrt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Generalprobe geglückt
+title: "Generalprobe geglückt"
 
 ---
 

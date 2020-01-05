@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rode "Shootingstar der Hinrunde"
+title: "Rode Shootingstar der Hinrunde"
 
 ---
 

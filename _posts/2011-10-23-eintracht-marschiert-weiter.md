@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht marschiert weiter
+title: "Eintracht marschiert weiter"
 
 ---
 

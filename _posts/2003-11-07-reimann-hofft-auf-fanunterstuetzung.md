@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann hofft auf Fan-Unterstützung
-subtitle: Stürzt die Eintracht den Tabellenführer?
+title: "Reimann hofft auf Fan-Unterstützung"
+subtitle: "Stürzt die Eintracht den Tabellenführer?"
 ---
 
 Vor dem morgigen Heimspiel gegen Tabellenführer Stuttgart hofft Willi Reimann auf die Unterstützung der Fans. Gleichzeitig rief er diese zur Geduld auf. Die Eintracht sei krasser Außenseiter. Allerdings habe jeder Außenseiter auch eine Chance.

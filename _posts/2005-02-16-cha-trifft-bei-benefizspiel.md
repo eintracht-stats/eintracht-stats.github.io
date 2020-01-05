@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cha trifft bei Benefizspiel
+title: "Cha trifft bei Benefizspiel"
 
 ---
 

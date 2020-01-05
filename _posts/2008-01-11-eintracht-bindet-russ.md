@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bindet Russ
+title: "Eintracht bindet Russ"
 
 ---
 

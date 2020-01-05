@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sprunggelenksverletzung bei Bajramovic
+title: "Sprunggelenksverletzung bei Bajramovic"
 
 ---
 

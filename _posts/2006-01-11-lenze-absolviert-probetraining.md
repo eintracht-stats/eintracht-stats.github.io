@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lenze absolviert Probetraining
+title: "Lenze absolviert Probetraining"
 
 ---
 

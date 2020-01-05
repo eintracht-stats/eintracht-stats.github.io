@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Feier auf dem Römerberg
+title: "Feier auf dem Römerberg"
 
 ---
 

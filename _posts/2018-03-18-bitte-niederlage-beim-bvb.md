@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bitte Niederlage beim BVB
+title: "Bitte Niederlage beim BVB"
 
 ---
 

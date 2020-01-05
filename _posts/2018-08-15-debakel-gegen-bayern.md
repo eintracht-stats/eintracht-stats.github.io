@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Debakel gegen Bayern
+title: "Debakel gegen Bayern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Münchner C-Elf
+title: "Eintracht verliert gegen Münchner C-Elf"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht ohne Chance in München
+title: "Eintracht ohne Chance in München"
 
 ---
 

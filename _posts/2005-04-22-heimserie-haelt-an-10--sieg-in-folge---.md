@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heimserie hält an! 10. Sieg in Folge...
+title: "Heimserie hält an! 10. Sieg in Folge..."
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zieht alle Register- Traningslager bis Mittwoch
+title: "Eintracht zieht alle Register: Traningslager bis Mittwoch"
 
 ---
 

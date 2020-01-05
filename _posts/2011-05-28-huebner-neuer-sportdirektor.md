@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Hübner neuer Sportdirektor
-subtitle: Noch kein Trainer gefunden
+title: "Hübner neuer Sportdirektor"
+subtitle: "Noch kein Trainer gefunden"
 ---
 
 Heieiei, so zwischen Paris, Frankfurt und Mailand kommt ja ganz die Homepage zu kurz. Dabei passiert ja nach dem Abstieg endlich etwas in den offenen Personalfragen: Bereits Mitte der Woche hat die Eintracht einen Sportdirektor verpflichtet. Es ist Bruno Hübner vom Ligakonkurrenten MSV Duisburg. Er erhält einen Zweijahresvertrag plus Option auf ein weiteres Jahr. 

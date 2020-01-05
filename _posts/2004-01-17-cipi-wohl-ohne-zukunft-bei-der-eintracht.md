@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Cipi wohl ohne Zukunft bei der Eintracht
-subtitle: Mannschaft zeigt Verständnis für Suspendierung
+title: "Cipi wohl ohne Zukunft bei der Eintracht"
+subtitle: "Mannschaft zeigt Verständnis für Suspendierung"
 ---
 
 Heute geht es natürlich nochmal um den Ausraster von Geri Cipi. Jetzt sind nämlich Einzelheiten des gestrigen Vorfalls bekannt: Nach einem Foul von Uwe Bindewald waren die beiden zunächst verbal aneinander geraten. Eine Minute später sprang Cipi mit gestreckten Beinen in Uwe Bindewald hinein. Dieser trug eine Schramme am Schienbein davon. Wenn er sein Bein allerdings nicht weggezogen hätte, wäre wohl noch weitaus Schlimmeres passiert...

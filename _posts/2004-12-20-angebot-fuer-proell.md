@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Angebot für Pröll
-subtitle: Defensivmann gesucht - Chris in Brasilien
+title: "Angebot für Pröll"
+subtitle: "Defensivmann gesucht - Chris in Brasilien"
 ---
 
 Die Eintracht hat Markus Pröll ein Angebot für die Verlängerung seines auslaufenden Vertrags um zwei Jahre gemacht. Aufgrund der guten Leistungen des Keepers sollen seine Bezüge aufgestockt werden. Pröll erklärte allerdings, dass die Eintracht zwar sein erster Ansprechpartner sei, ihm aber auch Angebote aus der 1. Liga vorlägen. Hoffentlich findet man eine Einigung...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heikkinen zu teuer?
+title: "Heikkinen zu teuer?"
 
 ---
 

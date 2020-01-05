@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht verlängert mit Keller
-subtitle: Pröll kommt nun wohl doch
+title: "Eintracht verlängert mit Keller"
+subtitle: "Pröll kommt nun wohl doch"
 ---
 
 Die Verpflichtung des Bremers Mike Barten hängt nur noch vom Ergebnis der sportmedizinischen Untersuchung ab. Diese hat gestern übrigens auch Jurica Puljiz absolviert. Wenn sich kein negativer Befund ergibt, werden beide ihre Verträge in Kürze unterschreiben. Sicher ist nun auch der Verbleib unseres Kapitäns Jens Keller.

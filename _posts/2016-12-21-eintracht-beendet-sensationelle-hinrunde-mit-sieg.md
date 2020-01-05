@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht beendet sensationelle Hinrunde mit Sieg
+title: "Eintracht beendet sensationelle Hinrunde mit Sieg"
 
 ---
 

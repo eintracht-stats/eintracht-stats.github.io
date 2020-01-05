@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Keine Spielgenehmigung für Cha
+title: "Keine Spielgenehmigung für Cha"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Weiterhin einige Verletzte im Kader
+title: "Weiterhin einige Verletzte im Kader"
 
 ---
 

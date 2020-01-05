@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kyrgiakos nach Spanien?
+title: "Kyrgiakos nach Spanien?"
 
 ---
 

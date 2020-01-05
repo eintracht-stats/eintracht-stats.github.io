@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U 15 ist süddeutscher Meister
+title: "U 15 ist süddeutscher Meister"
 
 ---
 

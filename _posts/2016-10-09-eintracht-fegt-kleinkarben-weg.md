@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht fegt Klein-Karben weg
+title: "Eintracht fegt Klein-Karben weg"
 
 ---
 

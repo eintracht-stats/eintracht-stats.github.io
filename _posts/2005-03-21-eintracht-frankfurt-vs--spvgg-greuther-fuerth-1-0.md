@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht Frankfurt vs. SpVgg Greuther Fürth 1-0
+title: "Eintracht Frankfurt vs. SpVgg Greuther Fürth 1:0"
 
 ---
 

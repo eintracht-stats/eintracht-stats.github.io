@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verlässt Trainingslager
+title: "Eintracht verlässt Trainingslager"
 
 ---
 

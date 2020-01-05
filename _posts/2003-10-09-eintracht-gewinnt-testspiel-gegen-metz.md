@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Testspiel gegen Metz
+title: "Eintracht gewinnt Testspiel gegen Metz"
 
 ---
 

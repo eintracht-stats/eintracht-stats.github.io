@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher trainiert wieder
+title: "Spycher trainiert wieder"
 
 ---
 

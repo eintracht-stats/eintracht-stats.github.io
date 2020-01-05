@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Noch keine Transfers - aber jede Menge Gerüchte...
+title: "Noch keine Transfers - aber jede Menge Gerüchte..."
 
 ---
 

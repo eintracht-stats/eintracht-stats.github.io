@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Delegation auf dem Weg nach Vietnam
+title: "Eintracht-Delegation auf dem Weg nach Vietnam"
 
 ---
 

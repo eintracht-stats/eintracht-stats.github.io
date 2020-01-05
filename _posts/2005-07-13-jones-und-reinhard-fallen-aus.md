@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones und Reinhard fallen aus
+title: "Jones und Reinhard fallen aus"
 
 ---
 

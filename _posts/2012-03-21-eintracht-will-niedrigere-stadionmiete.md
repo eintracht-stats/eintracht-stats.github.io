@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht will niedrigere Stadionmiete
+title: "Eintracht will niedrigere Stadionmiete"
 
 ---
 

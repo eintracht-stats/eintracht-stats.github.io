@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung im ZDF- Eintracht empfängt Nürnberg
+title: "Pokalauslosung im ZDF: Eintracht empfängt Nürnberg"
 
 ---
 

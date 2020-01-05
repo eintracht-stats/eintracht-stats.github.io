@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im Halbfinale
+title: "Eintracht im Halbfinale"
 
 ---
 

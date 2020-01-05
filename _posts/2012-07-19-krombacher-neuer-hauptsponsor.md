@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Krombacher neuer Hauptsponsor
+title: "Krombacher neuer Hauptsponsor"
 
 ---
 

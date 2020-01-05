@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vor dem Endspiel- Skela ist angeschlagen...
+title: "Vor dem Endspiel: Skela ist angeschlagen..."
 
 ---
 

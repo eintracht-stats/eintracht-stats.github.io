@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris ist angeschlagen - Wiedener ersetzt wohl Bürger
+title: "Chris ist angeschlagen - Wiedener ersetzt wohl Bürger"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht holt Nascimento!
-subtitle: Jones geht nach Leverkusen
+title: "Eintracht holt Nascimento!"
+subtitle: "Jones geht nach Leverkusen"
 ---
 
 Das Personalkarussell bei der Eintracht dreht sich weiter: Heute hat die Eintracht Vivaldo Nascimento vom FC St. Pauli verpflichtet. Zunächst wurde der Brasilianer für ein halbes Jahr ausgeliehen, wofür die Eintracht 100.000 Euro zahlen muss. Im Sommer hat die Eintracht die Option, den Vertrag bis 2007 zu verlängern. Dann wird allerdings eine Ablösesumme an St. Pauli fällig. Mit diesem Transfer hat die Eintracht ihre Aktivitäten auf dem Transfermarkt nach eigener Aussage eingestellt, so dass nun der Kader für die Rückrunde steht.

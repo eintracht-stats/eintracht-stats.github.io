@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sieg im letzten Testspiel
+title: "Sieg im letzten Testspiel"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-SC Freiburg 3-0
+title: "Eintracht-SC Freiburg 3:0"
 
 ---
 

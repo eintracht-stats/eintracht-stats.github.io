@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Startrekord für die Eintracht!
+title: "Startrekord für die Eintracht!"
 
 ---
 

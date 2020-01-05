@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klassenerhalt geschafft - wie geht's jetzt weiter?
+title: "Klassenerhalt geschafft - wie geht's jetzt weiter?"
 
 ---
 

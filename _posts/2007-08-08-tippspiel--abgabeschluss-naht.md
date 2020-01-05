@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippspiel- Abgabeschluss naht!
+title: "Tippspiel: Abgabeschluss naht!"
 
 ---
 

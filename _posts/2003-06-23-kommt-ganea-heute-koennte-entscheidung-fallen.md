@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kommt Ganea?  - Heute könnte Entscheidung fallen
-subtitle: Gremien wollen Streit beenden
+title: "Kommt Ganea?  - Heute könnte Entscheidung fallen"
+subtitle: "Gremien wollen Streit beenden"
 ---
 
 Fast täglich fallen neue Namen, wenn es um die Verstärkung der Mannschaft geht: Der Kicker berichtet heute, dass die Eintracht Interesse am Slowaken Marian Zeman hat. Zuletzt spielte der Verteidiger bei Vitesse Arnheim und wäre jetzt ablösefrei zu haben. Ein weiterer Kandidat bleibt der Albaner Geri Cipi.

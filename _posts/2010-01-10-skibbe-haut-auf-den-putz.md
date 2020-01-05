@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Skibbe haut auf den Putz
+title: "Skibbe haut auf den Putz"
 
 ---
 

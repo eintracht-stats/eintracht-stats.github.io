@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht startet in Bremen
+title: "Eintracht startet in Bremen"
 
 ---
 

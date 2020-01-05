@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainerentscheidung fällt wahrscheinlich am Wochenende
+title: "Trainerentscheidung fällt wahrscheinlich am Wochenende"
 
 ---
 

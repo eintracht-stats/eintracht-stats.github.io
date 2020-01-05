@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Möller nimmt auf der Bank Platz
-subtitle: Skela angeschlagen
+title: "Möller nimmt auf der Bank Platz"
+subtitle: "Skela angeschlagen"
 ---
 
 Andreas Möller wird am Sonntag in Mönchengladbach aller Voraussicht nach zunächst auf der Bank sitzen. Willi Reimann erklärte, dass er nur hundertprozentig fitte Spieler einsetzen werde. "Er sitzt auf der Bank, denn es kann nicht sein, dass er spielt, obwohl er nicht ganz fit ist und Markus Kreuz, der absolut topfit ist, draußen bleibt", so der Trainer weiter. Er dürfte aber gute Chancen auf eine Einwechslung haben, nehme ich mal an... 

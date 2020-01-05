@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Weiter Wirbel um Skela
-subtitle: DFL prüft die Unterlagen
+title: "Weiter Wirbel um Skela"
+subtitle: "DFL prüft die Unterlagen"
 ---
 
 Ervin Skela ist bemüht die Diskussionen um das Ende seiner Zusammenarbeit mit Klaus Gerster zu ersticken. Für ihn sei die Sache abgeschlossen. Zudem erklärte der Albaner, dass er den Kopf frei habe und der Mannschaft im Abstiegskampf helfen wolle. Nichtsdestotrotz scheint es unwahrscheinlich, dass Skela seinen Vertrag bei der Eintracht verlängert...

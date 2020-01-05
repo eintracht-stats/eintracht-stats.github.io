@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht im freien Fall- 0:2 gegen Stuttgart
+title: "Eintracht im freien Fall: 0:2 gegen Stuttgart"
 
 ---
 

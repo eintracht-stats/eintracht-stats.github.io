@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knapper Sieg gegen Braunschweig
+title: "Knapper Sieg gegen Braunschweig"
 
 ---
 

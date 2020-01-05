@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht tritt in Dortmund an
+title: "Eintracht tritt in Dortmund an"
 
 ---
 

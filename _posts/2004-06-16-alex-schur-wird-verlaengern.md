@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Alex Schur wird verlängern!
+title: "Alex Schur wird verlängern!"
 
 ---
 

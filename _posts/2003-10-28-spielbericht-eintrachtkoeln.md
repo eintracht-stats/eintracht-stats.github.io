@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Spielbericht Eintracht-Köln
-subtitle: Bindewald fällt mit Zehenverletzung aus
+title: "Spielbericht Eintracht-Köln"
+subtitle: "Bindewald fällt mit Zehenverletzung aus"
 ---
 
 Nach dem ersten Heimsieg ist die Erleichterung bei der Eintracht natürlich groß. Das 2:0 gegen Köln war allerdings ein hartes Stück Arbeit - und das Spiel hätte auch anders herum ausgehen können... In der ersten Halbzeit waren die Gäste nämlich torgefährlicher. Die beste Chance hatte Ebbers, der frei vor dem Tor auftauchte. Nikolov hielt seinen Schuss aber glänzend.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Bremen 1-0!
+title: "Eintracht schlägt Bremen 1:0!"
 
 ---
 

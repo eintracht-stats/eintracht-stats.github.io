@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Reimann tritt vom Manager-Posten ab
-subtitle: Schuster von DSF-Auftritt abgehalten
+title: "Reimann tritt vom Manager-Posten ab"
+subtitle: "Schuster von DSF-Auftritt abgehalten"
 ---
 
 Willi Reimann erklärte nach dem Spiel gegen Hertha BSC Berlin, dass er nach der Schließung der Transferliste am 31. August nicht mehr für die Managertätigkeit zur Verfügung stehe. "Ich bin das Gesabbel und Gerede leid. Dann sollen sie mir einen hinsetzen, und ich sehe mir das ganze Theater an."

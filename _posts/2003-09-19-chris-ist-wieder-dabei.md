@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Chris ist wieder dabei
-subtitle: Jones wieder bei den Amateuren
+title: "Chris ist wieder dabei"
+subtitle: "Jones wieder bei den Amateuren"
 ---
 
 Chris konnte gestern erstmals nach seiner Verletzung das komplette Trainingsprogramm absolvieren. Gegen Kaiserslautern kommt ein Einsatz dennoch nicht in Frage. Damit wird wie schon erwähnt wohl die gleiche Mannschaft auflaufen, die in Mönchengladbach die ersten drei Punkte eingefahren hat.

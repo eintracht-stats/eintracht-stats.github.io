@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cha ist angeschlagen
+title: "Cha ist angeschlagen"
 
 ---
 

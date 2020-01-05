@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2-2 gegen Köln - Chris fliegt vom Platz
+title: "2:2 gegen Köln - Chris fliegt vom Platz"
 
 ---
 

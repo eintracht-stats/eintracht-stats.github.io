@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verspielt Platz 7
+title: "Eintracht verspielt Platz 7"
 
 ---
 

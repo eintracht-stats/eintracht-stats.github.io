@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht reist zum Tabellenführer
+title: "Eintracht reist zum Tabellenführer"
 
 ---
 

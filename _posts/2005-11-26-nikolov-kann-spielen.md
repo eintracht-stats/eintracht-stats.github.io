@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nikolov kann spielen
+title: "Nikolov kann spielen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Vier Spiele Sperre für Skela!
+title: "Vier Spiele Sperre für Skela!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht fährt ins Trainingslager
+title: "Eintracht fährt ins Trainingslager"
 
 ---
 

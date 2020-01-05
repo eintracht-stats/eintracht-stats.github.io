@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gala-Auftritt gegen die Bayern
+title: "Gala-Auftritt gegen die Bayern"
 
 ---
 

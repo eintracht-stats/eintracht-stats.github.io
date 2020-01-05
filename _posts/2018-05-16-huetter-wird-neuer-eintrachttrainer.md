@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hütter wird neuer Eintracht-Trainer
+title: "Hütter wird neuer Eintracht-Trainer"
 
 ---
 

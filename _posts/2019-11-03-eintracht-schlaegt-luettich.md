@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Lüttich
+title: "Eintracht schlägt Lüttich"
 
 ---
 

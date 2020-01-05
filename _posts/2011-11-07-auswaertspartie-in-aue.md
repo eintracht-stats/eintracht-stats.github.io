@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auswärtspartie in Aue
+title: "Auswärtspartie in Aue"
 
 ---
 

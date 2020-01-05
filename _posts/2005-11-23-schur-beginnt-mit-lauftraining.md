@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schur beginnt mit Lauftraining
+title: "Schur beginnt mit Lauftraining"
 
 ---
 

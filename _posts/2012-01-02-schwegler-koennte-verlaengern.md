@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler könnte verlängern
+title: "Schwegler könnte verlängern"
 
 ---
 

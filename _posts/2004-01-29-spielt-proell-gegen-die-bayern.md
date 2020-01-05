@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Spielt Pröll gegen die Bayern?
-subtitle: Nascimento bereits im Kader
+title: "Spielt Pröll gegen die Bayern?"
+subtitle: "Nascimento bereits im Kader"
 ---
 
 Markus Pröll hat gute Chancen, gegen Bayern München im Tor zu stehen. Oka Nikolov hatte wegen einer Wadenverletzung in der Vorbereitung einige Zeit pausieren müssen, so dass Pröll sämtliche Testspiele bestritt. Und jetzt bescheinigte Willi Reimann dem Keeper auch öffentlich, einen guten Eindruck hinterlassen zu haben. Samstag werden wir es sehen...

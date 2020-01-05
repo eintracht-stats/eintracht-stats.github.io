@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Aufsichtsratswahlen bei der Eintracht
+title: "Aufsichtsratswahlen bei der Eintracht"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet gegen Bern- 0:0
+title: "Eintracht testet gegen Bern: 0:0"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kein Ausverkauf der Spieler
+title: "Kein Ausverkauf der Spieler"
 
 ---
 

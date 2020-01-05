@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kreuz spielt von Beginn an
-subtitle: Eintracht entschuldigt sich bei Hölzenbein!
+title: "Kreuz spielt von Beginn an"
+subtitle: "Eintracht entschuldigt sich bei Hölzenbein!"
 ---
 
 Markus Kreuz wird aller Voraussicht nach in Mönchengladbach erstmals in der Anfangsformation stehen und zusammen mit Ervin Skela das Spiel nach vorne antreiben. Der Albaner kann trotz seiner Sehnenreizung im Oberschenkel wohl spielen. Nur Lauftraining absolvieren konnte gestern Jurica Puljiz, nachdem er sich das Knie verdreht hatte. Er wäre aber ohnehin nicht erste Wahl gewesen.

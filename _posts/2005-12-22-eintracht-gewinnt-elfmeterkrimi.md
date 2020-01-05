@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht gewinnt Elfmeter-Krimi
-subtitle: 1860 München ist Viertelfinalgegner
+title: "Eintracht gewinnt Elfmeter-Krimi"
+subtitle: "1860 München ist Viertelfinalgegner"
 ---
 
 Nach einem nicht hochklassigen, aber immens nervenaufreibenden Spiel hat sich die Eintracht für das Viertelfinale im DFB-Pokal qualifiziert. Gegen den 1. FC Nürnberg setzte sich die Mannschaft erst im Elfmeterschießen durch.Francisco Copado hatte die Eintracht, die in der ersten Halbzeit deutlich überlegen war, in der 36. Minute mit einem Elfmeter in Führung gebracht. Dem Strafstoß voraus ging ein klares Foul am Spanier.

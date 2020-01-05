@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Köhler fehlt zwei Spiele
-subtitle: Interesse an Schröder?
+title: "Köhler fehlt zwei Spiele"
+subtitle: "Interesse an Schröder?"
 ---
 
 Benjamin Köhler ist vom DFB wegen seiner roten Karte für zwei Spiele gesperrt worden. Das entspricht der Mindeststrafe in solchen Fällen. Köhler fehlt damit gegen Mainz und in Stuttgart.

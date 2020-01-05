@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht holt Bellaid
+title: "Eintracht holt Bellaid"
 
 ---
 

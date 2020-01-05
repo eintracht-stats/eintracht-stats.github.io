@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Köhler geht nach Kaiserslautern
+title: "Köhler geht nach Kaiserslautern"
 
 ---
 

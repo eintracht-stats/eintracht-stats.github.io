@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Inui vor dem Absprung
+title: "Inui vor dem Absprung"
 
 ---
 

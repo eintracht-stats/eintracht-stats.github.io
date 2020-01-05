@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Teilerfolg für die Amateure
+title: "Teilerfolg für die Amateure"
 
 ---
 

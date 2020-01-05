@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schur vor Comeback
-subtitle: Haching fordert Schadenersatz
+title: "Schur vor Comeback"
+subtitle: "Haching fordert Schadenersatz"
 ---
 
 Sofern es nicht erneut zu einer Spielabsage kommt, wird Alexander Schur am Sonntag im Oberligaspiel gegen Klein-Karben sein Comeback geben. Knapp ein Jahr nach seinem Kreuzbandriss will Schur noch einmal alles geben um in seiner wahrscheinlich letzten Saison als Profi noch einmal in der Bundesliga aufzulaufen. Einen ersten Schritt könnte er jetzt machen...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hertha-Eintracht- Der Spielbericht
+title: "Hertha-Eintracht: Der Spielbericht"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht steht im Achtelfinale
-subtitle: Sieg nach Verlängerung gegen Fürth
+title: "Eintracht steht im Achtelfinale"
+subtitle: "Sieg nach Verlängerung gegen Fürth"
 ---
 
 Die Eintracht hat es geschafft: Bei strömendem Regen besiegte die Mannschaft die SpVgg Greuther Fürth in der 2. Runde des DFB-Pokals mit 4:2 nach Verlängerung. Damit steht die Eintracht im Achtelfinale, welches 300.000 Euro an Zusatzeinnahmen garantiert. Der nächste Gegner wird in der Auslosung am kommenden Sonntag ermittelt.

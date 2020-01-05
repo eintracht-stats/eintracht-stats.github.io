@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Geldstrafe für Hübner
+title: "Geldstrafe für Hübner"
 
 ---
 

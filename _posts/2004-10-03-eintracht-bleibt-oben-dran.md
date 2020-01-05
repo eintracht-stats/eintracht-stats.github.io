@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht bleibt oben dran
+title: "Eintracht bleibt oben dran"
 
 ---
 

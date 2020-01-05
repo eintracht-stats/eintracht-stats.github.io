@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klatsche in Gladbach
+title: "Klatsche in Gladbach"
 
 ---
 

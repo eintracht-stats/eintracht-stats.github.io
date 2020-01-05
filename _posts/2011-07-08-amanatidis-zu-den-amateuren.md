@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis zu den Amateuren
+title: "Amanatidis zu den Amateuren"
 
 ---
 

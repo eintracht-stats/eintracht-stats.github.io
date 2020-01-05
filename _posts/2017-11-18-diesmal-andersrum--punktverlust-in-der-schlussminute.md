@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Diesmal andersrum- Punktverlust in der Schlussminute
+title: "Diesmal andersrum: Punktverlust in der Schlussminute"
 
 ---
 

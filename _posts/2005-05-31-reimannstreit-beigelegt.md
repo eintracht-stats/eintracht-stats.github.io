@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reimann-Streit beigelegt
+title: "Reimann-Streit beigelegt"
 
 ---
 

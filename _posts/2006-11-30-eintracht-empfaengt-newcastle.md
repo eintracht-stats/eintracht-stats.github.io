@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Newcastle
+title: "Eintracht empfängt Newcastle"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tarashai letzter Neuzugang
+title: "Tarashai letzter Neuzugang"
 
 ---
 

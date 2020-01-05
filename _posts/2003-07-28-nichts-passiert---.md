@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nichts passiert...
+title: "Nichts passiert..."
 
 ---
 

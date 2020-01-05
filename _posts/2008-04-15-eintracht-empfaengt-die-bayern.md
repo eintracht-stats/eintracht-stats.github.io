@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt die Bayern
+title: "Eintracht empfängt die Bayern"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Das Ende der Büffelherde - auch Rebic geht
+title: "Das Ende der Büffelherde - auch Rebic geht"
 
 ---
 

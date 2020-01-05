@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Stunde der Wahrheit- Bielefeld zu Gast
+title: "Die Stunde der Wahrheit: Bielefeld zu Gast"
 
 ---
 

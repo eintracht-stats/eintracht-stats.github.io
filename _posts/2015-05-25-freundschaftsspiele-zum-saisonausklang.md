@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Freundschaftsspiele zum Saisonausklang
+title: "Freundschaftsspiele zum Saisonausklang"
 
 ---
 

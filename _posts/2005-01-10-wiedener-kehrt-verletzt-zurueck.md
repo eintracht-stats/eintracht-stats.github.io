@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wiedener kehrt verletzt zurück
-subtitle: Wohl keine weitere Verstärkung im Winter
+title: "Wiedener kehrt verletzt zurück"
+subtitle: "Wohl keine weitere Verstärkung im Winter"
 ---
 
 So langsam gibt es endlich wieder mal einiges von der Eintracht zu berichten. Das Negative zuerst: Andree Wiedener musste das Trainingslager in Portugal frühzeitig verlassen. Er zog sich eine Sprunggelenksverletzung zu, die heute in Frankfurt genauer untersucht werden soll. Da trifft es sich natürlich gut, dass Aleksandar Vasoski auf Wiedeners Position hinten links einen guten Einstand gegeben hat...

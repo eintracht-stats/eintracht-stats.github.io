@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwegler droht auszufallen
+title: "Schwegler droht auszufallen"
 
 ---
 

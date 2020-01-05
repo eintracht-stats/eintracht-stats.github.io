@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht punktet in Hannover
-subtitle: Klassenerhalt rückt näher
+title: "Eintracht punktet in Hannover"
+subtitle: "Klassenerhalt rückt näher"
 ---
 
 Mit einer starken Leistung verdiente sich die Eintracht heute einen Punkt in Hannover. Trotz eines frühen Rückstands durch Bruggink (9.) war die Eintracht in Hälfte eins die bessere Mannschaft. Noch vor dem Seitenwechsel gelang demnach auch der Ausgleich durch Korkmaz (42.). 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainingslager in Abu Dhabi
+title: "Trainingslager in Abu Dhabi"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht schlägt Wigan
+title: "Eintracht schlägt Wigan"
 
 ---
 

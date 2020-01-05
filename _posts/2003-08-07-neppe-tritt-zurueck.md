@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Neppe tritt zurück!
-subtitle: Übernimmt Bruchhagen den Vorstandsvorsitz?
+title: "Neppe tritt zurück!"
+subtitle: "Übernimmt Bruchhagen den Vorstandsvorsitz?"
 ---
 
 Aufsichtsratsvorsitzender Jürgen Neppe ist heute von seinem Amt zurückgetreten. Grund seien unterschiedliche Auffassungen innerhalb des Aufsichtsrates über die Zukunft der Eintracht. Er habe für seine Ziele keine Mehrheit gefunden, weshalb es auch im Sinne der Eintracht sei Konsequenzen zu ziehen. Heute um 17 Uhr gibt der scheidende Aufsichtsrat eine Pressekonferenz...

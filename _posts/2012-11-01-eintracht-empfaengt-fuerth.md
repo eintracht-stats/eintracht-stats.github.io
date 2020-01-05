@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Fürth
+title: "Eintracht empfängt Fürth"
 
 ---
 

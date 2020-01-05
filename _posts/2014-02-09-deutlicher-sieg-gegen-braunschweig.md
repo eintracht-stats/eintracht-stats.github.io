@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Deutlicher Sieg gegen Braunschweig
+title: "Deutlicher Sieg gegen Braunschweig"
 
 ---
 

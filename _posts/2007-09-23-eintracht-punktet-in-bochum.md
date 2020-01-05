@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht punktet in Bochum
+title: "Eintracht punktet in Bochum"
 
 ---
 

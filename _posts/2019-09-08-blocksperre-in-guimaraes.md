@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blocksperre in Guimaraes?
+title: "Blocksperre in Guimaraes?"
 
 ---
 

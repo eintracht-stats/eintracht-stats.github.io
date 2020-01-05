@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Es ist vollbracht! Sieg gegen Augsburg
+title: "Es ist vollbracht! Sieg gegen Augsburg"
 
 ---
 

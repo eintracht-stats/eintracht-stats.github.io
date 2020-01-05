@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen im DFL-Vorstand
+title: "Bruchhagen im DFL-Vorstand"
 
 ---
 

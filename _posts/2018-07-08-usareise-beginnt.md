@@ -1,6 +1,6 @@
 ---
 layout: post
-title: USA-Reise beginnt
+title: "USA-Reise beginnt"
 
 ---
 

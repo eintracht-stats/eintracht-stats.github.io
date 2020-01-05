@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure schlagen Bernbach
+title: "Amateure schlagen Bernbach"
 
 ---
 

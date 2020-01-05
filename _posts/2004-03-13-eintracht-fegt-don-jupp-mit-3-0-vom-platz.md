@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht fegt Don Jupp mit 3-0 vom Platz
-subtitle: Amanatidis, Skela und Schur treffen
+title: "Eintracht fegt Don Jupp mit 3:0 vom Platz"
+subtitle: "Amanatidis, Skela und Schur treffen"
 ---
 
 Vor rund 35.000 Zuschauern im ausverkauften Waldstadion sorgte Amanatidis in der 57. Spielminute für die hochverdiente 1:0 Führung der Eintracht. Nach einem schönen Solo von Christoph Preuß konnte der Gästekeeper Ünlü den Schuss des Frankfurter-Mittelfeldspielers nur abklatschen lassen. Unser Grieche war zu Stelle und konnte locker zu seinem 5. Saisontreffer einschieben...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Deutschland trifft auf Schweden
+title: "Deutschland trifft auf Schweden"
 
 ---
 

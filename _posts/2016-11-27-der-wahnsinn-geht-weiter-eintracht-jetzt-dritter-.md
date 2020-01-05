@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Der Wahnsinn geht weiter! Eintracht jetzt Dritter!
+title: "Der Wahnsinn geht weiter! Eintracht jetzt Dritter!"
 
 ---
 

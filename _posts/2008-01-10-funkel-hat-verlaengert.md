@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel hat verlängert
+title: "Funkel hat verlängert"
 
 ---
 

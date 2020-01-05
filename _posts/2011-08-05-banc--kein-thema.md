@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bancé kein Thema
+title: "Bancé kein Thema"
 
 ---
 

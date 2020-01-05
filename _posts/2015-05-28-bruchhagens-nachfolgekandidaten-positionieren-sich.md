@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagens Nachfolge-Kandidaten positionieren sich
+title: "Bruchhagens Nachfolge-Kandidaten positionieren sich"
 
 ---
 

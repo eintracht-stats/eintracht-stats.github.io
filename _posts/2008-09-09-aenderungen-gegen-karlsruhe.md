@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Änderungen gegen Karlsruhe
+title: "Änderungen gegen Karlsruhe"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heute Pilgerreise nach Bordeaux
+title: "Heute Pilgerreise nach Bordeaux"
 
 ---
 

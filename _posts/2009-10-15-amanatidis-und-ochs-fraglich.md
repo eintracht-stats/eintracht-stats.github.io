@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis und Ochs fraglich
+title: "Amanatidis und Ochs fraglich"
 
 ---
 

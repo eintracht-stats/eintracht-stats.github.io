@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U23 schlägt Wörsdorf
+title: "U23 schlägt Wörsdorf"
 
 ---
 

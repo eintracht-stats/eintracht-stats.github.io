@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Überraschende Wende- Chris bleibt bei der Eintracht!
+title: "Überraschende Wende: Chris bleibt bei der Eintracht!"
 
 ---
 

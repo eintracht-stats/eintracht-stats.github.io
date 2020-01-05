@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll vor Comeback
+title: "Pröll vor Comeback"
 
 ---
 

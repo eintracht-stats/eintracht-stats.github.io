@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht Frankfurt verliert unglücklich
-subtitle: Mit Roter Laterne in die Winterpause
+title: "Eintracht Frankfurt verliert unglücklich"
+subtitle: "Mit Roter Laterne in die Winterpause"
 ---
 
 Mit einer unglücklichen 2:3-Niederlage gegen den Hamburger SV verabschiedet sich die Eintracht in die Winterpause. Durch den gleichzeitigen Sieg des 1. FC Köln über Hertha BSC rutscht die Eintracht auf den letzten Tabellenplatz...

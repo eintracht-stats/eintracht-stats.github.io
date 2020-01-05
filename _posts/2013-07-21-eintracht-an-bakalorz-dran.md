@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Bakalorz dran
+title: "Eintracht an Bakalorz dran"
 
 ---
 

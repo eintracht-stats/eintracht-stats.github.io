@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Funkel will noch zwei Spieler
+title: "Funkel will noch zwei Spieler"
 
 ---
 

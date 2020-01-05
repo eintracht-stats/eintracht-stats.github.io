@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Schur noch ohne neuen Vertrag
-subtitle: Keller vor Rückkehr ins Training
+title: "Schur noch ohne neuen Vertrag"
+subtitle: "Keller vor Rückkehr ins Training"
 ---
 
 Auch heute gibt es kaum Neuigkeiten zur Eintracht, was mich sogar dazu bewogen hat, ausnahmsweise mal eine Bild-Zeitung zu kaufen. Aber auch dort steht nicht wirklich viel: Erwähnenswert ist nur ein Bericht über Alex Schur, in dem es darum geht, dass dieser noch keinen neuen Vertrag für die nächste Saison unterschrieben hat. Es habe noch niemand mit ihm darüber geredet.

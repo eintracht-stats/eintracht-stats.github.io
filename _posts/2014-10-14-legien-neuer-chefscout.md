@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Legien neuer Chefscout
+title: "Legien neuer Chefscout"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schuster, di Matteo - oder doch ein anderer
+title: "Schuster, di Matteo - oder doch ein anderer"
 
 ---
 

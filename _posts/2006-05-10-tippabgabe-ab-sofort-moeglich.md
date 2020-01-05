@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Tippabgabe ab sofort möglich
+title: "Tippabgabe ab sofort möglich"
 
 ---
 

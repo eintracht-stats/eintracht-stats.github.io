@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht plant auch Abgänge
-subtitle: Vier Feldspieler und ein Torwart auf dem Absprung?
+title: "Eintracht plant auch Abgänge"
+subtitle: "Vier Feldspieler und ein Torwart auf dem Absprung?"
 ---
 
 Zwei bis drei neue Spieler sollen noch verpflichtet werden. Das hat Michael Skibbe bereits bekannt gegeben. Damit der Kader aber keine allzu großen Ausmaße annimmt, plant die Eintracht aber auch Spieler abzugeben. Erste Kandidaten wären hier Alexander Krük, Nikola Petkovic, der zurückkehrende Marcel Heller und auch Mehdi Mahdavikia. Fraglich allerdings, ob der Iraner seinen gut dotierten Vertrag freiwillig auflöst...

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones-Rückkehr wird wahrscheinlicher
+title: "Jones-Rückkehr wird wahrscheinlicher"
 
 ---
 

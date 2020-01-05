@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht lässt Kaufoption für Anderson verstreichen
+title: "Eintracht lässt Kaufoption für Anderson verstreichen"
 
 ---
 

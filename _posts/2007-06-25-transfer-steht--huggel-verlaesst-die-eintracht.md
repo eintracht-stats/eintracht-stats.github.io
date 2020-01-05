@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Transfer steht- Huggel verlässt die Eintracht
+title: "Transfer steht: Huggel verlässt die Eintracht"
 
 ---
 

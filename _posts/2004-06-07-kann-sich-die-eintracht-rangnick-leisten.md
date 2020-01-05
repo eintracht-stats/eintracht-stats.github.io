@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Kann sich die Eintracht Rangnick leisten?
-subtitle: Schur entscheidet sich am Wochenende
+title: "Kann sich die Eintracht Rangnick leisten?"
+subtitle: "Schur entscheidet sich am Wochenende"
 ---
 
 Heute gehen die Verhandlungen mit Ralf Rangnick weiter. Doch Heribert Bruchhagen schloss eine Entscheidung in der Trainerfrage für heute bereits definitiv aus. Rangnick selbst meldete sich bereits in der Presse deutlich zu Wort: Er will nur zur Eintracht kommen "wenn die finanziellen Mittel vorhanden sind, die einen Aufstieg realistisch erscheinen lassen. Wenn man die nicht hat, braucht man mich als Trainer erst gar nicht holen." Die Eintracht brauche noch 6-7 neue Spieler. 

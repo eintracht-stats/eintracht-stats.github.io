@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht unterliegt Wolfsburg
+title: "Eintracht unterliegt Wolfsburg"
 
 ---
 

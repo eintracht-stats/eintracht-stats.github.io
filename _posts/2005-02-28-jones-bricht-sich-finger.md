@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones bricht sich Finger
+title: "Jones bricht sich Finger"
 
 ---
 

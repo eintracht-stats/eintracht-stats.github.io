@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt Hallenturnier in Köln
+title: "Eintracht gewinnt Hallenturnier in Köln"
 
 ---
 

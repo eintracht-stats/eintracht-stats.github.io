@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Skela wird nicht mehr von Gerster beraten!
-subtitle: Copado ist im Gespräch
+title: "Skela wird nicht mehr von Gerster beraten!"
+subtitle: "Copado ist im Gespräch"
 ---
 
 Gestern hat Klaus Gerster die Beratertätigkeit bei Spielmacher Ervin Skela eingestellt. Als Grund nannte er "unterschiedliche Auffassungen über Form und Inhalt einer Beratertätigkeit sowie Meinungsdifferenzen in der Frage über die für dne Speiler beste sportliche Entwicklung".

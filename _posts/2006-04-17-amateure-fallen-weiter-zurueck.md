@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure fallen weiter zurück
+title: "Amateure fallen weiter zurück"
 
 ---
 

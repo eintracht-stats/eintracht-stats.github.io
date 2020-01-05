@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kommt nach Bad Vilbel
+title: "Eintracht kommt nach Bad Vilbel"
 
 ---
 

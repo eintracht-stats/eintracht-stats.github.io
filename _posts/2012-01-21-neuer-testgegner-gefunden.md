@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neuer Testgegner gefunden
+title: "Neuer Testgegner gefunden"
 
 ---
 

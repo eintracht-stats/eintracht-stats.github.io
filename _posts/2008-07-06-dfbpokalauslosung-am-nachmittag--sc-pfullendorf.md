@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB-Pokalauslosung am Nachmittag- SC Pfullendorf
+title: "DFB-Pokalauslosung am Nachmittag: SC Pfullendorf"
 
 ---
 

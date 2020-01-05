@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Debakel für die Amateure
-subtitle: Auch Bundesliga-Ergebnisse nicht wunschgemäß
+title: "Debakel für die Amateure"
+subtitle: "Auch Bundesliga-Ergebnisse nicht wunschgemäß"
 ---
 
 Rabenschwarzer Tag für unsere Amateure! Sie waren beim Gastspiel in Fulda heute chancenlos und verloren mit sage und schreibe 0:10! Damit bleibt Fulda an Tabellenführer Darmstadt dran. Die "kleine Eintracht" steht trotz dieses Debakels weiterhin im gesicherten Mittelfeld der Tabelle.

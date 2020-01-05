@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Neppe wettert gegen Sparmann und Reimann
-subtitle: Doch keine neuen Spieler mehr?
+title: "Neppe wettert gegen Sparmann und Reimann"
+subtitle: "Doch keine neuen Spieler mehr?"
 ---
 
 Und weiter geht's - heute ist mal wieder Jürgen Neppe an der Reihe: Volker Sparmann lüge, wenn er sage, dass die Querelen der letzten Wochen aus der Welt geschafft seien. Es braue sich ein "kleines Unwetter" zusammen... Auch Willi Reimann attackierte er. Der Trainer sei in alles eingeweiht gewesen und habe auch gewusst, dass er - Neppe - vom Vorstand zu bestimmten Verhandlungen bevollmächtigt worden war. 

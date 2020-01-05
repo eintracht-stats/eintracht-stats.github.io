@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Funkel kritisiert Trainingsbedingungen
-subtitle: Menger soll bleiben
+title: "Funkel kritisiert Trainingsbedingungen"
+subtitle: "Menger soll bleiben"
 ---
 
 Friedhelm Funkel hat sich vor der Abreise nach Aue kräftig über die Trainingsbedingungen am Waldstadion beschwert. Sie seien die schlechtesten im ganzen Profifußball in Deutschland. So würden abends teilweise Hobbymannschaften auf den Trainingsplätzen spielen, Kinder mit Fahrrädern den Rasen benutzen und Hunde - sagen wir's mal vorsichtig - ihren Teil zur Rasendüngung beitragen.

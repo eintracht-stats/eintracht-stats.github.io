@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Commerzbank unterzeichnet Verträge
+title: "Commerzbank unterzeichnet Verträge"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nur 0-0 gegen Bremen
+title: "Nur 0:0 gegen Bremen"
 
 ---
 

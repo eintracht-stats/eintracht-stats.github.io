@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Morddrohungen gegen Huggel
+title: "Morddrohungen gegen Huggel"
 
 ---
 

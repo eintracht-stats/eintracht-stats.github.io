@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht in Cottbus
+title: "Eintracht in Cottbus"
 
 ---
 

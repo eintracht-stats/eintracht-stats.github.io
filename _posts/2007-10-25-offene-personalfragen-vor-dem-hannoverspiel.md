@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Offene Personalfragen vor dem Hannover-Spiel
+title: "Offene Personalfragen vor dem Hannover-Spiel"
 
 ---
 

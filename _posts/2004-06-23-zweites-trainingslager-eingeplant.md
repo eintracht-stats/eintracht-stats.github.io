@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Zweites Trainingslager eingeplant
-subtitle: Spielplan ist da
+title: "Zweites Trainingslager eingeplant"
+subtitle: "Spielplan ist da"
 ---
 
 Friedhelm Funkel hat vom 5.-9.7. ein weiteres Trainingslager in den Vorbereitungsplan aufgenommen, in dem überwiegend gelaufen werden soll. Ein Ort steht noch nicht fest. Wegen des Traningslager fällt das ursprünglich geplante Testspiel beim TuS Beuerbach aus.

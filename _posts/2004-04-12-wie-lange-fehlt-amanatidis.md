@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wie lange fehlt Amanatidis?
+title: "Wie lange fehlt Amanatidis?"
 
 ---
 

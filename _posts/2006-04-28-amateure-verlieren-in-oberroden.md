@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure verlieren in Ober-Roden
+title: "Amateure verlieren in Ober-Roden"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kovac kritisiert Infrastruktur
+title: "Kovac kritisiert Infrastruktur"
 
 ---
 

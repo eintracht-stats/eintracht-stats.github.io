@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokalauslosung am Abend
+title: "Pokalauslosung am Abend"
 
 ---
 

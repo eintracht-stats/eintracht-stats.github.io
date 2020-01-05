@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trainer wollen Auswärtsschwäche ergründen
+title: "Trainer wollen Auswärtsschwäche ergründen"
 
 ---
 

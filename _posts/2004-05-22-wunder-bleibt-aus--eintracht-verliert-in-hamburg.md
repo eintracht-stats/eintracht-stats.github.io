@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wunder bleibt aus- Eintracht verliert in Hamburg
-subtitle: Eintracht zum dritten Male abgestiegen
+title: "Wunder bleibt aus: Eintracht verliert in Hamburg"
+subtitle: "Eintracht zum dritten Male abgestiegen"
 ---
 
 Alle Hoffnung auf ein Fußball-Wunder war vergebens: Die Eintracht verlor heute beim HSV trotz der Führung durch Amanatidis mit 1:2. Selbst ein Sieg hätte aber nichts mehr gebracht, da zeitgleich der 1. FC Kaiserslautern ein 1:1 gegen Borussia Dortmund erreichte. Damit steht der mittlerweile dritte Abstieg in die 2. Bundesliga fest. Es ist einfach traurig... 

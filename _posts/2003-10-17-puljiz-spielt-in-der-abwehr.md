@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Puljiz spielt in der Abwehr
+title: "Puljiz spielt in der Abwehr"
 
 ---
 

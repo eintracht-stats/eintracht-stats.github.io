@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Veh äußert sich zuversichtlich zu Verbleib
+title: "Veh äußert sich zuversichtlich zu Verbleib"
 
 ---
 

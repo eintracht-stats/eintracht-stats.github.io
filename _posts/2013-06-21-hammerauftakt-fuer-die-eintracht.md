@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hammer-Auftakt für die Eintracht!
+title: "Hammer-Auftakt für die Eintracht!"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gerezgiher wird Profi
+title: "Gerezgiher wird Profi"
 
 ---
 

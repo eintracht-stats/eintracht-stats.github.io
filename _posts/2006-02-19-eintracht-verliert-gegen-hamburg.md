@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Hamburg
+title: "Eintracht verliert gegen Hamburg"
 
 ---
 

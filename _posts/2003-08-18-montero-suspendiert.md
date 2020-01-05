@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Montero suspendiert
-subtitle: Chris im Probetraining
+title: "Montero suspendiert"
+subtitle: "Chris im Probetraining"
 ---
 
 Während auf allen Ebenen diskutiert wird, wie man die sportliche Schieflage in den Griff bekommen kann, kommen neue Negativschlagzeilen auf. David Montero wurde wie bereits in der vergangenen Saison vom Trainingsbetrieb suspendiert. Damals hatte er wegen Alkoholeskapaden bereits zwei Abmahnungen erhalten. Auch diesmal scheint er wieder zu tief ins Glas geschaut zu haben... Wie die Eintracht mitteilte, wird der Spanier in den nächsten Tagen zu einem Gespräch mit dem Vorstand bestellt. Eine fristlose Kündigung scheint nicht ausgeschlossen zu sein.

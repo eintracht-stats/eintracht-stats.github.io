@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knorpelschaden bei Chandler
+title: "Knorpelschaden bei Chandler"
 
 ---
 

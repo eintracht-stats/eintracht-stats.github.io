@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Halbfinale auf Großleinwand zu sehen
+title: "Halbfinale auf Großleinwand zu sehen"
 
 ---
 

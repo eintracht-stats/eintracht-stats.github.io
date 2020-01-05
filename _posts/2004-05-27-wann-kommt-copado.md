@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wann kommt Copado?
-subtitle: Eintracht will Preuß kaufen!
+title: "Wann kommt Copado?"
+subtitle: "Eintracht will Preuß kaufen!"
 ---
 
 Wie berichtet, wird Francisco Copado spätestens 2005 zur Eintracht stoßen. Eine Verpflichtung schon zur kommenden Saison ist zwar geplant, doch die SpVgg Unterhaching stellt sich (noch?) quer. Die FR macht dafür das seit den Lizenz-Querelen 2002 gespannte Verhältnis zwischen den beiden Vereinen verantwortlich. Ich würde das als normales Pokerspiel bezeichnen. Die Eintracht soll bereit sein, 300.000 Euro für Copados Freigabe zu zahlen. Und ich könnte mir gut vorstellen, dass noch eine Einigung gefunden wird.

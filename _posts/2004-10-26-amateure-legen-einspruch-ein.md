@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure legen Einspruch ein
+title: "Amateure legen Einspruch ein"
 
 ---
 

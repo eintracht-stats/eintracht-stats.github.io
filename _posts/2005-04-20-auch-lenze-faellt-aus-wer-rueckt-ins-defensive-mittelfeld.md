@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Lenze fällt aus - Wer rückt ins defensive Mittelfeld?
+title: "Auch Lenze fällt aus - Wer rückt ins defensive Mittelfeld?"
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht mistet Kader aus
-subtitle: Korkmaz, Alvarez, Steinhöfer, Tosun - und vielleicht auch Caio weg!
+title: "Eintracht mistet Kader aus"
+subtitle: "Korkmaz, Alvarez, Steinhöfer, Tosun - und vielleicht auch Caio weg!"
 ---
 
 Die Eintracht mistet ihren Kader aus. Bis zu 5 Spieler werden die Eintracht in der Winterpause verlassen. Ümit Korkmaz geht auf Leihbasis bis zum Saisonende zum VfL Bochum. Dort trifft er auf Friedhelm Funkel, der ihn einst nach Frankfurt geholt hatte. Marcos Alvarez wurde an die U23 des FC Bayern verkauft. Für ebenso kleines Geld geht Markus Steinhöfer zum FC Basel.

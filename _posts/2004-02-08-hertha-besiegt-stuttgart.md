@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hertha besiegt Stuttgart
+title: "Hertha besiegt Stuttgart"
 
 ---
 

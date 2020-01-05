@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll lässt sich von Gerster beraten
+title: "Pröll lässt sich von Gerster beraten"
 
 ---
 

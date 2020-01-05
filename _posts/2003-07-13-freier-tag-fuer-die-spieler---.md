@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Freier Tag für die Spieler...
+title: "Freier Tag für die Spieler..."
 
 ---
 

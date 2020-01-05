@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs steht vor Vertragsverlängerung
+title: "Ochs steht vor Vertragsverlängerung"
 
 ---
 

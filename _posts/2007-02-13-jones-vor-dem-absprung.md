@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones vor dem Absprung?
+title: "Jones vor dem Absprung?"
 
 ---
 

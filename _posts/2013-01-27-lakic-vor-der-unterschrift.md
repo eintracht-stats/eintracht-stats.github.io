@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lakic vor der Unterschrift
+title: "Lakic vor der Unterschrift"
 
 ---
 

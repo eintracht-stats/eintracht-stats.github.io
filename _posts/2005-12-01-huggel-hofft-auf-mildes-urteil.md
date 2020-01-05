@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huggel hofft auf mildes Urteil
+title: "Huggel hofft auf mildes Urteil"
 
 ---
 

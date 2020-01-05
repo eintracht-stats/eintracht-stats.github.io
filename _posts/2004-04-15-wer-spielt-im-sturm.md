@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Wer spielt im Sturm?
-subtitle: Eintracht bekommt wohl die Lizenz
+title: "Wer spielt im Sturm?"
+subtitle: "Eintracht bekommt wohl die Lizenz"
 ---
 
 Willi Reimann hat sich noch nicht entschieden, wer den gesperrten Ioannis Amanatidis in Stuttgart ersetzen wird. Es wird sich zwischen Nico Frommer und Markus Beierle entscheiden.

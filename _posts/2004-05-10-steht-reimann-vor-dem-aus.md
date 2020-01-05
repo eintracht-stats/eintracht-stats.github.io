@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Steht Reimann vor dem Aus?
-subtitle: Personalplanungen gehen weiter
+title: "Steht Reimann vor dem Aus?"
+subtitle: "Personalplanungen gehen weiter"
 ---
 
 Willi Reimann kann sich längst nicht mehr sicher sein, auch in der kommenden Saison als Trainer bei Eintracht Frankfurt zu arbeiten. Heribert Bruchhagen erklärte in einem FR-Interview zwar, dass Willi Reimann "genau der richtige Mann" sei, um den Klassenerhalt zu schaffen. Auf die Frage, ob sich durch den aller Voraussicht nach verpassten Klassenerhalt nicht die Ausgangslage ändere, sagte er: "Das ist ihre Interpretation." Echter Rückhalt hört sich anders an...

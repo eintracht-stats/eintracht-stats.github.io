@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Rapolder im Gespräch
+title: "Auch Rapolder im Gespräch"
 
 ---
 

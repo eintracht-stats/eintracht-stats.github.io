@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Junge Eintracht-Mannschaft in Aachen
+title: "Junge Eintracht-Mannschaft in Aachen"
 
 ---
 

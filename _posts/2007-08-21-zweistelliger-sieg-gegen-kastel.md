@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zweistelliger Sieg gegen Kastel
+title: "Zweistelliger Sieg gegen Kastel"
 
 ---
 

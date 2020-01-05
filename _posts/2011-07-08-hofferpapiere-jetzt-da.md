@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hoffer-Papiere jetzt da
+title: "Hoffer-Papiere jetzt da"
 
 ---
 

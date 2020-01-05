@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auch Mahdavikia fällt aus!
+title: "Auch Mahdavikia fällt aus!"
 
 ---
 

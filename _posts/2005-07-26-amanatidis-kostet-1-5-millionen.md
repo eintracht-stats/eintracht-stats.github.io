@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amanatidis kostet 1,5 Millionen
+title: "Amanatidis kostet 1,5 Millionen"
 
 ---
 

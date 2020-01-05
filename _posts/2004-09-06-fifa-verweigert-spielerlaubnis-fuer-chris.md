@@ -1,6 +1,6 @@
 ---
 layout: post
-title: FIFA verweigert Spielerlaubnis für Chris
+title: "FIFA verweigert Spielerlaubnis für Chris"
 
 ---
 

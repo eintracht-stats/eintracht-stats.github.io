@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Amateure unterliegen Kassel - Ausschreitungen nach Spielende
-subtitle: Eintracht spricht mit Betreiber-Kandidaten
+title: "Amateure unterliegen Kassel - Ausschreitungen nach Spielende"
+subtitle: "Eintracht spricht mit Betreiber-Kandidaten"
 ---
 
 Mit 1:2 haben unsere Amateure ihr Gastspiel bei Hessen Kassel verloren. Alexander Huber war der Torschütze zum 1:0. Kassel drehte die Partie dann in der 2. Halbzeit. Nach Spielende musste die Polizei mit Tränengas gegen "rivalisierende Fangruppen" (wie das so hübsch hässlich heißt) vorgehen, da es zu Ausschreitungen gekommen war. Verletzt wurde dabei niemand.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auswärtssieg krönt Hinrunde
+title: "Auswärtssieg krönt Hinrunde"
 
 ---
 

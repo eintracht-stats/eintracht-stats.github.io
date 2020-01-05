@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spaß-Fußball in Osthessen
+title: "Spaß-Fußball in Osthessen"
 
 ---
 

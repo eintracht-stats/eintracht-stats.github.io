@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure punkten in Kassel
+title: "Amateure punkten in Kassel"
 
 ---
 

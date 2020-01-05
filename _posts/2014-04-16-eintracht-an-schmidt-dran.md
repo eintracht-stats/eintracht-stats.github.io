@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Schmidt dran
+title: "Eintracht an Schmidt dran"
 
 ---
 

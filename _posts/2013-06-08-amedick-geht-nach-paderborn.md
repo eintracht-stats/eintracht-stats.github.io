@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amedick geht nach Paderborn
+title: "Amedick geht nach Paderborn"
 
 ---
 

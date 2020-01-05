@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFB plant Handy-Verbot!
+title: "DFB plant Handy-Verbot!"
 
 ---
 

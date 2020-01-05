@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Neue Runde im Poker um Amanatidis
+title: "Neue Runde im Poker um Amanatidis"
 
 ---
 

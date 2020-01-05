@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DFL legt weitere Termine fest
+title: "DFL legt weitere Termine fest"
 
 ---
 

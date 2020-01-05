@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht gewinnt in Hamburg
+title: "Eintracht gewinnt in Hamburg"
 
 ---
 

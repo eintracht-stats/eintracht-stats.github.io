@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 3-0 in Lautern: Eintracht auf dem Vormarsch
+title: "3:0 in Lautern: Eintracht auf dem Vormarsch"
 
 ---
 

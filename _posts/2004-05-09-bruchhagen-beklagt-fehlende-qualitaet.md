@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen beklagt fehlende Qualität
+title: "Bruchhagen beklagt fehlende Qualität"
 
 ---
 

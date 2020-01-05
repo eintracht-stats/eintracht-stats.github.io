@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Personalsorgen vor dem Pokalspiel
+title: "Personalsorgen vor dem Pokalspiel"
 
 ---
 

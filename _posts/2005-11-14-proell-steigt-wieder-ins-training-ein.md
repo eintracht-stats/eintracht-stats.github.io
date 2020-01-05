@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pröll steigt wieder ins Training ein
+title: "Pröll steigt wieder ins Training ein"
 
 ---
 

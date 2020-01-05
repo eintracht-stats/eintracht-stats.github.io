@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kreuzbandriss bei Kittel!
+title: "Kreuzbandriss bei Kittel!"
 
 ---
 

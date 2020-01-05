@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Steubing AG übernimmt Eintracht-Anteil
+title: "Steubing AG übernimmt Eintracht-Anteil"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wieder kein Sieg- 1:1 gegen Aalen
+title: "Wieder kein Sieg: 1:1 gegen Aalen"
 
 ---
 

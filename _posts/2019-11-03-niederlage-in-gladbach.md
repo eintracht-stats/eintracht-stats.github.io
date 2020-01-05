@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage in Gladbach
+title: "Niederlage in Gladbach"
 
 ---
 

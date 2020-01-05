@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht weiter auf Erfolgskurs- Sieg in Bochum
+title: "Eintracht weiter auf Erfolgskurs: Sieg in Bochum"
 
 ---
 

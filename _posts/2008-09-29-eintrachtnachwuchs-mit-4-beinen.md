@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-Nachwuchs mit 4 Beinen
+title: "Eintracht-Nachwuchs mit 4 Beinen"
 
 ---
 

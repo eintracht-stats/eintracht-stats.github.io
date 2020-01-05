@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht empfängt Hertha
+title: "Eintracht empfängt Hertha"
 
 ---
 

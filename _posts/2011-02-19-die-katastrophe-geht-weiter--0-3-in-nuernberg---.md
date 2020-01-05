@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Katastrophe geht weiter- 0:3 in Nürnberg...
+title: "Die Katastrophe geht weiter: 0:3 in Nürnberg..."
 
 ---
 

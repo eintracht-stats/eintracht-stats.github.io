@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Geht Menger zum DFB?
+title: "Geht Menger zum DFB?"
 
 ---
 

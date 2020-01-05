@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Friend nach München?
+title: "Friend nach München?"
 
 ---
 

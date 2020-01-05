@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht an Borgetti dran?
+title: "Eintracht an Borgetti dran?"
 
 ---
 

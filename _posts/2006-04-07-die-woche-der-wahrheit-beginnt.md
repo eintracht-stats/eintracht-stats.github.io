@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Woche der Wahrheit beginnt
+title: "Die Woche der Wahrheit beginnt"
 
 ---
 

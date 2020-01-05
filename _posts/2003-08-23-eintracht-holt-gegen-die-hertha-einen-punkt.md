@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht holt gegen die Hertha einen Punkt
-subtitle: Peinlicher Auftritt von Schuster
+title: "Eintracht holt gegen die Hertha einen Punkt"
+subtitle: "Peinlicher Auftritt von Schuster"
 ---
 
 Mit einem 0:0 gegen Hertha BSC Berlin hat die Eintracht ihren ersten Punkt geholt und zugleich die Rote Laterne abgegeben. Die hatte hatte mehr Spielanteile, konnte sich aber gegen eine massive Abwehr der Eintracht nicht durchsetzen und blieb auch im vierten Spiel ohne Punktgewinn. Bei der Eintracht spielte Christoph Preuß von Beginn an und lieferte eine überzeugende Leistung ab.

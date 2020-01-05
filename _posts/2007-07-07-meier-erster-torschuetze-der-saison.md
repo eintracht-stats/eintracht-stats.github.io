@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier erster Torschütze der Saison
+title: "Meier erster Torschütze der Saison"
 
 ---
 

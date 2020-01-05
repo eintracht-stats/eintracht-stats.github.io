@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Kein Neuzugang mehr
+title: "Kein Neuzugang mehr"
 
 ---
 

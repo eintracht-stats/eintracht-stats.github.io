@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bruchhagen vs. Rummenigge
+title: "Bruchhagen vs. Rummenigge"
 
 ---
 

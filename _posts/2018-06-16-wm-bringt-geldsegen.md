@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WM bringt Geldsegen
+title: "WM bringt Geldsegen"
 
 ---
 

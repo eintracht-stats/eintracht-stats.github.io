@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Geglückter Saisonstart
-subtitle: Sieg gegen die Hertha
+title: "Geglückter Saisonstart"
+subtitle: "Sieg gegen die Hertha"
 ---
 
 Mit einem 1:0 gegen Hertha BSC Berlin hat die Eintracht einen gelungen Bundesligaauftakt hingelegt. Ioannis Amanatidis köpfte nach einer halben Stunde eine Flanke von Streit zum entscheidenden Treffer ins Netz. Streit und Meier vergaben in der Schlussphase Chancen zu weiteren Treffern. Die Gäste blieben über weite Strecken der Partie blass und sorgten kaum für ernsthafte Gefahr vor dem Tor von Markus Pröll.

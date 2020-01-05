@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwache Eintracht verliert
+title: "Schwache Eintracht verliert"
 
 ---
 

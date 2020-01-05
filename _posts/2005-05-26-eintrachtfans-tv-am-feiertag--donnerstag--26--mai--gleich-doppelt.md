@@ -1,6 +1,6 @@
 ---
 layout: post
-title: eintrachtfans.TV am Feiertag (Donnerstag, 26. Mai) gleich doppelt!
+title: "eintrachtfans.TV am Feiertag (Donnerstag, 26. Mai) gleich doppelt!"
 
 ---
 

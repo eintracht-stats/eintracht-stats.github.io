@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reinartz beendet Karriere!
+title: "Reinartz beendet Karriere!"
 
 ---
 

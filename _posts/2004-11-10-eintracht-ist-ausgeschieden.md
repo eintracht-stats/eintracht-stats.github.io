@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht ist ausgeschieden
-subtitle: 0-2 gegen Schalke 04
+title: "Eintracht ist ausgeschieden"
+subtitle: "0:2 gegen Schalke 04"
 ---
 
 Die Überraschung ist ausgeblieben: Mit 0:2 hat sich die Eintracht gegen Schalke 04 aus dem DFB-Pokal verabschiedet. Der Bundesligist ging von Beginn an ein extrem hohes Tempo, an das sich die Eintracht erstmal gewöhnen musste. Ein sehenswerter Distanzschuss von Reinhard war in Halbzeit eins die einzige nennenswerte Offensiv-Aktion der Eintracht. Ansonsten drückte Schalke. Markus Pröll musste in zahlreichen Situationen Kopf und Kragen riskieren...

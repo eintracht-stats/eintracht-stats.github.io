@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht zu Gast auf Schalke
+title: "Eintracht zu Gast auf Schalke"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Erneutes Unentschieden im Waldstadion
+title: "Erneutes Unentschieden im Waldstadion"
 
 ---
 

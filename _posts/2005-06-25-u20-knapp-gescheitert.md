@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U20 knapp gescheitert
+title: "U20 knapp gescheitert"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Galindo fällt aus
+title: "Galindo fällt aus"
 
 ---
 

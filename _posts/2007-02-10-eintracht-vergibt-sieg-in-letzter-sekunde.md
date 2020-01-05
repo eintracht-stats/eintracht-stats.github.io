@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vergibt Sieg in letzter Sekunde
+title: "Eintracht vergibt Sieg in letzter Sekunde"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knapper Sieg gegen Stadtallendorf
+title: "Knapper Sieg gegen Stadtallendorf"
 
 ---
 

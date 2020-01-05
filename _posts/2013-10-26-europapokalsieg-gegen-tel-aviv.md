@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Europapokal-Sieg gegen Tel Aviv
+title: "Europapokal-Sieg gegen Tel Aviv"
 
 ---
 

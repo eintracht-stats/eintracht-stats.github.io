@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Unfassbar! Was für eine Saison!
+title: "Unfassbar! Was für eine Saison!"
 
 ---
 

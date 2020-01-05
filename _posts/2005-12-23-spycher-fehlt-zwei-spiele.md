@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Spycher fehlt zwei Spiele
+title: "Spycher fehlt zwei Spiele"
 
 ---
 

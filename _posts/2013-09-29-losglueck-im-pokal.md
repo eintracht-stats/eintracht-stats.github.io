@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Losglück im Pokal
+title: "Losglück im Pokal"
 
 ---
 

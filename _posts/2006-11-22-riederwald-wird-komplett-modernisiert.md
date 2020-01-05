@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Riederwald wird komplett modernisiert
+title: "Riederwald wird komplett modernisiert"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Die Ausgangsposition vor dem Schlussspurt
+title: "Die Ausgangsposition vor dem Schlussspurt"
 
 ---
 

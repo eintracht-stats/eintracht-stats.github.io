@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ochs geht nach Wolfsburg
+title: "Ochs geht nach Wolfsburg"
 
 ---
 

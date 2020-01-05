@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht kommt weiter
+title: "Eintracht kommt weiter"
 
 ---
 

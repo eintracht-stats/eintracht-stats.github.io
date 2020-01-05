@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Joselu geht nach Hannover
+title: "Joselu geht nach Hannover"
 
 ---
 

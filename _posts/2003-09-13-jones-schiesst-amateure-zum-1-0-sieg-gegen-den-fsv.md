@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Jones schießt Amateure zum 1-0 Sieg gegen den FSV
+title: "Jones schießt Amateure zum 1:0 Sieg gegen den FSV"
 
 ---
 

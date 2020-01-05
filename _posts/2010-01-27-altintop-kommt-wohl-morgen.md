@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Altintop kommt wohl morgen
-subtitle: Nikolov vor Absprung nach New York
+title: "Altintop kommt wohl morgen"
+subtitle: "Nikolov vor Absprung nach New York"
 ---
 
 Die Eintracht hat ihre Angaben zum bevorstehenden Transfer von Halil Altintop konkretisiert: Heute Abend wird es "abschließende Vertragsgespräche" geben, die allerdings erst morgen beendet sein werden. Altintops Berater kann erst am späten Abend in Frankfurt sein. Daher wohl die Verzögerung. 

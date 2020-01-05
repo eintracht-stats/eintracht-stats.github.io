@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klasse-Sieg gegen Leverkusen
+title: "Klasse-Sieg gegen Leverkusen"
 
 ---
 

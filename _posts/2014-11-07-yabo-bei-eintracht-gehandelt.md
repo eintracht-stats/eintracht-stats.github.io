@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Yabo bei Eintracht gehandelt
+title: "Yabo bei Eintracht gehandelt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verleiht Besuschkow
+title: "Eintracht verleiht Besuschkow"
 
 ---
 

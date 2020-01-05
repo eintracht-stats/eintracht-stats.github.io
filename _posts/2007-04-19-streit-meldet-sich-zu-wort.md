@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit meldet sich zu Wort
+title: "Streit meldet sich zu Wort"
 
 ---
 

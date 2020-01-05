@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Tsoumou-Madza droht die Abschiebung!
-subtitle: Puljiz bleibt im Team
+title: "Tsoumou-Madza droht die Abschiebung!"
+subtitle: "Puljiz bleibt im Team"
 ---
 
 Jean Tsoumou-Madza droht die Ausweisung aus Deutschland! Seine befristete Aufenthaltsgenehmigung ist am 29. Februar abgelaufen, woraufhin ihm die DFL auch die Spielerlaubnis entzogen hat. Der Kongolese war im Oktober letzten Jahres zu einer Bewährungsstrafe wegen sexueller Nötigung verurteilt worden. Seither ist er vorbestraft und muss seine Aufenthaltsgenehmigungen öfter verlängern lassen als das sonst bei Spielern der Fall ist, deren Genehmigung der Vertragsdauer angepasst ist.

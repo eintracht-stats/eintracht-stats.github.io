@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht trifft im Pokal auf Fürth
+title: "Eintracht trifft im Pokal auf Fürth"
 
 ---
 

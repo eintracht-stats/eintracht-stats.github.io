@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Heller geht nach Duisburg
+title: "Heller geht nach Duisburg"
 
 ---
 

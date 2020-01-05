@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Knapper Punktgewinn gegen Augsburg
+title: "Knapper Punktgewinn gegen Augsburg"
 
 ---
 

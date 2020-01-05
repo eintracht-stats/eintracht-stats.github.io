@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht haushoch unterlegen
-subtitle: Skela spuckt Gegner an
+title: "Eintracht haushoch unterlegen"
+subtitle: "Skela spuckt Gegner an"
 ---
 
 Auch wenn's schwer fällt: Einen kurzen Bericht von der gestrigen Niederlage gegen Kaiserslautern kann ich euch nicht ersparen:Die Eintracht begann mit der selben Anfangsformation wie gegen Gladbach. Und auch die Gäste hatten nichts an der Elf des letzten Spieltags geändert. Sämtliche taktischen Überlegungen der Eintracht wurden bereits nach 5 Minuten über den Haufen geworfen. 

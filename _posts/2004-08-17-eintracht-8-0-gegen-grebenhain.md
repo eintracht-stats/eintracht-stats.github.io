@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht 8-0 gegen Grebenhain
+title: "Eintracht 8:0 gegen Grebenhain"
 
 ---
 

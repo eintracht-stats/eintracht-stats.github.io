@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hengemühle wechselt nach Eschborn
+title: "Hengemühle wechselt nach Eschborn"
 
 ---
 

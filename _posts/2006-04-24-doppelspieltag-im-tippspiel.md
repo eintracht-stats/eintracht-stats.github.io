@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Doppelspieltag im Tippspiel
+title: "Doppelspieltag im Tippspiel"
 
 ---
 

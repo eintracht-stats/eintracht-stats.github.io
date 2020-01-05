@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lexa fällt lange aus
+title: "Lexa fällt lange aus"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gutes Pokal-Los
+title: "Gutes Pokal-Los"
 
 ---
 

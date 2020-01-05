@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Amateure wieder auf Aufstiegsplatz
+title: "Amateure wieder auf Aufstiegsplatz"
 
 ---
 

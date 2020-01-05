@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Übernimmt Fraport-Mann Becker AG-Führung?
-subtitle: Neuer Stürmer soll kommen
+title: "Übernimmt Fraport-Mann Becker AG-Führung?"
+subtitle: "Neuer Stürmer soll kommen"
 ---
 
 Die FR glaubt, den neuen Vorstandsvorsitzenden zu kennen: Nach ihren Informationen wird Herbert Becker - Aufsichtsratsmitglied und im Hauptberuf bei Fraport beschäftigt - auf der nächsten Aufsichtsratssitzung in das Amt berufen werden. Becker soll die Aufgabe wie bislang Volker Sparmann ehrenamtlich übernehmen. Dieser wiederum kehrt in den Aufsichtsrat zurück und möchte dort auch wieder den Vorsitz übernehmen. Den hat jedoch Jürgen Neppe inne. Nach der bislang erfolglosen Suche nach einem neuen Vorstand sieht nicht nur die FR dessen Stellung angekratzt...

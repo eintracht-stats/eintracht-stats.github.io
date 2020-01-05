@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Muskelfaserriss bei Oczipka
+title: "Muskelfaserriss bei Oczipka"
 
 ---
 

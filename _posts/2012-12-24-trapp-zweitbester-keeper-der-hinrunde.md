@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Trapp zweitbester Keeper der Hinrunde
+title: "Trapp zweitbester Keeper der Hinrunde"
 
 ---
 

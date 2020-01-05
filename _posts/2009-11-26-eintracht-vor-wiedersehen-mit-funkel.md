@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht vor Wiedersehen mit Funkel
+title: "Eintracht vor Wiedersehen mit Funkel"
 
 ---
 

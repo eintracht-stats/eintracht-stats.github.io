@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt Wolfsburg
-subtitle: Aufholjagd wird belohnt
+title: "Eintracht schlägt Wolfsburg"
+subtitle: "Aufholjagd wird belohnt"
 ---
 
 Mit einer tollen Einstellung und einer sowohl kämpferisch als auch spielerisch guten Leistung hat die Eintracht ein verloren geglaubtes Spiel noch gewonnen: Gegen den VfL Wolfsburg gab es einen 3:2-Sieg nach einem frühen 0:2-Rückstand...

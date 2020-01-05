@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Niederlage gegen Stuttgart
+title: "Niederlage gegen Stuttgart"
 
 ---
 

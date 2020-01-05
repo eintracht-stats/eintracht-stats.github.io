@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lincoln wollte nur ein Jahr bleiben...
+title: "Lincoln wollte nur ein Jahr bleiben..."
 
 ---
 

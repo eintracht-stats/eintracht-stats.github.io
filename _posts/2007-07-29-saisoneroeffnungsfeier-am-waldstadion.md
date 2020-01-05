@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Saisoneröffnungsfeier am Waldstadion
+title: "Saisoneröffnungsfeier am Waldstadion"
 
 ---
 

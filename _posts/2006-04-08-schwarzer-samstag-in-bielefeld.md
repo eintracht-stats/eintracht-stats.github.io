@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Schwarzer Samstag in Bielefeld
+title: "Schwarzer Samstag in Bielefeld"
 
 ---
 

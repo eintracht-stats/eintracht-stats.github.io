@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wenig los im Eintracht-Training
+title: "Wenig los im Eintracht-Training"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2 Spiele Sperre für Vasoski
+title: "2 Spiele Sperre für Vasoski"
 
 ---
 

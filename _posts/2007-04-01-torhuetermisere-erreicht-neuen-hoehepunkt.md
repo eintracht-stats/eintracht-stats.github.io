@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Torhütermisere erreicht neuen Höhepunkt
+title: "Torhütermisere erreicht neuen Höhepunkt"
 
 ---
 

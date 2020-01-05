@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Huszti vor Wechsel nach China
+title: "Huszti vor Wechsel nach China"
 
 ---
 

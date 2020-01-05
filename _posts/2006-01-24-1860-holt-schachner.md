@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 1860 holt Schachner
+title: "1860 holt Schachner"
 
 ---
 

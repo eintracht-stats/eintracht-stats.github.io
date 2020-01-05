@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Meier angeschlagen
+title: "Meier angeschlagen"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Christoph Preuß beendet Karriere
+title: "Christoph Preuß beendet Karriere"
 
 ---
 

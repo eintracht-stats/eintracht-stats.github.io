@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht-stats.de wünscht ein Frohes Neues Jahr 2019!
+title: "Eintracht-stats.de wünscht ein Frohes Neues Jahr 2019!"
 
 ---
 

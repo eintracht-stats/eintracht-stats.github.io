@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rode zu Bayern?
+title: "Rode zu Bayern?"
 
 ---
 

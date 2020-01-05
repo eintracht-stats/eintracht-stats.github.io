@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Lautern holt auf
+title: "Lautern holt auf"
 
 ---
 

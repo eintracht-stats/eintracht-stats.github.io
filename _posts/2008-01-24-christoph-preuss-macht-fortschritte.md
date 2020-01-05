@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Christoph Preuß macht Fortschritte
+title: "Christoph Preuß macht Fortschritte"
 
 ---
 

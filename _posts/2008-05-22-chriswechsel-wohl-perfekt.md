@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris-Wechsel wohl perfekt
+title: "Chris-Wechsel wohl perfekt"
 
 ---
 

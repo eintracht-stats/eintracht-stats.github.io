@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Cipi für drei Spiele gesperrt
+title: "Cipi für drei Spiele gesperrt"
 
 ---
 

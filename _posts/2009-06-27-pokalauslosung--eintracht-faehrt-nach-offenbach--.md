@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pokal-Auslosung- Eintracht fährt nach Offenbach!!!
+title: "Pokal-Auslosung: Eintracht fährt nach Offenbach!!!"
 
 ---
 

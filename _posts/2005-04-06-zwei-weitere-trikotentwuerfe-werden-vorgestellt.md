@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Zwei weitere Trikot-Entwürfe werden vorgestellt
+title: "Zwei weitere Trikot-Entwürfe werden vorgestellt"
 
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht konzentriert sich auf den Endspurt
+title: "Eintracht konzentriert sich auf den Endspurt"
 
 ---
 

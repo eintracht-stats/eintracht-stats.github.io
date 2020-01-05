@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Auftakt in Fürth
+title: "Auftakt in Fürth"
 
 ---
 

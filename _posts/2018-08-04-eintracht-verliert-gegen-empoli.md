@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht verliert gegen Empoli
+title: "Eintracht verliert gegen Empoli"
 
 ---
 

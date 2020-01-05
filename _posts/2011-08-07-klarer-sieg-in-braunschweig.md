@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Klarer Sieg in Braunschweig!
+title: "Klarer Sieg in Braunschweig!"
 
 ---
 

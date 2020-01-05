@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Streit hat unterschrieben
+title: "Streit hat unterschrieben"
 
 ---
 

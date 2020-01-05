@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wird Schur Jugendtrainer?
+title: "Wird Schur Jugendtrainer?"
 
 ---
 

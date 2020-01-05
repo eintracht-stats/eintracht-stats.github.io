@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Eintracht schlägt Duisburg 4-2 - Fink bereitet drei Tore vor
-subtitle: Platz 9 am Saisonende
+title: "Eintracht schlägt Duisburg 4:2 - Fink bereitet drei Tore vor"
+subtitle: "Platz 9 am Saisonende"
 ---
 
 Die Eintracht hat am letzten Spieltag ihre Negativserie beendet. Mit dem 4:2 gegen den MSV Duisburg (Fenin (2), Amanatidis, Heller) gelang der Mannschaft damit noch der Sprung auf Platz 9. Dieser einstellige Tabellenplatz bedeutet die beste Platzierung seit 13 Jahren!!! Das muss man einfach mal erwähnen, um die ganzen Nörgler ruhigzustellen, die sicher selbst nach dieser Saison immer noch ein Haar in der Suppe finden...

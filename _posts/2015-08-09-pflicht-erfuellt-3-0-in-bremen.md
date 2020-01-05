@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pflicht erfüllt - 3-0 in Bremen
+title: "Pflicht erfüllt - 3:0 in Bremen"
 
 ---
 

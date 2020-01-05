@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Stendera will sich anbieten
+title: "Stendera will sich anbieten"
 
 ---
 

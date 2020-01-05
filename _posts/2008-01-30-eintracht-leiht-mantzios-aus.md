@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht leiht Mantzios aus
+title: "Eintracht leiht Mantzios aus"
 
 ---
 

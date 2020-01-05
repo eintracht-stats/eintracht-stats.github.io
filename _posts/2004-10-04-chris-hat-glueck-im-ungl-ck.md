@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chris hat Glück im Unglück
+title: "Chris hat Glück im Unglück"
 
 ---
 

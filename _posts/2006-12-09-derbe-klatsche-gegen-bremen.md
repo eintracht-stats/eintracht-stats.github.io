@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Derbe Klatsche gegen Bremen
+title: "Derbe Klatsche gegen Bremen"
 
 ---
 

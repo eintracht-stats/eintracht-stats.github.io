@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Eintracht testet Petkovic
+title: "Eintracht testet Petkovic"
 
 ---
 
