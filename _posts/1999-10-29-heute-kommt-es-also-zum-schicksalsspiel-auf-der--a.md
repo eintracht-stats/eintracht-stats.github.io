@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Heute kommt es also zum Schicksalsspiel auf der "Alm"."
+title: "Heute kommt es also zum Schicksalsspiel auf der Alm."
 ---
 
 Heute kommt es also zum Schicksalsspiel auf der "Alm". Das paßt ja, schließlich ist die Luft schon ziemlich dünn. Bei einer weiteren Niederlage schlägt der Verein wahrscheinlich den Weg von Bor. M´gladbach ein und verliert schon früh den Anschluß nach oben. Dazu darf es nicht kommen!!/ Soll man sich jetzt freuen oder nicht? Zwar nur 1:1 in Bielefeld, aber der Ausgleich fiel in der 90. Minute. Endlich ist das Glück mal auf unserer Seite. R.-C. Guie-Mien hatte wieder einmal Grund für einen Salto. Bleibt noch zu erwähnen, daß Alex Schur mit Gelb-Rot vom Platz geflogen ist (sehr fragwürdig, ist zu Recht ausgerastet) und daß Oka Nikolov den anschließenden Elfmeter von Bruno Labbadia gehalten hat. Das sollte ihn aufbauen! Viel bringt dieser Punkt allerdings nicht. Wenn man sich die nächsten Gegner ansieht, kann einem Angst und Bange werden: Hertha, Bremen, Lautern, HSV, Wolfsburg, Leverkusen und Ulm. Hoffentlich beginnt nicht eine neue Serie...Vor allem, weil sich Bachirou "Stiernacken" Salou einen Muskelfaserriß zugezogen hat. Wir werden ihn sicher 2-3 Wochen schmerzlich vermissen! Dafür hat sich ein neues Traumpaar gefunden: Jan-Age Fjörtoft zeigte seine Zuneigung zu Olaf Janßen mit einem Kuß auf den Mund vor laufenden Kameras! \*g\*

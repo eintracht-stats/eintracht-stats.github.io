@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Da ich heute mal wieder auf "Erforschungstour" in Sachen beruflicher Zukunft war, gibt's meinen heutigen Eintrag etwas später als gewohnt."
+title: "Da ich heute mal wieder auf Erforschungstour in Sachen beruflicher Zukunft war, gibt's meinen heutigen Eintrag etwas später als gewohnt."
 ---
 
 Da ich heute mal wieder auf "Erforschungstour" in Sachen beruflicher Zukunft war, gibt's meinen heutigen Eintrag etwas später als gewohnt. Er ist ohnehin nur teilweise erfreulich. So berichtet die Frankfurter Neue Presse, dass der neue Trainer bis Freitag gefunden werden soll. Gábor Várszegi kommt heute wieder nach Frankfurt und wird sich mit dem Thema auseinandersetzen. Bis diese Frage geklärt ist, liegen laut Tony Woodcock alle Personalentscheidungen auf Eis. Die Zeit läuft weiter gegen die Eintracht... Wer der neue Mann auf der Trainerbank wird, scheint weiter völlig offen zu sein. Seit gestern ist auch wieder Christoph Daum im "Kandidatenpool": Er kam bei seinem Kokain-Prozess mit einem blauen Auge davon. Begeistert wäre ich von dieser Lösung nicht - diese Meinung vertrat ich auch schon nach unserem letzten Trainerwechsel (Felix Magath) und ich bleibe dabei.  

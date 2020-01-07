@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Da ich gestern abend eine kostenlose "Typ-Beratung" aus meinem Freundeskreis erhielt, folgen die Details der gestrigen Aufsichtsratssitzung etwas verspätet: Der neue Trainer wird ja wie schon berichtet bis spätestens Ende nächster Woche vorgestellt (zum wievielten Male wurde das eigentlich angekündigt?)."
+title: "Da ich gestern abend eine kostenlose Typ-Beratung aus meinem Freundeskreis erhielt, folgen die Details der gestrigen Aufsichtsratssitzung etwas verspätet: Der neue Trainer wird ja wie schon berichtet bis spätestens Ende nächster Woche vorgestellt (zum wievielten Male wurde das eigentlich angekündigt?)."
 ---
 
 Da ich gestern abend eine kostenlose "Typ-Beratung" aus meinem Freundeskreis erhielt, folgen die Details der gestrigen Aufsichtsratssitzung etwas verspätet: Der neue Trainer wird ja wie schon berichtet bis spätestens Ende nächster Woche vorgestellt (zum wievielten Male wurde das eigentlich angekündigt?). Ewald Lienen, Aleks Ristic und Co. stehen dabei weiterhin auf der Liste. Nur konnte noch nicht mit allen gesprochen werden. Daher die erneute Verzögerung. Von Peter Fischer heftig dementiert wurde das Gerücht, dass wie schon nach der Magath\-Entlassung Lothar Matthäus ein Angebot erhalte. Damals konnte ich - offenbar im Zustand geistiger Umnachtung - einem Teamchef Loddar durchaus noch positive Seiten abgewinnen. Heute denke auch ich: Lieber keinen Trainer als diesen...  

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Kaum sind die Schlagzeilen über die gestern verschenkten Punkte wieder veraltet, kehrt auch schon die leider mittlerweile gewohnte "Nachrichtensperre" ein: Es gibt kaum Neuigkeiten!"
+title: "Kaum sind die Schlagzeilen über die gestern verschenkten Punkte wieder veraltet, kehrt auch schon die leider mittlerweile gewohnte Nachrichtensperre ein: Es gibt kaum Neuigkeiten!"
 ---
 
 Kaum sind die Schlagzeilen über die gestern verschenkten Punkte wieder veraltet, kehrt auch schon die leider mittlerweile gewohnte "Nachrichtensperre" ein: Es gibt kaum Neuigkeiten! Also halte ich mich an das, was von der Eintracht heute offiziell verlautete. Demnach feiert Lutz Meinl am 1. Oktober sein 20jähriges Jubiläum als Masseur bei der Eintracht. Wenigstens auf dieser Position gibt es Kontinuität! Wenn das bei den Trainern doch auch immer so gewesen wäre...  

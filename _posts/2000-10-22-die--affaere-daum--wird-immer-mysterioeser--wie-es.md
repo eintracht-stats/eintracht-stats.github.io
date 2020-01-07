@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Die "Affäre Daum" wird immer mysteriöser: Wie es aussieht sollte es heute eigentlich zu einer Aussprache zwischen Hoeneß und Daum kommen."
+title: "Die Affäre Daum wird immer mysteriöser: Wie es aussieht sollte es heute eigentlich zu einer Aussprache zwischen Hoeneß und Daum kommen."
 ---
 
 Die "Affäre Daum" wird immer mysteriöser: Wie es aussieht sollte es heute eigentlich zu einer Aussprache zwischen Hoeneß und Daum kommen. Zu diesem Anlass haben das Bayer-Präsidium um Rainer Calmund mit Erlaubnis bzw. auf Bitte von Daum das Institut in Köln, das die Haarprobe untersucht hat, gebeten, schon bis heute das Ergebnis vorzulegen. Eigentlich war das nämlich erst für frühestens morgen geplant. Aber Daum wollte halt bei dem Treffen mit Hoeneß etwas vorzuweisen haben, was seine Unschuld beweist. Wenn man den Sachverhalt kennt, gibt es für mich 3 Möglichkeiten: Entweder ist bei der Untersuchung ein Fehler unterlaufen, der dann ja bei der Untersuchung der B-Probe aufgedeckt würde. Oder Christoph Daum ist ein eiskalter Lügner, der mit dem positiven Ergebnis gerechnet hat und sich jetzt als Opfer eines Komplotts darstellen will. Dagegen spricht, dass er eine B-Probe analysieren lassen will. Wenn er was genommen hätte, würde das da ja wieder ermittelt. Die dritte Möglichkeit ist: Es war wirklich ein Komplott! Aber ich halte eigentlich alle 3 Möglichkeiten für sehr unwahrscheinlich. Aber eine Lösung habe ich auch nicht parat...

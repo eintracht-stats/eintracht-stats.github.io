@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Zunächst habe ich eine erschütternde Nachricht: Jörg Berger, zweimaliger Retter der Eintracht und "Macher" des Wunders vom Main 1999, ist an Darmkrebs erkrankt!"
+title: "Zunächst habe ich eine erschütternde Nachricht: Jörg Berger, zweimaliger Retter der Eintracht und Macher des Wunders vom Main 1999, ist an Darmkrebs erkrankt!"
 ---
 
 Zunächst habe ich eine erschütternde Nachricht: Jörg Berger, zweimaliger Retter der Eintracht und "Macher" des Wunders vom Main 1999, ist an Darmkrebs erkrankt! Der jetzige Trainer von Alemannia Aachen muss deshalb in Kürze operiert werden. Wir wünschen ihm auf diesem Wege gute Besserung und alles Gute!!! Du schaffst das!!!  

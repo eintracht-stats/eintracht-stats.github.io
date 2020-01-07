@@ -1,6 +1,6 @@
 ---
 layout: post
-title: ""Das hört sich an wie ein kleiner Wirtschaftskrimi", das ist die Meinung von Ralf Weber."
+title: "Das hört sich an wie ein kleiner Wirtschaftskrimi, das ist die Meinung von Ralf Weber."
 ---
 
 "Das hört sich an wie ein kleiner Wirtschaftskrimi", das ist die Meinung von Ralf Weber. Silvia Schenk fordert das Präsidium auf, noch vor der Mitgliederversammlung zurückzutreten. Andernfalls würde es dem Verein die Chance zum Neuanfang nehmen. Mit Heller/Lämmerhirdt will sie in Bezug auf das Stadion nicht mehr sprechen, weil sie sich angeblich immer widersprochen hätten. Sie hat auch den Beschluss, ein neues Stadion zu bauen, nur dem Verwaltungsrat und dem Schatz- meister mitgeteilt. Die FR nennt das zu Recht eine Bloßstellung. Aber trotzdem muss ich Schenk zustimmen. "Rolf Heller ist ein lieber, netter Kerl. Aber er hat seinen Laden nicht mehr im Griff." Dennoch haben sich Verwaltungsrat und Präsidium heute in einer gemeinsamen Sitzung ausgespro- chen. Sie sind nach eigenen Angaben zu einer vertrauensvollen Zusammenarbeit bereit! Wer's glaubt... Dann gab es heute noch ein Testspiel gegen Dynamo Minsk. Wieder gab es eine indiskutable Leistung und eine 0:2 Niederlage. Kein Wunder, denn Felix Magath liess mit einer Dreierabwehrkette vor Ralf Weber als Libero spielen. Ich finde, es ist zu spät für solche Experimente! Aber er will diese Lösung ja "nochmal überdenken". In dem Spiel gab übrigens Dirk Heinen seinen Einstand.

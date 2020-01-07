@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Ich habe zwei Zeitungsmeldungen "pro Eintracht" - und eine fast schon traditionelle "contra Eintracht"."
+title: "Ich habe zwei Zeitungsmeldungen pro Eintracht - und eine fast schon traditionelle contra Eintracht."
 ---
 
 Ich habe zwei Zeitungsmeldungen "pro Eintracht" - und eine fast schon traditionelle "contra Eintracht". Ich nehme natürlich erstmal das positive: Die Frankfurter Rundschau bestätigt in ihrer heutigen Ausgabe den gestrigen Artikel der FAZ. Die DFL habe der Eintracht zunächst bestätigt, dass mit der Bürgschaft alle Bedingungen zur Lizenzerteilung erfüllt wurden. Dann kam der ominöse Anruf... In der Begründung der DFL heißt es laut FR-Infos, dass die Helaba-Bürgschaft wegen der Bedingungen des Rückbürgen nicht ausreichend abgesichert war! Dazu passt am besten mein gestern am Telefon geäußerter Spruch: "Wenn Friseur Maier vom Laden nebenan eine 4-Millionen-Bürgschaft ohne Rückbürgen erteilt, wäre ich als DFL auch skeptisch. Aber der hessischen Landesbank muss man solch eine Summe ja wohl zutrauen..." Christoph Schickhardt sieht daher die Positon der Eintracht aufgrund der Begründung auch nicht erschüttert.  

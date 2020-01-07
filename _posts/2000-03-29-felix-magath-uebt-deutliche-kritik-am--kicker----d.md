@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Felix Magath übt deutliche Kritik am "Kicker": "Da wird doch etwas hochgekocht, was schon längst überholt ist!" Es fehle der Bezug zur Aktualität, da die genannten Zahlen schon seit dem 28.1.00 bekannt seien."
+title: "Felix Magath übt deutliche Kritik am Kicker: Da wird doch etwas hochgekocht, was schon längst überholt ist! Es fehle der Bezug zur Aktualität, da die genannten Zahlen schon seit dem 28.1.00 bekannt seien."
 ---
 
 Felix Magath übt deutliche Kritik am "Kicker": "Da wird doch etwas hochgekocht, was schon längst überholt ist!" Es fehle der Bezug zur Aktualität, da die genannten Zahlen schon seit dem 28.1.00 bekannt seien. Die weitere Entwicklung könne kein Aussenstehender beurteilen. Unglaublich findet er, dass der vertrauliche Brief des DFB an die Öffentlichkeit gedrungen ist. Nach Darstellung des DFB kann die undichte Stelle nur bei der Eintracht liegen. Fragt sich, wer der Maulwurf ist...!? Auf alle Fälle sorgt sich der Trainer um die Ruhe in der Mannschaft. Er hat deshalb an die Spieler appelliert, sich nur auf den Fußball zu konzentrieren. Er hält es jedoch für immer schwieriger, diese Aufgabe zu erfüllen.  

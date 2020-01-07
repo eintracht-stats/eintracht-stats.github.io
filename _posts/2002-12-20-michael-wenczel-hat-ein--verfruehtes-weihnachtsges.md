@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Michael Wenczel hat ein "verfrühtes Weihnachtsgeschenk" bekommen: Seine Frau brachte heute einen Sohn zur Welt, der passenderweise Fynn Noel heißt."
+title: "Michael Wenczel hat ein verfrühtes Weihnachtsgeschenk bekommen: Seine Frau brachte heute einen Sohn zur Welt, der passenderweise Fynn Noel heißt."
 ---
 
 Michael Wenczel hat ein "verfrühtes Weihnachtsgeschenk" bekommen: Seine Frau brachte heute einen Sohn zur Welt, der passenderweise Fynn Noel heißt. Herzlichen Glückwunsch! :-)  

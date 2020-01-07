@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Der gestrige Auftritt von Gábor Várszegi und Volker Sparmann im Sportkalender des HR hat mir die kurzfristige aufgekommene "Detari-Angst" wieder genommen."
+title: "Der gestrige Auftritt von Gábor Várszegi und Volker Sparmann im Sportkalender des HR hat mir die kurzfristige aufgekommene Detari-Angst wieder genommen."
 ---
 
 Der gestrige Auftritt von Gábor Várszegi und Volker Sparmann im Sportkalender des HR hat mir die kurzfristige aufgekommene "Detari-Angst" wieder genommen. Zwar war unser ehemaliger Spieler ebenfalls im HR-Studio anwesend. Doch Várszegi machte deutlich, dass er einen deutschen Trainer verpflichten möchte. Wer das ist, soll in dieser Woche endlich entschieden werden. Desweiteren bekräftigte der neue Vorstandsvorsitzende noch einmal, dass er auch überwiegend deutsche Spieler in der Mannschaft sehen will. Ungarn und andere Ausländer seien als "Farbtupfer" aber willkommen. Alles in allem machte Várszegi einen guten Eindruck und Hoffnung für die Zukunft. Aber ich messe bei der Eintracht jeden nur noch an seinen Taten...  

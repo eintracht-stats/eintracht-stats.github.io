@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Da Chris wie immer eigentlich mehr Zeit hat als ich, war er so frei schon mal die aktuellste Nachricht für mich zu verfassen: "Laut aktuellen Meldungen des Radiosenders FFH trifft sich morgen der Aufsichtsrat der Eintracht Fußball AG."
+title: "Da Chris wie immer eigentlich mehr Zeit hat als ich, war er so frei schon mal die aktuellste Nachricht für mich zu verfassen: Laut aktuellen Meldungen des Radiosenders FFH trifft sich morgen der Aufsichtsrat der Eintracht Fußball AG."
 ---
 
 Da Chris wie immer eigentlich mehr Zeit hat als ich, war er so frei schon mal die aktuellste Nachricht für mich zu verfassen: "Laut aktuellen Meldungen des Radiosenders FFH trifft sich morgen der Aufsichtsrat der Eintracht Fußball AG. Wie FFH aus gut informierten Kreisen erfahren haben möchte, stünden u.a. auch Diskussionen über die Zukunft Andermatts als Trainer der Eintracht auf der Tagesordnung. Angesichts der schlechten Finanzlage seien voreilige Entscheidungen - wie in der Vergangenheit - des Gremiums aber eher unwahrscheinlich. Persönlich denke ich, dass Andermatt auch am Samstag gegen den KSC wieder auf der Bank Platz nimmt. Wilde Spekulationen, Andermatt würde morgen rausgeschmissen, sind zum jetzigen Zeitpunkt überflüssig." In Bad Vilbel ansässige Leute haben aber eigentlich immer ganz gute News ;-) Aber lassen wir das... Wie kommt es eigentlich zum jetzigen Zeitpunkt zu einer Trainerdiskussion? Der Grund ist die schlechte Tabellensituation und als aktueller Auslöser das gestrige Spiel, zu dem jetzt endlich mein (Flips) Bericht erscheint:  

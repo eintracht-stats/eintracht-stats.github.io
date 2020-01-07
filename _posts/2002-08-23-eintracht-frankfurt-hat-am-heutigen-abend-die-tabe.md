@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Eintracht Frankfurt hat am heutigen Abend die Tabellenführung "verspielt"!"
+title: "Eintracht Frankfurt hat am heutigen Abend die Tabellenführung verspielt!"
 ---
 
 Eintracht Frankfurt hat am heutigen Abend die Tabellenführung "verspielt"! Weil Lübeck mit 6:0 gegen St. Pauli gewann (was ist denn hier los?), reichte der Eintracht das 2:0 gegen Greuther Fürth nicht zur Verteidigung der Tabellenspitze :-)  

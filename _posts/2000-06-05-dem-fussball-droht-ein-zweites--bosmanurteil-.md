@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Dem Fußball droht ein zweites "Bosman-Urteil"!"
+title: "Dem Fußball droht ein zweites Bosman-Urteil!"
 ---
 
 Dem Fußball droht ein zweites "Bosman-Urteil"! EU-Wettbewerbskomissar Monti prüft derzeit, ob Ablösesummen auch dann rechtswidrig sind, wenn ein Spieler aus einem laufenden Vertrag aussteigt. Damit könnten die Spieler praktisch gehen, wann immer sie wollen und alle Verträge würden völlig wertlos. Das wäre der Tod für den Fußball! "Bosman" war schon ein dramatischer Eingriff in die Grundregeln des Verhältnisses Spieler-Verein. Aber "Monti" wäre nicht mehr zu verkraften! Ich finde, man darf Fußballer nicht wie "normale" Arbeitnehmer behandeln. Im Sport muss eine Sonderregelung gefunden werden! Der neueste Stand der Transfergerüchte bei der Eintracht: Ciric (TeBe, etwa 2-3 Millionen) und Labak (Cottbus, ablösefrei) im Sturm, Wiesinger (Bayern) und Kapetanovic (Dortmund, 1,5 Millionen) für die rechte Seite. Patrick Falk soll trotz seiner Wechselabsichten gehalten werden. Heute habe ich von der Eintracht den Bestellschein für die neuen Dauerkarten erhalten. Selbstverständlich werde ich mir diesen Luxus wieder erlauben, auch wenn sich die Karte um 10 DM verteuert hat.  

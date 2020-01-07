@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Horst Heldt sieht sich von den Fans als Sündenbock für die schlechten Leistungen abgestempelt: "Ich bin hier im Moment für alles der Prügelknabe" und "Für mich gibt es nur noch auf die Fresse."
+title: "Horst Heldt sieht sich von den Fans als Sündenbock für die schlechten Leistungen abgestempelt: Ich bin hier im Moment für alles der Prügelknabe und Für mich gibt es nur noch auf die Fresse."
 ---
 
 Horst Heldt sieht sich von den Fans als Sündenbock für die schlechten Leistungen abgestempelt: "Ich bin hier im Moment für alles der Prügelknabe" und "Für mich gibt es nur noch auf die Fresse. Das finde ich äußerst unfair" sagte er auf seiner Homepage. Dazu fällt mir wirklich nichts mehr ein! Er sollte sich bewusst sein, dass er im Moment schlecht spielt! Er hat zwar das Tor gegen Leverkusen vorbereitet, aber... er hatte überaus viele Stockfehler in seinem Spiel und unvergessen bleibt wohl die Szene kurz vor der Pause als er freistehend vor dem Tor lieber einen genauso feigen wie schlechten Querpass spielte! Etwas mehr Selbstkritik, dann läufts auch wieder!  

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Ein letztes Mal heißt es heute "Neues aus dem Sommerloch" - denn morgen früh um 10 Uhr gibt es ja endlich das erste Training, das die Vorbereitung auf die neue Saison einläutet."
+title: "Ein letztes Mal heißt es heute Neues aus dem Sommerloch - denn morgen früh um 10 Uhr gibt es ja endlich das erste Training, das die Vorbereitung auf die neue Saison einläutet."
 ---
 
 Ein letztes Mal heißt es heute "Neues aus dem Sommerloch" - denn morgen früh um 10 Uhr gibt es ja endlich das erste Training, das die Vorbereitung auf die neue Saison einläutet. Wie die Sonntagszeitung "Sunday" berichtet, werden auch Sobotzik, Kracht und die anderen Ausgemusterten mit der Mannschaft trainieren. Denn demnach wird Martin Andermatt allen Spielern die Chance zur optimalen Vorbereitung auf die neue Spielzeit geben und keine separate Laufgruppe mit Bernhard Lippert einrichten. Ich weiß nicht, wie der wirkliche Stand der Dinge ist, aber eines weiß ich: Ab morgen wird es endlich wieder vernünftige Themen geben, über die ich hier schreiben kann! \*jubel\*  

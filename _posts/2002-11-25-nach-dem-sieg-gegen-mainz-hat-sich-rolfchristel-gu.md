@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Nach dem Sieg gegen Mainz hat sich Rolf-Christel Guie-Mien nach Angaben des "Kicker" mit seinem Berater und einem Vertreter von Olympique Marseille unterhalten."
+title: "Nach dem Sieg gegen Mainz hat sich Rolf-Christel Guie-Mien nach Angaben des Kicker mit seinem Berater und einem Vertreter von Olympique Marseille unterhalten."
 ---
 
 Nach dem Sieg gegen Mainz hat sich Rolf-Christel Guie-Mien nach Angaben des "Kicker" mit seinem Berater und einem Vertreter von Olympique Marseille unterhalten. Offensichtlich ging es dabei um einen Wechsel des Kongolesen... Eine Entscheidung über die Zukunft Guie-Miens ist aber noch nicht gefallen, zumal der Spieler demnächst auch mit der Eintracht über eine Vertragsverlängerung verhandeln wird.  
