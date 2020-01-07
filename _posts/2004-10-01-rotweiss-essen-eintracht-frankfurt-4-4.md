@@ -1,7 +1,6 @@
 ---
 layout: post
 title: "Rot-Weiss Essen-Eintracht Frankfurt 4:4"
-subtitle: "
 ---
 
 Die 16.900 Zuschauer an der Essener Hafenstraße erlebten heute eine unglaubliche Partie: Rot-Weiß Essen und die Eintracht trennten sich in einem Spiel, das praktisch ohne Defensive geführt wurde, mit 4:4. Bereits nach 5 Minuten ging die Eintracht in Führung: Reinhard hatte sich links gegen drei Mann durchgesetzt. Seine Flanke schoss Stefan Lexa aus spitzem Winkel ins Tor...
