@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "**\[Flip\]** _Am nächsten Morgen wollten wir so gegen halb neun aufstehen..."
+title: "Am nächsten Morgen wollten wir so gegen halb neun aufstehen..."
 ---
 
 **\[Flip\]** _Am nächsten Morgen wollten wir so gegen halb neun aufstehen... Wir schliefen jedoch etwas länger als geplant! Kein Wunder - wir mussten ja auch einiges an Schlaf nachholen. Geweckt wurden wir durch einen Telefonanruf von den wirklich rührenden Großeltern (die Tante schließe ich ab jetzt immer mit ein). Sie kamen am Morgen vorbei, tankten unsere Twingos voll und füllten unsere noch nicht verbrauchten Vorräte auf. Das war einfach unglaublich! Nach dem Frühstück sang mir unsere Stardirigentin ein Lied über ein "kleines Gespenst". Total süß... (das Lied natürlich...). Daraufhin gingen wir zu einem Markt, der mehrmals in der Woche in B. stattfindet. Dort findet man alles von frischem Obst und Gemüse, über Blumen bis hin zum typischen Touristenramsch. Wir besorgten für das Mittagessen Fisch (Das bietet sich am Mittelmeer ja geradezu an) und für den Abend Artischocken. Unsere Journalistin, die immer Angst hat hier erkannt zu werden, bereitete den Fisch zu. Auf der Suche nach Mehl fanden wir nur ein "poudre bizarre", das sich am Ende aber doch als echtes Mehl herausstellte. Ich hätte nie gedacht, dass Mehl eine solche Farbe annehmen kann... Dazu probierten wir zum ersten Mal eine französische Spezialität: Blé! Diese aufgequollenen Weizenkörner schmeckten sogar richtig gut.  
