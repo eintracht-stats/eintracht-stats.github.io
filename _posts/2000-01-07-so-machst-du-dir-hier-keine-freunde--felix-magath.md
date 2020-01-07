@@ -1,0 +1,6 @@
+---
+layout: post
+title: "So machst du dir hier keine Freunde, Felix Magath!"
+---
+
+So machst du dir hier keine Freunde, Felix Magath! Wir brauchen weder einen neuen Torwart, noch einen Stürmer!! Wenn du Oka Nikolov wie angekündigt zur Nummer 2 degradierst, hast du wahrscheinlich bei den Fans schon vor dem ersten Spiel verschissen. Fans vergessen nicht so schnell was Spieler für ihren Verein getan haben. Ohne Oka würden wir heute schon in der 2. Liga spielen! Und mit einem weiteren Stürmer müsste wahrscheinlich unser Held Jan-Age Fjörtoft auf die Bank. Um das zu rechtfertigen bräuchtest du wahrscheinlich einen Spieler von der Klasse eines Oliver Bierhoff! Viel wichtiger wäre ein neuer Mann für die linke Seite und ein neuer Manndecker. Frank Engel soll nach seiner Ablösung als Co-Trainer mit Bernhard Lippert den Job tauschen und die Amateure trainieren. Er hat sich bis Montag Bedenkzeit ausgebeten. Heute beginnt das Qualifikations-Turnier in Riesa. Dabei sind der HSV, Bielefeld, Hannover, der OFC, Rostock, Wolfsburg, Chemnitz und Cottbus. Bei den ganzen Ossis fehlt nur noch, dass die Tornetze aus Maschendrahtzaun bestehen! Nachtrag: Wir brauchen doch einen neuen Torwart: Sven Schmitt muss im März seinen Wehrdienst ableisten und steht also nicht zur Verfügung. Allerdings bleibe ich dabei, dass Oka Nikolov nicht auf die Bank darf!

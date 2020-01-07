@@ -1,0 +1,7 @@
+---
+layout: post
+title: "In der Presse geht es heute um die Unstimmigkeiten zwischen Willi Reimann und Jörg Berger nach dem Aachen-Spiel."
+---
+
+In der Presse geht es heute um die Unstimmigkeiten zwischen Willi Reimann und Jörg Berger nach dem Aachen-Spiel. Auf der Pressekonferenz nach dem Spiel hatten sich beide eine verbale Auseinandersetzung geliefert, weil Reimann mehrere Elfmeter für die Eintracht reklamiert hatte. Außerdem bezeichnete Berger die Eintracht als Spitzenmannschaft, was Reimann erst recht auf die Palme brachte. Stunden später im Sportkalender reagierte Reimann auf einen nicht vorliegenden Beitrag mit Jörg Berger mit den Worten: "Das ist nicht so wichtig. Der erzählt nicht so viel schlaue Sachen." Man könnte unseren Trainer natürlich jetzt als schlechten Verlierer bezeichnen. Aber ich finde das irgendwie sympathisch. Wenn mir jemand nach einer Niederlage blöd kommt und irgendwas falsches sagt, werde ich auch schon mal lauter. :-) Man darf nicht alles so hoch hängen!  
+Jens Keller sprach nach dem Spiel ebenfalls Klartext. Er kritisierte, dass einige Spieler nicht an ihre Leistungsgrenze gegangen seien. Außerdem appellierte er erneut an das Umfeld, die Erwartungen an die Mannschaft nicht zu hoch zu schrauben. Die Eintracht könne jede Mannschaft in der zweiten Liga schlagen - an einem schlechten Tag jedoch auch gegen jede verlieren. In den zwei Wochen bis zur nächsten Partie sollen die Fehler jetzt abgestellt werden, damit in Trier ein gutes Spiel abgeliefert werden kann. Warten wir's ab...

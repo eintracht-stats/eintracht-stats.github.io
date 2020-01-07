@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Kaum sind die Schlagzeilen über die gestern verschenkten Punkte wieder veraltet, kehrt auch schon die leider mittlerweile gewohnte "Nachrichtensperre" ein: Es gibt kaum Neuigkeiten!"
+---
+
+Kaum sind die Schlagzeilen über die gestern verschenkten Punkte wieder veraltet, kehrt auch schon die leider mittlerweile gewohnte "Nachrichtensperre" ein: Es gibt kaum Neuigkeiten! Also halte ich mich an das, was von der Eintracht heute offiziell verlautete. Demnach feiert Lutz Meinl am 1. Oktober sein 20jähriges Jubiläum als Masseur bei der Eintracht. Wenigstens auf dieser Position gibt es Kontinuität! Wenn das bei den Trainern doch auch immer so gewesen wäre...  
+Mehr News habe ich nicht. Also mache ich mich jetzt daran, die Statistiken von gestern abend auf den neuesten Stand zu bringen. Einige interessante Aspekte erwarten euch hier: Hättet ihr z.B. gedacht, dass die Eintracht noch kein Gegentor eines Stürmers kassiert hat? Die gegnerischen Verteidiger sind dagegen treffsicher wie selten: 4 von 6 Gegentreffern gehen auf ihr Konto! Eine weitere Information, die meine Datenbank hergibt, hat sich auch gestern wieder bestätigt: Wenn die Eintracht erst einmal vorne liegt, ist ein Punktgewinn fast sicher. Nach einer Führung gab es zuletzt im April beim 2:4 in Kaiserslautern eine Niederlage. Diese und alle weiteren unserer zahlreichen Statistiken findet ihr in Kürze auf unserer Seite. Stöbern lohnt sich hier natürlich immer...

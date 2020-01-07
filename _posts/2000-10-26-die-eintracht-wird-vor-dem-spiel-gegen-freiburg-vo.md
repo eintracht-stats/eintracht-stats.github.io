@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die Eintracht wird vor dem Spiel gegen Freiburg von heftigen Personalproblemen gebeutelt."
+---
+
+Die Eintracht wird vor dem Spiel gegen Freiburg von heftigen Personalproblemen gebeutelt. Neben den gestern schon genannten Ausfällen fehlen ja auch noch Chen Yang, Michael Mutzel, Bachirou Salou, Ralf Schmitt und Marco Gebhardt. Das Sturmduo stellt sich damit fast von selbst auf. Fjörtoft wird erstmals von Beginn an neben Reichenberger stürmen. Wegen der Personalnot rücken möglicherweise auch die Amateure Zinnow und Jones in den Kader. Ich will ja nicht unken, aber es sind schon ganz anderen Trainern Wechselfehler unterlaufen. Also Felix: Hubtschev, Guie-Mien (der noch eine kleine Chance auf einen Einsatz hat), Deißenberger, Preuß... sind auch Amateure! Ich traue unserem Trainer zwar durchaus zu, dass er zählen kann. \*g\* Aber mich hat eben so ein ungutes Gefühl beschlichen... Die Arbeiten an unserer großen Überraschung, die unsere Seite komplettieren wird, sind fast abgeschlossen. Chris hat heute den ganzen Tag damit verbracht und es dauert wirklich nicht mehr lange, dann ist es soweit! Ich weiß selbst noch nicht, was er aus meiner Vorarbeit gemacht hat und bin schon richtig gespannt...und ihr könnt es auch sein!

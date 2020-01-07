@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Bei der Eintracht wird wieder mächtig gegen Rolf Dohmen geschossen."
+---
+
+Bei der Eintracht wird wieder mächtig gegen Rolf Dohmen geschossen. Nach Äußerungen von Steven Jedlicki, wonach Dohmen im Moment seinen Namen schädige und bei einem Abstieg auch seine Weiterbeschäftigung als Sportdirektor in Frage stehe, ist noch mehr Unruhe im Umfeld entstanden. Eigentlich niemand glaubt noch, dass mit dieser Führungsriege eine Wende zum positiven eingeleitet werden kann. Auch Spieler sollen sich schon abwertend über den "Trainer" geäußert haben. Von Auflösungserscheinungen und mangelnder Autorität ist die Rede. Natürlich könnte ich jetzt wieder lang und breit meine Meinung hierzu wiedergeben. Aber ich muss im Moment an meine Zukunft denken und da sind eben eine gute Woche lang andere Dinge wichtiger: Das Abi steht vor der Tür. Daher könnte es sein, dass Daily Flip, sollte nichts außergewöhnliches passieren, bis nächste Woche in etwas kürzerer Form als gewohnt erscheint. Ich hoffe, ihr versteht das! Auf jeden Fall werde ich aber weiterhin zumindestens die Fakten darstellen und höchstens meine eigene Meinung weglassen. Ab nächster Woche gibt es Daily Flip wieder in der ausführlichen Form!

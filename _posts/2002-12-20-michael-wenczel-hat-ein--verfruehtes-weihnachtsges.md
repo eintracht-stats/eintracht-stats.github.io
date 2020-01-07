@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Michael Wenczel hat ein "verfrühtes Weihnachtsgeschenk" bekommen: Seine Frau brachte heute einen Sohn zur Welt, der passenderweise Fynn Noel heißt."
+---
+
+Michael Wenczel hat ein "verfrühtes Weihnachtsgeschenk" bekommen: Seine Frau brachte heute einen Sohn zur Welt, der passenderweise Fynn Noel heißt. Herzlichen Glückwunsch! :-)  
+Die DFL hat heute die Termine für die Spieltage 21-27 bekanntgegeben. Das Spitzenspiel gegen den 1. FC Köln wird das erste Heimspiel dieser Saison sein, das an einem Montag stattfindet. Es wird natürlich ebenso live im DSF übertragen wie das Auswärtsspiel in Duisburg am 24. Spieltag. Alle Termine findet ihr wie gewohnt in unserem **[Spielplan](http://www.eintracht-stats.de/content/tabellen/spielplan.shtml)**.  
+Wie versprochen noch ein paar Worte zu den Ergebnissen der Strukturkommission: Das wichtigste hatte ich gestern schon gesagt, aber ein paar Details kommen noch hinzu. Wie erwähnt, werden in Zukunft Profis, Amateure und die A-Jugend unter dem Dach der AG zusammengefasst. Das soll auch nach außen hin gezeigt werden, indem alle Mannschaften an einem Ort trainieren. Aufgrund der mangelhaften Verhältnisse am Riederwald ist hierfür das Waldstadion vorgesehen. Volker Sparmann hat mit Bürgermeister Achim Vandreike schon erste Gespräche über die Errichtung von sechs neuen Trainingsplätzen am Stadion geführt. Der zweite wichtige Punkt ist die Einstellung eines Managers. Dieser soll die Verantwortung über den gesamten Fußballbereich erhalten und schon langjährige Erfahrung in diesem Geschäft mitbringen. Im Gegensatz zu seinem Vorgänger Tony Woodcock wird der neue Mann aber keinen Platz im AG-Vorstand erhalten.

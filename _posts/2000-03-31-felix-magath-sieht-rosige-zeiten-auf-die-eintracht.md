@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Felix Magath sieht rosige Zeiten auf die Eintracht zukommen: "Hier sind die Weichen gestellt und die Infrastruktur geschaffen worden, damit dieser Traditionsverein höchsten Ansprüchen genügen kann."
+---
+
+Felix Magath sieht rosige Zeiten auf die Eintracht zukommen: "Hier sind die Weichen gestellt und die Infrastruktur geschaffen worden, damit dieser Traditionsverein höchsten Ansprüchen genügen kann. Wir wollen ins internationale Geschäft." Er sieht es als eine Ehre an, das in Angriff nehmen zu dürfen. Den Zeitpunkt der Vertragsverlängerung möchte er als ein Zeichen an die Konkurrenten verstanden wissen, dass "wir von außen keine Unruhe hinein tragen lassen." Und die lange Vertragsdauer soll laut Schatzmeister Leben für Kontinuität stehen. Es wäre ja unglaublich, wenn es das bei der Eintracht mal gäbe! Auf jeden Fall behält Magath erst einmal auch die Managerstelle inne. Er soll sich jetzt um den Kader für die nächste Saison kümmern. Der Spieltag verlief heute durchwachsen. Freiburg konnte zwar gegen Unterhaching mit 4:3 gewinnen, aber der MSV besiegte auch den SSV Ulm mit 3:0. Damit dürfte der "Schwimmsportverein" endgültig der härteste Konkurrent der Eintracht sein. Wenn morgen gewonnen wird...

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Bei der Eintracht herrscht wirklich momentan die Seuche: Jeden Tag ein neuer verletzungs- oder krankheitsbedingter Ausfall!"
+---
+
+Bei der Eintracht herrscht wirklich momentan die Seuche: Jeden Tag ein neuer verletzungs- oder krankheitsbedingter Ausfall! Diesmal hat es allerdings keinen Spieler erwischt, sondern "nur" unseren Co-Trainer: Jan Kocian wurde gestern am Blinddarm operiert... Nach dem Vormittagstraining hatte er starke Bauchschmerzen und wurde von Mannschaftsarzt Dr. Seeger sofort ins Krankenhaus geschickt. Bei der Untersuchung wurde dann eine Blinddarmentzündung festgestellt, so dass Kocian noch am Abend operiert wurde. Er muss deshalb natürlich noch ein paar Tage im Krankenhaus bleiben und wird somit auch in Mannheim fehlen.  
+Kommen wir zur Mannschaft: Beim gestrigen Ausblick auf das Mannheimspiel ist bei der Betrachtung der wahrscheinlichen Abwehrformation ein kleiner Fehler unterlaufen - ich habe nämlich die wahrscheinlichste Variante gar nicht bedacht :-) Die Frankfurter Rundschau liefert sie dafür heute nach. Demnach rückt Sven Günter von der linken Abwehrposition auf die rechte Seite und ersetzt dort Uwe Bindewald. Henning Bürger rückt an seiner Stelle in die Viererkette und Serge Branco übernimmt wiederum dessen Position im linken Mittelfeld.  
+Auch im Sturm könnte eine neue Variante Realität werden: Dino Toppmöller übernimmt vielleicht einen Platz im Sturm, möglich ist aber auch das Duo Skela/Guie-Mien. Dann würden wiederum Daniyel Cimen oder Lars Weißenfeldt auf einen Platz in der Startformation hoffen dürfen. Diesmal hat der Trainer wirklich eine komplizierte Aufgabe...

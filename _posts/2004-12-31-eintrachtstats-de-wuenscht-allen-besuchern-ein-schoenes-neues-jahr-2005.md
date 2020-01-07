@@ -8,47 +8,47 @@ Die Zeit rast nur so dahin, denn schon wieder ist ein Jahr zu Ende gegangen. Und
 
 Das brachte das Jahr 2004...
 
-\- eine leider nicht von Erfolg gekrönte Aufholjagd, die im Abstieg in Hamburg endete, woraufhin Willi Reimann sich in einen Urlaub ohne Wiederkehr verabschiedete  
-\- Willi Reimanns Schubser gegen den 4. Schiri Thorsten Schriever  
-\- Reimanns Verbannung auf die Tribüne mit seinem kultigen Intermezzo im Baucontainer  
-\- die Winterverpflichtungen Hertzsch und Amanatidis, die voll einschlugen und heute schon längst wieder weg sind  
-\- die Killer-Grätsche im Trainingslager, mit der Geri Cipi Uwe Bindewald niederstreckte  
-\- das Ende von Uwe Bindewalds Zeit im Eintracht-Trikot  
-\- die Europameisterschaft in Portugal...  
-\- die mit dem 1:1 gegen Holland so gut begann...  
-\- dann mit dem Unentschieden gegen Lettland schon so gut wie vorbei war...  
-\- und mit der Niederlage gegen Tschechien endete  
-\- der Sensations-Sieg der Griechen, der König Otto unsterblich werden ließ  
-\- der Rücktritt von Rudi Völler  
-\- die anschließende, recht peinliche Trainersuche von MV  
-\- die Inthronisation von Jürgen Klinsmann...  
-\- der den DFB komplett umkrempelte falls er sich mal nicht in den USA befand,  
-\- nebenbei das Denkmal Sepp Meier demontierte,  
-\- Oliver Bierhoff die wohl sinnloseste Tätigkeit im deutschen Fußball verschaffte...  
-\- und dem der Erfolg einfach bislang Recht gibt  
-\- die zahlreichen Debütanten: Fahrenhorst, Huth, Görlitz, Hitzlsperger, Mertesacker, Owomoyela, Schulz und Engelhardt  
-\- unser fast fertiges Stadion, das einfach der Hammer ist  
-\- die Wasserfälle, die das noch nicht fertige Dach mit sich brachte  
-\- der neue Frankfurter Jugendstil  
-\- das Juwel Christopher Reinhardt  
-\- das Comeback von Jens Keller  
-\- verrückte Ergebnisse wie das 6:2 gegen RWO und das 4:4 in Essen  
-\- die Randale nach dem Spiel in Essen  
-\- die Oktober-Krise, die den Aufstieg in weite Ferne rücken ließ  
-\- Arie van Lent, der sich aus seiner persönlichen Krise schoss und nun an der Spitze der Torjägerliste steht  
-\- das Sommertheater um Chris...  
-\- der die Vertragsverlängerung der Eintracht per Option nicht akzeptierte...  
-\- wochenlang verschollen war und in dieser Zeit irgendein Schriftstück in Brasilien unterzeichnete...  
-\- dann doch bei der Eintracht verlängerte...  
-\- und jetzt 4 Monate gesperrt wurde  
-\- das erfolgreiche Auftreten der deutschen Europapokal-Teilnehmer, dabei allen voran Zweitligist Alemannia Aachen  
-\- die Krise unserer Amateure  
-\- die ständigen Geldstrafen wegen irgendwelcher Flaschenwürfe  
-\- die Freude, endlich wieder eine Heynckes-freie Liga zu haben  
-\- der schleichende Niedergang des BVB (Abstiegskampf, hohe Verbindlichkeiten und ein Aktienkurs auf Rekord(tief)-Niveau)  
-\- die gute Leistung der Mainzer, die man einfach anerkennen muss...  
-\- auch wenn das ständige Gerede vom Mainzer Spaßfußball einem wirklich langsam auf die Nerven geht (nächste Saison steigen sie aber sowieso wieder ab)  
-\- und die Hoffnung, auf ein neues Aufstiegs-Wunder hier in Frankfurt...
+- eine leider nicht von Erfolg gekrönte Aufholjagd, die im Abstieg in Hamburg endete, woraufhin Willi Reimann sich in einen Urlaub ohne Wiederkehr verabschiedete  
+- Willi Reimanns Schubser gegen den 4. Schiri Thorsten Schriever  
+- Reimanns Verbannung auf die Tribüne mit seinem kultigen Intermezzo im Baucontainer  
+- die Winterverpflichtungen Hertzsch und Amanatidis, die voll einschlugen und heute schon längst wieder weg sind  
+- die Killer-Grätsche im Trainingslager, mit der Geri Cipi Uwe Bindewald niederstreckte  
+- das Ende von Uwe Bindewalds Zeit im Eintracht-Trikot  
+- die Europameisterschaft in Portugal...  
+- die mit dem 1:1 gegen Holland so gut begann...  
+- dann mit dem Unentschieden gegen Lettland schon so gut wie vorbei war...  
+- und mit der Niederlage gegen Tschechien endete  
+- der Sensations-Sieg der Griechen, der König Otto unsterblich werden ließ  
+- der Rücktritt von Rudi Völler  
+- die anschließende, recht peinliche Trainersuche von MV  
+- die Inthronisation von Jürgen Klinsmann...  
+- der den DFB komplett umkrempelte falls er sich mal nicht in den USA befand,  
+- nebenbei das Denkmal Sepp Meier demontierte,  
+- Oliver Bierhoff die wohl sinnloseste Tätigkeit im deutschen Fußball verschaffte...  
+- und dem der Erfolg einfach bislang Recht gibt  
+- die zahlreichen Debütanten: Fahrenhorst, Huth, Görlitz, Hitzlsperger, Mertesacker, Owomoyela, Schulz und Engelhardt  
+- unser fast fertiges Stadion, das einfach der Hammer ist  
+- die Wasserfälle, die das noch nicht fertige Dach mit sich brachte  
+- der neue Frankfurter Jugendstil  
+- das Juwel Christopher Reinhardt  
+- das Comeback von Jens Keller  
+- verrückte Ergebnisse wie das 6:2 gegen RWO und das 4:4 in Essen  
+- die Randale nach dem Spiel in Essen  
+- die Oktober-Krise, die den Aufstieg in weite Ferne rücken ließ  
+- Arie van Lent, der sich aus seiner persönlichen Krise schoss und nun an der Spitze der Torjägerliste steht  
+- das Sommertheater um Chris...  
+- der die Vertragsverlängerung der Eintracht per Option nicht akzeptierte...  
+- wochenlang verschollen war und in dieser Zeit irgendein Schriftstück in Brasilien unterzeichnete...  
+- dann doch bei der Eintracht verlängerte...  
+- und jetzt 4 Monate gesperrt wurde  
+- das erfolgreiche Auftreten der deutschen Europapokal-Teilnehmer, dabei allen voran Zweitligist Alemannia Aachen  
+- die Krise unserer Amateure  
+- die ständigen Geldstrafen wegen irgendwelcher Flaschenwürfe  
+- die Freude, endlich wieder eine Heynckes-freie Liga zu haben  
+- der schleichende Niedergang des BVB (Abstiegskampf, hohe Verbindlichkeiten und ein Aktienkurs auf Rekord(tief)-Niveau)  
+- die gute Leistung der Mainzer, die man einfach anerkennen muss...  
+- auch wenn das ständige Gerede vom Mainzer Spaßfußball einem wirklich langsam auf die Nerven geht (nächste Saison steigen sie aber sowieso wieder ab)  
+- und die Hoffnung, auf ein neues Aufstiegs-Wunder hier in Frankfurt...
 
 Tja, damit kommen wir jetzt zum privaten Teil meines Jahresrückblicks. Und da bleibt die bittere Erkenntnis: 2004 ist ein von vorne bis hinten und damit komplett verlorenes Jahr! Normalerweise hat ein Jahr bekanntlich zwölf Monate. 2004 war für mich allerdings bereits nach neun Monaten beendet. Und ausgerechnet die fehlenden drei Monate haben dabei einen bleibenden Eindruck hinterlassen...
 
@@ -76,31 +76,31 @@ So, jetzt ist erst mal Schluss mit diesem Thema. Denn ich denke ich habe alles g
 
 Das Jahr 2004 hat auch ein paar andere Dinge mit sich gebracht, die ich jetzt doch noch in ein paar Stichworten zusammenfasse. Folgendes erscheint mir wichtig:
 
-\- das Pilawa-Casting mit Chris  
-\- mein Festplatten-Crash, der mein halbes Leben auslöschte  
-\- eine von heute auf morgen halbierte Handy-Rechnung  
-\- reduzierter Nudelkonsum im letzten Quartal  
-\- erhöhter Schokoladenkonsum im letzten Quartal  
-\- meine Blindfahrt in die Hecke auf meinem Lieblings-Parkplatz  
-\- der Pfarrer, der meine Schwester ernsthaft fragte, ob ich ihr Sohn sei (wenn Blicke töten könnten...)  
-\- ganz große Brettspiel-Sessions mit Chris  
-\- Putzaktionen in Portugal  
-\- Alisuper, der alte Halsabschneider  
-\- die wenig Vertrauen erweckende Gruppe von Dresdner Fans, die Mitte der ersten Halbzeit auf unserer Tribüne auftauchte und einen Ordner dazu veranlasste, sich in Zivilkleidung unters Publikum zu mischen  
-\- ein renoviertes Wohnzimmer und ein komplett neues Bad  
-\- mein mittlerweile im Chaos versunkenes Zimmer  
-\- mein "Durchspülungs-Medikament", das seit drei Monaten fast unverändert voll ist  
-\- mein täglicher Spießrutenlauf durch die Jordanstraße  
-\- die Erkenntnis, dass ich doch kein Frauenversteher bin, weil man diese Wesen gar nicht verstehen KANN  
-\- die nicht ganz neue Erkenntnis, dass sich jeder Selbstmörder ausgerechnet auf meiner Bahnstrecke vor den Zug schmeißt  
-\- das tolle Prüfungsanmeldesystem an der Uni, das leider zu riesigen Warteschlangen vor dem Prüfungsamt führte  
-\- die Erkenntnis, dass eine gefühlte 5 auch eine 1,3 sein kann  
-\- meine in diesem Semester schon sehr unausstehliche Art, für die ich mich bei meiner Uni-Bekanntschaft entschuldigen muss. Mir wurde kurz vor Semesterbeginn eben einfach der Boden unter den Füßen weggezogen... **SORRY, liebes Finanzgenie!!!** Ich komme jetzt hoffentlich bald wieder aus meinem Schneckenhaus raus - zumindest so weit wie vor dem oben beschriebenen Drama ;-)  
-\- Chris und seine Grundschullehrerinnen  
-\- die beste E-Mail meines Lebens, auf die ich leider keine Antwort bekommen habe  
-\- der irre Geisterfahrer, der mich um ein Haar gerammt hätte. Da steigt der Blutdruck...  
-\- ein unschätzbar wichtiges Dieter-Bohlen-Buch  
-\- und als Stargast: the one and only... FÖN!!!
+- das Pilawa-Casting mit Chris  
+- mein Festplatten-Crash, der mein halbes Leben auslöschte  
+- eine von heute auf morgen halbierte Handy-Rechnung  
+- reduzierter Nudelkonsum im letzten Quartal  
+- erhöhter Schokoladenkonsum im letzten Quartal  
+- meine Blindfahrt in die Hecke auf meinem Lieblings-Parkplatz  
+- der Pfarrer, der meine Schwester ernsthaft fragte, ob ich ihr Sohn sei (wenn Blicke töten könnten...)  
+- ganz große Brettspiel-Sessions mit Chris  
+- Putzaktionen in Portugal  
+- Alisuper, der alte Halsabschneider  
+- die wenig Vertrauen erweckende Gruppe von Dresdner Fans, die Mitte der ersten Halbzeit auf unserer Tribüne auftauchte und einen Ordner dazu veranlasste, sich in Zivilkleidung unters Publikum zu mischen  
+- ein renoviertes Wohnzimmer und ein komplett neues Bad  
+- mein mittlerweile im Chaos versunkenes Zimmer  
+- mein "Durchspülungs-Medikament", das seit drei Monaten fast unverändert voll ist  
+- mein täglicher Spießrutenlauf durch die Jordanstraße  
+- die Erkenntnis, dass ich doch kein Frauenversteher bin, weil man diese Wesen gar nicht verstehen KANN  
+- die nicht ganz neue Erkenntnis, dass sich jeder Selbstmörder ausgerechnet auf meiner Bahnstrecke vor den Zug schmeißt  
+- das tolle Prüfungsanmeldesystem an der Uni, das leider zu riesigen Warteschlangen vor dem Prüfungsamt führte  
+- die Erkenntnis, dass eine gefühlte 5 auch eine 1,3 sein kann  
+- meine in diesem Semester schon sehr unausstehliche Art, für die ich mich bei meiner Uni-Bekanntschaft entschuldigen muss. Mir wurde kurz vor Semesterbeginn eben einfach der Boden unter den Füßen weggezogen... **SORRY, liebes Finanzgenie!!!** Ich komme jetzt hoffentlich bald wieder aus meinem Schneckenhaus raus - zumindest so weit wie vor dem oben beschriebenen Drama ;-)  
+- Chris und seine Grundschullehrerinnen  
+- die beste E-Mail meines Lebens, auf die ich leider keine Antwort bekommen habe  
+- der irre Geisterfahrer, der mich um ein Haar gerammt hätte. Da steigt der Blutdruck...  
+- ein unschätzbar wichtiges Dieter-Bohlen-Buch  
+- und als Stargast: the one and only... FÖN!!!
 
 Ich kenne meine treuesten Leser, deren Neugier sie doch immer mal wieder zu mir treibt (Hallo Kampfschwein). Und wer bis hierhin durchgehalten hat, sollte natürlich eigentlich auch nicht enttäuscht werden. Aber wenn ich jetzt noch ein paar Worte zu Chris verlieren würde, würde das endgültig den Rahmen sprengen. Im nächsten Jahr vielleicht wieder (weil da gibt's ja wohl kaum Neuigkeiten von mir...)
 

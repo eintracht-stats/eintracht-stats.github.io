@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die Aufregung war wohl umsonst."
+---
+
+Die Aufregung war wohl umsonst. Andreas Möller wird mit an Sicherheit grenzender Wahrscheinlichkeit nicht Sportdirektor bei der Eintracht. Der Spieler hat erklärt, dass seine Zukunft noch offen sei, er sich aber ein Engagement bei Schalke oder Dortmund eher vorstellen könnte als den Job bei der Eintracht. Bleibt die Frage, was es mit dem Sportbild-Artikel auf sich hatte... War es eine bewusst gelegte Nebelkerze um die Verhandlungen mit dem richtigen Kandidaten in aller Ruhe führen zu können? War es eine strategische Maßnahme um den richtigen Kandidaten schon im Voraus zu "entschuldigen"? Nach dem Motto: "Die Fans werden über jeden Mann froh sein, der nicht Möller heißt?" Die Frankfurter Rundschau räumt jedenfalls weiterhin Thomas Berthold die besten Chancen für diesen Posten ein, der allerdings schon erklärt hat nur zur Verfügung zu stehen, wenn er sein eigenes "Team" mitbringen kann. Diese Lösung würde aber ohnehin nur möglich, wenn die DBVI bei der Eintracht einsteigt (darüber wird ja schon länger spekuliert). Und hier kommen wir wieder zum Problemfeld Investor/Stadionbetrieb/Stadt. Die Abgabe der Lizenzunterlagen rückt näher. Mehr brauche ich dazu wohl nicht zu sagen...

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Für Alexander Schur ist die Saison möglicherweise schon beendet."
+---
+
+Für Alexander Schur ist die Saison möglicherweise schon beendet. Er musste ja am Wochenende wegen seiner schon seit Wochen anhaltenden Leistenbeschwerden passen. Morgen fährt er zur Untersuchung nach Kaiserslautern, wo er im schlimmsten Fall sofort operiert wird. Allerdings hofft die medizinische Abteilung der Eintracht, dass eine OP noch zwei Wochen aufgeschoben werden kann.  
+Mit noch größerer Wahrscheinlichkeit wird Serge Branco im Abstiegskampf nicht mehr für die Eintracht auflaufen können. Sein Foul war auf jeden Fall rotwürdig und er wird deshalb nicht mit einem Spiel Sperre davonkommen. Da hilft leider auch sein reuiges Verhalten nicht weiter. Direkt nach dem Platzverweis war er ja, den Tränen nahe, vor Schiri Merk auf die Knie gegangen. Der hatte scheinbar tatsächlich Mitgefühl, aber die Rote Karte war korrekt. Branco selbst gibt sich nun eine Mitschuld, wenn die Mannschaft jetzt absteigen sollte. Sein Fehler tut ihm nach eigenen Angaben sehr leid. Das nehme ich ihm auch ab. Und das, obwohl er gestern im Sportkalender die Abwanderungsgerüchte in Richtung Stuttgart nicht gerade aus der Welt schaffte...  
+Nicht nur Felix Magath buhlt um die Eintracht-Spieler: Nach Kicker-Informationen hat Hansa Rostock Interesse an Pawel Kryszalowicz - trotz seines Vertrages bis 2003! Wie die Aasgeier!!! Die Eintracht ist noch nicht abgestiegen! Und solange das nicht der Fall ist, empfinde ich solche Abwerbeversuche als höchst unmoralisch! Aber so ist das Geschäft nun mal...  
+Chen Yang flog mittlerweile wieder nach China. Er könnte höchstens das Saisonfinale noch für die Eintracht bestreiten, wenn die Chinesen sich schon vorher für die nächste Runde der WM-Qualifikation qualifizieren. Also wird der Abstiegskampf ein wenig auch in Fernost entschieden...  
+Noch eine Nachricht in eigener Sache: Ein Teil meines Kurz-Interviews mit HR3 wurde heute tatsächlich gesendet! Ich hätte mich zwar nicht erkannt, wenn ich nicht darauf geachtet hätte. Aber ich war tatsächlich mindestens zweimal an diesem Tag zu hören.

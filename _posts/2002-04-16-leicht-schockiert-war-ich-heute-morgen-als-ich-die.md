@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Leicht schockiert war ich heute morgen als ich die Zeitung aufschlug."
+---
+
+Leicht schockiert war ich heute morgen als ich die Zeitung aufschlug. In der FR stand doch tatsächlich, dass Aleksandar Ristic durchaus Interesse an einem Trainerjob bei der Eintracht hätte. Er sagte allerdings nicht, dass die Eintracht an ihn herangetreten sei. Und da er nach eigener Aussage bis zum erreichten Klassenerhalt alle Konzentration auf seinen aktuellen Verein Rot-Weiß Oberhausen legen will, scheint dieser Kelch noch einmal an uns vorbei zu gehen. Denn dann könnte er ja nicht schon für die Eintracht die neue Saison planen, wie Tony Woodcock es gestern von den Trainerkandidaten berichtete... Unterdessen lösen sich weitere Gerüchte um den neuen Mann auf der Bank langsam in Luft auf. So verhandelt Rudi Bommer in diesen Tagen mit Wacker Burghausen über einen Zweitligavertrag für nächstes Jahr - in der Regionalliga liefe der Kontrakt ohnehin weiter. Stefan Kuntz kann sich wie er sagte kein Engagement bei der Eintracht vorstellen und an Lorenz-Günter Köstner wurde keine Anfrage gestellt. Das Rätselraten geht weiter... Bleibt noch zu erwähnen, dass Michael Mutzel wahrscheinlich in Verhandlungen mit dem VfB Stuttgart steht. Der Mittelfeldspieler könnte ablösefrei zu Felix Magath ins Schwabenland wechseln.

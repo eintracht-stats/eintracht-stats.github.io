@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Nachdem alle Nationalspieler wohlbehalten von ihren Länderspielreisen zurückgekehrt sind, richtet sich der Blick nun endlich wieder auf die Liga."
+---
+
+Nachdem alle Nationalspieler wohlbehalten von ihren Länderspielreisen zurückgekehrt sind, richtet sich der Blick nun endlich wieder auf die Liga. Die Eintracht trifft am Montag im Wildparkstadion auf den Karlsruher SC. Bei den Badenern wird auch ein Spieler auflaufen, der fast im Eintracht-Trikot gelandet wäre - wenn der damalige Sportdirektor Dohmen nicht vergessen hätte den Spieler seine Unterschrift unter einen Vertrag setzen zu lassen, der der Eintracht die Transferrechte an dem Talent überschreiben sollte... Die Rede ist natürlich von Clemens Fritz, der in diesem Sommer aus Erfurt zum KSC wechselte. Die Eintracht bemüht sich weiterhin um einen Anteil an der vom KSC gezahlten Transfersumme, aber ein Erfolg konnte bisher noch nicht verbucht werden. Wichtiger wäre sicherlich auch ein Erfolg auf dem grünen Rasen. Mit einem Sieg könnte die Eintracht die Tabellenführung ausbauen und auch ein Punktgewinn wäre nicht zu verachten. Und die Chancen stehen denke ich nicht schlecht! Welche Spieler für die Eintracht auflaufen werden, ist natürlich noch nicht abzusehen. Dazu in den nächsten Tagen mehr... Dann wird auch mein ausführlicher Vorbericht erscheinen!

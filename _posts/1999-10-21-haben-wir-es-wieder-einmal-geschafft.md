@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Haben wir es wieder einmal geschafft!"
+---
+
+Haben wir es wieder einmal geschafft! Echt klasse! Als ob wir nicht schon genug Probleme hätten!Heute ist der als Schatzmeister entlassene und auf den Vizepräsidentenposten ohne Aufgabenbereich vertröstete Gaetano Patella zurückgetreten. Anhaltende Querelen um seine Position, wie es offiziell heißt. Ich nenne das eine Riesensauerei! Er hat Verantwortung übernommen als es ganz schlecht um die Eintracht stand. Und jetzt wo sie halbwegs aus dem Gröbsten raus sind, wird er weggeekelt, weil es plötzlich wieder "in" ist für die Eintracht zu arbeiten. Plötzlich reißen sich alle um die Macht, nicht wahr Herr Ehinger?? Ich bin enttäuscht und stinksauer! Wieso ist es nicht einmal möglich kontinuierlich seinem Namen alle Ehre zu machen? Immer wieder diese Rückfälle in "Zwietracht Zankfurt". Nach dem Spiel gegen Schalke soll der neue Schatzmeister vorgestellt werden, er wird nur schwer bessere Arbeit leisten können... An dieser Stelle muß ich jetzt einfach Herrn Patella danken: Wir Fans werden nie vergessen, was sie für diesen Verein getan haben!! Großartige Arbeit!! Ohne sie, wäre die Eintracht wahrscheinlich nur noch eine Akte auf dem Tisch eines Konkursverwalters und würde unter geändertem Namen in Kanalliga C spielen! Schade, daß alles so enden "mußte"! GRAZIE GAETANO!!!

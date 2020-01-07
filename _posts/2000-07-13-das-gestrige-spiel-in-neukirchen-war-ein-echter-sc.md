@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Das gestrige Spiel in Neukirchen war ein echter Schlag ins Wasser."
+---
+
+Das gestrige Spiel in Neukirchen war ein echter Schlag ins Wasser. Das Ergebnis von 1:0 für den Oberligisten macht mir dabei allerdings keine Sorgen. Da bisher nur Kondition gebolzt wurde, ist das eine logische Folge. Man konnte ja schon bei den letzten Spielen erkennen, dass die Kraft am schwinden war (16:0, 10:0, 6:1, 1:1). Das sieht auch der Trainer so: "Jeder konnte sehen, wo unsere spielerischen Grenzen liegen, wenn wir nicht fit sind." Aber richtig schwer wiegt die Verletzung von Alexander Schur. Er brach sich nach einer Stunde den Unterarm und fällt voraussichtlich 6 Wochen aus. Der Abräumer im Mittelfeld muss operiert werden und wird damit beim Saisonauftakt fehlen. Er hat aber auch wirklich jedes Jahr in der Vorbereitung Pech! In der letzten Saison zog er sich ja einen Jochbeinbruch zu. Die Entscheidung über die Lizenzvergabe für TeBe ist immer noch nicht gefallen. Das Gericht hat sich bis Dienstag vertagt. Das Problem für die Eintracht ist dabei nicht nur die weiter offene Frage, ob für Sasa Ciric eine Ablöse fällig wird. Vorher erhält der Stürmer nämliclh auch keine Spielgenehmigung und kann sich deshalb nicht mit der Mannschaft einspielen. Und das ist richtig ärgerlich.

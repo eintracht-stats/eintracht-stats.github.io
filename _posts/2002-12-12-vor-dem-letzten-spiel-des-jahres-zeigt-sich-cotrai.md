@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Vor dem letzten Spiel des Jahres zeigt sich Co-Trainer Jan Kocian zuversichtlich."
+---
+
+Vor dem letzten Spiel des Jahres zeigt sich Co-Trainer Jan Kocian zuversichtlich. Er ist der Meinung, dass die Eintracht auch in Reutlingen punkten und damit den Vorsprung auf Platz 4 halten kann. Auch dem Fehlen von Jens Keller kann er etwas positives abgewinnen: Wenn der Abwehrchef jetzt gesperrt ist, kann er beim harten Auftaktprogramm nach der Winterpause mit dabei sein :-) Für den Sonntag muss aber natürlich eine Alternative gefunden werden. Die Viererkette wird daher wohl mit Bindewald und Tsoumou-Madza auf den Innenpositionen sowie Weißenfeldt rechts und Wiedener links auflaufen. Jermaine Jones wird zunächst als Joker auf der Bank sitzen und nur bei einem Ausfall von Guie-Mien von Beginn an spielen. Der Topjäger unserer Eintracht kann frühestens morgen wieder trainieren, so dass sein Einsatz noch nicht gesichert ist...  
+Der DFB-Kontrollausschuss hat entschieden: Die Eintracht muss wegen der Vorfälle beim Spiel gegen Oberhausen eine Geldstrafe von 25.000 Euro zahlen. Wir sind noch einmal relativ glimpflich davongekommen (auch wenn jeder Euro weh tut). Beim nächsten Mal wird sich aber nicht nur die Geldstrafe erhöhen: Der Kontrollausschuss erklärte ausdrücklich, dass dann eine Platzsperre und/oder ein Punktabzug fällig ist! Und jetzt muss es wirklich auch der letzte Idiot kapiert haben: Pyro hat beim Fußball nichts verloren!!! Die Sache ist nicht mehr lustig!!!

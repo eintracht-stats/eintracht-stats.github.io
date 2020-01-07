@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die hochgehandelte Mannschaft aus Spanien hat den Elchtest nicht bestanden!"
+---
+
+Die hochgehandelte Mannschaft aus Spanien hat den Elchtest nicht bestanden! Gegen Norwegen setzte es eine 0:1-Schlappe. In einem niveauarmen Spiel (die Norweger spielten 4-5-1 und die Spanier ideenlos) erzielte Steffen Iversen das goldene Tor. Nach dem verrücktesten Spiel dieser EM bin ich fast ein wenig traurig. Der krasse Aussenseiter Slowenien führte im Spiel gegen Jugoslawien schon 3:0 - und hat nicht gewonnen. Aber der Reihe nach: 2x Zlatko Zahovic und Miran Pavlin legten die Tore vor. Dann brannten bei Sinisa Mihajlovic (Jugoslawien) die Sicherungen durch. Erst gemeckert, dann ein katastrophaler Fehlpass zum 3:0 und zum Schluss ein Schubser bedeuteten Gelb-Rot. Mit einem Mann weniger gelang ihnen dennoch das 1:3 durch Milosevic. Und bei den Slowenen brachen alle Dämme, so dass die Jugoslawen, die zuvor chancenlos waren, tatsächlich noch zum Ausgleich kamen (Drulovic und erneut Milosevic). Am Ende waren alle Akteure stehend K.O. Was für eine Tragik in diesem Spiel! Ich hätte es den Slowenen von Herzen gegönnt. Fußball kann so grausam sein. Denn eine tolle Leistung wird eben nicht immer belohnt!

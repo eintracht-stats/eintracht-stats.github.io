@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Thomas Reichenberger bleibt vom Pech verfolgt!"
+---
+
+Thomas Reichenberger bleibt vom Pech verfolgt! Sein Bänderanriss an der Fußsohle ist wieder aufgebrochen! Damit fehlt er auf jeden Fall beim Heimspiel gegen den HSV. Positiv für ihn und die Eintracht ist, dass am darauffolgenden Wochenende die WM-Qualifikation ansteht, so dass er hier kein Bundesligaspiel verpasst. Und wenn es gut läuft, kann er am 31. März in Freiburg wieder auflaufen. Sonst bricht aber auch wirklich der Stürmernotstand aus... Mehr gibt es heute wieder nicht zu berichten. In den Zeitungen geht der Nachruf auf Jan-Aage Fjörtoft zwar weiter. Aber meinen persönlichen Rückblick auf die tolle Zeit mit unserem Norweger gibt es erst am Freitag, einen Tag vor seinem letzten Spiel im Adlertrikot... Zur Feier des Tages (ich habe heute meine vorletzte Klausur geschrieben) möchte ich noch ein Zitat meiner Lehrerin bringen: "RAAAAUUUUUSSS!!!!!! ALLE RAAAAUUUUUUSSSSSSS!!!" Das war Musik in meinen Ohren... \*g\* Genauso wie diese Meldung: Frank Gerster hat einen neuen Verein gefunden! Der SSV Reutlingen war so töricht, den Abzocker bis 2003 zu verpflichten. Er geht nach Saisonende ablösefrei zu dem Zweitligisten. Die Eintracht spart natürlich keine müde Mark durch diesen Transfer: Das Gehalt bis Juni muss sie natürlich weiterhin zahlen...

@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Vor dem Endspiel gegen Ulm müssen wir noch um Marco Gebhardt bangen."
+---
+
+Vor dem Endspiel gegen Ulm müssen wir noch um Marco Gebhardt bangen. Er leidet an Leistenbeschwerden. Um seinen Einsatz nicht weiter zu gefährden trainiert er diese Woche nur "dosiert". Unsere Flügelzange Gebhardt/Heldt sollte nicht gerade in so einem alles entscheidenden Spiel auseinandergerissen werden... Die Mannschaft fährt morgen in ein Trainingslager im Taunus, wie schon vor dem Spiel gegen Bremen. Damals hat es ja gewirkt! Desweiteren wurde der trainingsfreie Montag gestrichen, um die Spieler optimal auf das Spiel am Samstag vorzubereiten. Udo Lattek meldet sich mal wieder zu Wort. Er glaubt nicht, dass die Eintracht ihre Punkte zurückbekommt: "Eigentlich müsste man den Frankfurtern 4 Punkte abziehen, weil die so lange rummeckern!" Ach Opa, stress net 'rum, schon dein Herz und genieß dein in den letzten Wochen verdientes Milliönchen! ZDF-Sportreporter Rolf Töpperwien hat sich schwer verletzt. Bei einem Brand in seiner Wohnung hat er Verbrennungen an 40% seiner Haut erlitten. Wegen der starken Schmerzen wurde er in ein künstliches Koma versetzt. Ein Wunder, dass er nicht mehr in Lebensgefahr schwebt.

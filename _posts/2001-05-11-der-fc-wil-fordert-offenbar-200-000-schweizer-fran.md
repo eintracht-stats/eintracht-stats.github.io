@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Der FC Wil fordert offenbar 200.000 Schweizer Franken (umgerechnet rund 250.000 DM) für die Freigabe seines Trainers Martin Andermatt."
+---
+
+Der FC Wil fordert offenbar 200.000 Schweizer Franken (umgerechnet rund 250.000 DM) für die Freigabe seines Trainers Martin Andermatt. Die Eintracht kann eigentlich gar nicht mehr anders als die Summe hinzublättern, nachdem man sich mit der geplanten Verpflichtung so weit aus dem Fenster gelehnt hat. Nach einem erneuten Fehlschlag bei der Trainersuche würde die Presse (dann auch zurecht) wieder scharf gegen den Vorstand schießen. Und das können wir wirklich nicht gebrauchen. Ich bin sicher: Andermatt kommt! Und dann müssen wir alle Vorbehalte über Bord werfen und ihm eine faire Chance geben!  
+Eine Chance erhält morgen offenbar auch Giuseppe Gemiti! Ich weiß nicht, ob es wirklich keine andere Alternative auf der linken Seite gibt, aber gut... Wenn er spielt, dann spielt er. Doch der Auftritt von Jermaine Jones gegen Hertha und auch Gemitis erster Einsatz sind mir noch in haarsträubender Erinnerung... Ein positives Beispiel aus dieser Woche wäre hingegen: Owen Hargreaves stellt Luis Figo in den Schatten... (Glückwunsch Bayern!) Vielleicht lässt sich das ja in ähnlicher Form wiederholen!  
+Sollte morgen der Traum vom dritten Wunder vorbei sein, werde ich natürlich trotzdem einen Eintrag verfassen! Ganz klar. Das würde zwar eine gewisse Überwindung kosten, aber er käme! Allerdings ist es möglich, dass er etwas später erscheinen würde als sonst. Mit Tränen in den Augen schreibt es sich halt schlecht... Schaut auf jeden Fall mal vorbei - denn geteiltes Leid ist bekanntlich halbes Leid!!!

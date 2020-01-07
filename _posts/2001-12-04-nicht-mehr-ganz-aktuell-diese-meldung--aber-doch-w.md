@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Nicht mehr ganz aktuell diese Meldung, aber doch wichtig: Thomas Zampach wird nicht mehr für die Amateure (Tabellenführer in der Oberliga Hessen) auflaufen."
+---
+
+Nicht mehr ganz aktuell diese Meldung, aber doch wichtig: Thomas Zampach wird nicht mehr für die Amateure (Tabellenführer in der Oberliga Hessen) auflaufen. Darauf einigten sich der "Fußballgott" und die Vereinsführung. Er soll den jungen Talenten nicht mehr im Wege stehen. Zampach wird aber weiterhin für die Eintracht arbeiten: Als Fankoordinator und nun auch im Scoutingsystem und in der Spielbeobachtung. Zampachs Sechsjahresvertrag mit "hohem sechsstelligen Jahresverdienst" (FR) läuft noch bis 2004...  
+Oben habe ich wieder einmal bewiesen, dass ich täglich die Frankfurter Rundschau lese. Wie es aussieht beruht das aber ganz auf Gegenseitigkeit. Denn, in meinem Eintrag vom 2. Dezember stand folgendes: "Dass Standardsituationen für die Eintracht selten einen Vorteil bringen, war bekannt. Aber dass daraus ein Nachteil entsteht!?" Heute, zwei Tage später, las ich in der Rundschau: "Daran, dass Aktionen nach ruhenden Bällen den Frankfurtern nicht zum Vorteil gereichten, hat man sich in der Vergangenheit ja fast schon gewöhnen müssen. Neu ist freilich, dass, zweitens, aus dem vermeintlichen Vorteil ein Nachteil wird." Schon interessant... \*g\* Aber Herr Kilchenstein kann natürlich gerne wieder kommen...

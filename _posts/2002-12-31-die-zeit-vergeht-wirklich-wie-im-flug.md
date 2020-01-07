@@ -1,0 +1,150 @@
+---
+layout: post
+title: "Die Zeit vergeht wirklich wie im Flug!"
+---
+
+Die Zeit vergeht wirklich wie im Flug! Auch das Jahr 2002 liegt nun hinter uns... Mittlerweile hat es schon Tradition, dass ich an dieser Stelle einen Jahresrückblick im sportlichen und natürlich privaten Bereich veröffentliche - so auch heute. Und dies ist mir aus dem vergangenen Jahr in Erinnerung geblieben (wie immer nicht streng chronologisch): - der Grundwehrdienst unserer Youngster Mutzel, Preuß und Jones  
+- der Wechsel vom Mediendirektor Ploog zum Pressesprecher Knoop  
+- die schon im Januar als unbedenklich angesehene Lizenzerteilung  
+- die Auslosung der EM-Quali mit Spielen gegen die Färöer und Berti McVogts  
+- der Glaube an den Wiederaufstieg zu Beginn des Jahres  
+- die Unfähigkeit während der letzten Saison eine Führung über die Zeit zu bringen  
+- die chronische Schwäche bei Standardsituationen in der vergangenen Saison  
+- die neue Stärke bei Standardsituationen in dieser Saison  
+- die "Euphorieausbrüche" unseres schweizer Trainers Martin Andermatt ("Maaan daaarf niicht iiimmer nuur baaabbeln...)  
+- das Probetraining von Serge Branco im verschneiten Moskau  
+- die Niederlage in Bielefeld, die endgültig die Aufstiegsträume platzen ließ  
+- der Galaauftritt von Ansgar Brinkmann in dieser Partie  
+- die Ankündigung im Februar, dass man für die Lizenzerteilung Bankbürgschaften brauche... Warum nur?  
+- der Wechsel von Christoph Preuß nach Leverkusen, der für die Eintracht lebenswichtig war  
+- die großzügige Rückgabe der Octagon-Anteile an die Eintracht  
+- die Handgreiflichkeiten zwischen Alex "Wenn ich ihn geschlagen hätte, hätte er das Training nicht verfolgen können" Schur und Serge "Ich bin der Größte" Branco  
+- alle Jahre wieder: die unvermeidliche Trainerentlassung - Martin Andermatt erwischte es im März  
+- das Aufkommen der Nostalgie-Bewegung "Holt Ehrmantraut"  
+- sämtliche weiteren Trainerkandidaten...  
+- ...und Armin Kraaz, der als Interims-Trainer dieser Truppe wirklich die ärmste Sau war  
+- der Sieg der Amateure bei Darmstadt 98 im Hessenpokal  
+- das bescheuerte Plakat, das einige Idioten bei diesem Spiel aufhängten  
+- die Amateurmannschaft, die für einiges Leid entschädigte  
+- die Kirch-Krise  
+- die Entscheidung, dass Frankfurt WM-Spielort wird  
+- die Hoffnung auf "nächsten Freitag"  
+- das Auftauchen eines gewissen Gabor Varszegi  
+- das Verschwinden eines gewissen Gabor Varszegi einen Monat später  
+- Fotex  
+- die verspielte Meisterschaft von Bayer Leverkusen  
+- die Niederlage im Pokalfinale von Bayer Leverkusen  
+- die Niederlage im Champions League-Finale von Bayer Leverkusen  
+- der verspielte Aufstieg unseres Nachbarn aus Mainz  
+- der Abschied vom Grüneburgweg  
+- das Abschiedsspiel für das Waldstadion  
+- die Dachkonstruktion unseres neuen Stadions, die nicht für Schneebelastung ausgelegt wurde...  
+- der Aufstieg unserer Amateure!!!  
+- der Tag an dem Gabor Varszegi wegen nicht gemachter Hausaufgaben ging, Tony Woodcock wegen seiner Urlaubsplanung gehen musste und Willi Reimann verpflichtet wurde  
+- die WM, das WM-Special, das WM-Tippspiel und unser WM-Movie  
+- der Kantersieg gegen die Saudis  
+- das dumme Unentschieden gegen Irland  
+- der Sieg gegen Kamerun  
+- die drei 1:0-Siege gegen Paraguay, USA und Südkorea  
+- das heldenhafte Foul von Michael Ballack, das ihm eine Gelbsperre für das Finale einbrachte  
+- Oliver Kahns Weltklasseparaden  
+- Oliver Kahns einzigen Patzer bei dieser WM, der ausgerechnet im Finale folgte...  
+- "Es gibt nur ein' Rudi Völler!"  
+- der Empfang auf dem Römer für unsere Vizeweltmeister  
+- italienische Verschwörungstheorien  
+- koreanische Ekstase während der WM-Spiele  
+- der peinliche Auftritt des Titelverteidigers  
+- der US-Spieler, der ins Stadion pinkelte  
+- unsägliche Kommentare von Paul Breitner  
+- Rivaldos Schauspielkünste  
+- die Gebisse von Ronaldo und Ronaldinho  
+- Fritz Walter  
+Zurück zur Eintracht:  
+- die Region "Rhein-Main"  
+- die Liebe für ihre Heimat, die eine Ministerpräsidentin plötzlich entdeckte...  
+- Roland Koch, Petra Roth, Achim Vandreike, Finanzminister Weimar und alle Politiker, die sich sonst so mit der Eintracht beschäftigten  
+- der "Tag der Frankfurter Eintracht"  
+- der "Erste Baggerbiss"  
+- die Helaba  
+- Mr. X, der die Lawine per Telefon ins Rollen brachte  
+- die DFL-Brüder (Hackmann, Bender, Bruchhagen, Pfad, Summerer, Strutz)  
+- Streitigkeiten über die Bedeutung der Worte "unwiderruflich" und "endgültig"  
+- Christoph Schickhardt  
+- der RMV und sein Geschäftsführer ;-)  
+- Bürgschaften und Rückbürgschaften an sich  
+- das Schiedsgericht mit Richter Grunsky an der Spitze  
+- die SpVgg Unterhaching (wurde ja auch Zeit)  
+- Engelbert "das Rumpelstilzchen" Kupka, der vor dem Schiedsgericht seinen Amoklauf startete...  
+- ... diesen vor der DFL-Vollversammlung mit dem Antrag auf Aufstockung der Liga fortsetzte....  
+- ... dann zur Abwechslung Volker Sparmann ins Visier nahm, ehe...  
+- ... er mit Unterstützung von Anwalt Peter Gauweiler den Streit vor das OLG Stuttgart, das Landgericht Frankfurt und das OLG Frankfurt trug...  
+- ... wo er jedoch überall knallhart abgewiesen wurde!!!  
+- Richterinnen mit Doppelnamen  
+- Bestechungsgelder der Bahn  
+- Applaus im Gerichtssaal  
+- die Erkenntnis, dass ein durch "unverschuldete Ereignisse" von der Insolvenz bedrohter Verein ohne regionalliga-taugliche Mannschaft Herbstmeister in der Regionalliga Süd werden konnte  
+- die tolle Wandlung unserer Mannschaft  
+- Lutz Meinl  
+- Effes Wechsel nach Wolfsburg  
+- Willi Reimann  
+- Tsoumou-Madzas Hammer gegen Ahlen  
+- die Feierlaune von Montero und Jones  
+- das lange Warten auf die Stadion-Homepage  
+- die Angst vor einem Sportdirektor Möller  
+- der Rücktritt von Robin Fritz und die Wiederwahl von Peter Fischer  
+- Jörg Bergers gewonner Kampf gegen den Krebs  
+- das Feuerwerk gegen Oberhausen und die unverbesserliche "Pyro-Fraktion"  
+- die neue Abwehrstärke und so weiter und so fort...  
+Es ist wieder so viel passiert, deshalb beende ich den sportlichen Rückblick und freue mich auf das Sportjahr 2003!  
+  
+Nun zum Privatbereich. Sicherlich nur für die härtesten Fans interessant - aber was sein muss, muss sein :-) 2002 brachte also folgendes mit sich: - das zweite und letzte Treffen mit eine neuen Bekanntschaft  
+- einen weiterhin fest sitzenden Deckel  
+- Enttäuschung über die eigene Mannschaft  
+- die Erkenntnis, dass mein Zeigefinger es nicht mit einer Autotür aufnehmen kann  
+- die Büroklammer, mit der ein Loch in meinen Nagel gebrannt wurde ;-)  
+- die zweifelhafte Ehre zu wissen, wie es unter dem Fingernagel aussieht \*schauder\*  
+- trotz allem schöne Erinnerungen an meine Zivi-Zeit  
+- meine Besuche bei den Amateuren in der Aufstiegssaison  
+- die Unklarheit über meinen zukünftigen Beruf, die mir schwer zu schaffen machte  
+- zwei Beerdigungen  
+- das Bangen um die Lizenz (Varszegi, Simonis, dubiose Investoren...)  
+- die "Irgendwie-wirds-schon-klappen-Mentalität" im Mai  
+- die Doppelbelastung Daily Flip - WM-Special  
+- die Meetings mit Chris zu den WM-Spielen  
+- meine verteidigenden Worte für Christoph Metzelder, der von Chris ständig kritisiert wurde  
+- meine Erleichterung am 17. Juni  
+- der Schock beim Frühstück zwei Tage später  
+- meine Mammut-Einträge in der Folgezeit, die mich zum Fels in der Brandung werden ließen  
+- ein kleines unbeugsames Dorf im tiefsten Bayern  
+- die Fertigstellung unseres Impressums  
+- mein Nervenzusammenbruch nach der Entscheidung des Schiedsgerichts  
+- die Vorteile einer Flatrate während des Lizenzstreits  
+- mein immer größer werdender Hass auf Herrn Kupka  
+- das steigende Interesse an juristischen Feinheiten  
+- die steigende Genugtuung nach jedem Gerichtsurteil  
+- mein Auge-in-Auge-Erlebnis mit Engelbert Kupka auf der Toilette des OLG Frankfurt  
+- mein Gespräch mit Peter Gauweiler  
+- die kurzweiligste und zugleich stressigste Sommerpause aller Zeiten  
+- der Geburtstag meiner Stardirigentin  
+- die Erkenntnis, dass Chris immer noch kein T-Shirt zustande gebracht hat  
+- die Erkenntnis, dass es vorher auch keinen Modelauftritt meiner Stardirigentin geben wird  
+- meine Primitivität, die mir von einem nahe Unterhaching wohnenden \*piep\* bescheinigt wurde  
+- mein Studium in Frankfurt, das eine WG mit meiner Stardirigentin in Mainz verhinderte  
+- die Reise in das Hochgebirge im September  
+- Jahr eins des Euro  
+- Jahr eins des Teuro  
+- die Bundestagswahl  
+- der Kanzlersong  
+- mein Besuch im aktuellen Sportstudio  
+- drei Jahre Daily Flip und noch kein Ende in Sicht  
+- gefährliche Sportarten wie Bowling  
+- überfüllte Hörsäle  
+- der Hund meines Professors  
+- ein Bayern-Fan als Professor  
+- meine Marketing-Expertin  
+- meine zwei anderen Uni-Bekanntschaften  
+- überreizte Nerven meiner Stardirigentin  
+- die Erkenntnis, dass unsere Stammkneipe auch nicht mehr das ist was sie mal war: überhöhte Rechnungen, ständig wechselnde Bedienungen, Getränke, deren Verfallsdatum schon Monate zurücklag... ;-)  
+  
+Nach diesem Jahresrückblick folgen wie immer noch meine guten Vorsätze für das neue Jahr: Ich hoffe natürlich auf den Aufstieg, der sicherlich eher zu errreichen ist als noch in der letzten Saison. In Bezug auf eintracht-stats.de bin ich eigentlich wunschlos glücklich. Denn die Entwicklung war bisher so traumhaft - eine weitere Steigerung des Erfolgs ist fast nicht vorstellbar. Wenn ich mir allerdings Chris' Strategiepapier ansehe... 2003 wird wieder viele Innovationen bringen! Tja, und privat werde ich notgedrungen kleinere Brötchen backen. Letztes Jahr hieß es an dieser Stelle "2002 oder nie"... Logische Folgerung des Jahresverlaufs wäre daher "nie". Die Hoffnung auf ein größeres Wunder bleibt aber irgendwie bestehen. Ich wäre auf jeden Fall schon hochzufrieden, wenn mir der "First Contact" gelingen sollte...  
+Das war Daily Flip im Jahre 2002! Jetzt wünsche ich allen Eintrachtfans, allen Lesern von Daily Flip sowie allen, die in meinem Tagebuch verewigt wurden, allen weiteren Besuchern dieser Seite und allen, die mir sonst noch nahestehen: **GUTEN RUTSCH UND EIN AUSGESPROCHEN SCHÖNES, ERFOLGREICHES, GLÜCKLICHES UND FRIEDLICHES (Aufstiegs?-)JAHR 2003!!!**

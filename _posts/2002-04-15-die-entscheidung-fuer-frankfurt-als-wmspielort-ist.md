@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Die Entscheidung für Frankfurt als WM-Spielort ist gefallen."
+---
+
+Die Entscheidung für Frankfurt als WM-Spielort ist gefallen. Am heutigen Montag entschied das Organisationskomittee der WM 2006 unter Vorsitz von Präsident Franz Beckenbauer zusammen mit der FIFA über die WM-Städte 2006. Von 16 Kandidaten wurden folgende 12 Städte bestimmt: Frankfurt, München, Berlin, Nürnberg, Kaiserslautern, Stuttgart, Köln, Dortmund, Gelsenkirchen, Hamburg, Leipzig und Hannover. Leer ausgingen die Städte Bremen, Mönchengladbach und Düsseldorf. Leverkusen hatte wegen der zu geringen Kapazität der BayArena schon letzte Woche zurückgezogen. Außerdem wird die Messe München während der 4 wöchigen WM das Internationale Medienzentrum beherbergen. Die Auslosung zur WM-Vorrunde findet in Frankfurt statt, die WM-Endrundenteilnehmer werden in der Messe Leipzig ihren Gruppen zugelost.  
+Alexander Schur wird die Eintracht nach Kicker-Berichten wohl verlassen. Bei der letzten Verhandlungsrunde zog die Eintracht schon ausgehandelte Kompromisse wieder zurück, was natürlich zu einiger Verärgerung bei dem Spieler und seinem Berater Reisig führte. Der kündigte eine endgültige Entscheidung noch für diese Woche an - sie muss nicht unbedingt positiv ausfallen...  
+Christoph Preuß' Vertrag mit Leverkusen ist nun auch unter Dach und Fach. Er wechselt für 2,2 Millionen Euro zum kommenden deutschen Meister!?  
+Wie die FR meldet, sollen in den kommenden Tagen bei der Eintracht endlich wieder mal wichtige Entscheidungen getroffen werden. Ein Investor soll endlich einen Vertrag unterschreiben, der für die Lizenzerteilung offenbar weiter dringend gebraucht wird. Und zudem soll der neue Trainer bekannt gegeben werden. Es sollen drei "namhafte Trainer" (hört sich ja unglaublich an) im Rennen sein und sogar schon für die neue Saison planen. Wie das gehen soll, ist mir zwar schleierhaft - aber was soll's? Vielleicht wird ja doch noch alles gut...

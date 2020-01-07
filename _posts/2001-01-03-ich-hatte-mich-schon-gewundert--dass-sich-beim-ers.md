@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Ich hatte mich schon gewundert, dass sich beim ersten Training gestern keiner verletzt hatte - schon werde ich vom Gegenteil überzeugt: Sven Schmitt hat sich eine Knieverletzung zugezogen."
+---
+
+Ich hatte mich schon gewundert, dass sich beim ersten Training gestern keiner verletzt hatte - schon werde ich vom Gegenteil überzeugt: Sven Schmitt hat sich eine Knieverletzung zugezogen. Wenn heute Bundesliga angesagt wäre, würde das bedeuten, dass der A-Jugendliche Christian Marggraf zwischen den Pfosten stehen müsste. Aber wir haben ja zum Glück noch etwas Zeit. Und bis Ende Januar wird zumindestens Oka Nikolov seinen Trainingsrückstand aufgeholt haben. Und auch für Dirk Heinen ist die Hoffnung auf einen Einsatz noch nicht beendet. Die Heilung seines Bändereinrisses ist gut verlaufen und er konnte schon wieder mit Lauftraining beginnen. Das soll heute oder morgen auch Sasa Ciric in Angriff nehmen. Ernsthafte Sorgen muss man sich also nur noch um Thomas Reichenberger und Jens Rasiejewski machen, die bis zum ersten Spiel nach der Winterpause wohl nicht mehr fit werden.  
+Dann habe ich noch die überraschende Wende im Fall Chen Yang nachzutragen: Laut Sportdirektor Dohmen hat der Chinese ein Gespräch mit Felix Magath geführt, in dem beide "Mißverständnisse ein-und ausgeräumt haben". Sie einigten sich auf einen Neuanfang, der sogar so weit reicht, dass die Eintracht morgen ihre Option ziehen wird, wodurch sich Yangs Vertrag um ein Jahr bis 2002 verlängert. Wer hätte das gedacht...?

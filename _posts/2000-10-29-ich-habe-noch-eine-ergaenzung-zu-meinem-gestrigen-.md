@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Ich habe noch eine Ergänzung zu meinem gestrigen Eintrag: Die Zuschauerzahl war für meine Begriffe enttäuschend!"
+---
+
+Ich habe noch eine Ergänzung zu meinem gestrigen Eintrag: Die Zuschauerzahl war für meine Begriffe enttäuschend! Nur knapp 24.000 sind gestern ins Waldstadion gekommen. Ich weiß nicht, woran das liegt. Sicher, Freiburg ist nicht gerade der Kracher und die letzten Ergebnisse waren auch nicht berauschend. Aber zu Hause sind die Zuschauer doch in der letzten Zeit immer auf ihre Kosten gekommen... Ich wünsche mir, dass nächstes Mal wieder mehr Fans mit dabei sind! Das sind wir der Mannschaft schuldig, die im Moment absolut die Erwartungen erfüllt! Die Mannschaft ist im Umbruch begriffen und spielt in der Tabelle halt jenseits von Gut und Böse. Aber wir sollten uns freuen, dass wir nicht in jedem Spiel um die Existenz bangen müssen - auch, wenn vielleicht die Spannung etwas auf der Strecke bleibt. Trotzdem ist das "Stadionfeeling" immer noch unangefochten die beste Art, Fußball zu sehen! Das sollte sich der eine oder andere, der sich als Eintracht-Fan versteht und nur gegen Topgegner ins Stadion kommt, mal durch den Kopf gehen lassen. In diesem Sinne...bis zum Spiel gegen K'lautern! Und nicht vergessen: Ab morgen ist unsere überarbeitete Seite auf **www.eintracht-stats.de** zu finden!!!

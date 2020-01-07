@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Wie die Frankfurter Rundschau in ihrer heutigen Ausgabe berichtet, soll Andree Wiedener in der Abwehr der linke Spieler in einer Dreierkette sein."
+---
+
+Wie die Frankfurter Rundschau in ihrer heutigen Ausgabe berichtet, soll Andree Wiedener in der Abwehr der linke Spieler in einer Dreierkette sein. Wir werden aber noch früh genug sehen, wie die Taktik in der Rückrunde aussehen wird. Deshalb sind solche Meldungen nicht sonderlich spektakulär. Wichtiger ist da schon, dass Martin Andermatt durch den neuen Spieler mit der Nummer 4 Impulse für das Umschalten von Abwehr auf Angriff erwartet. In zwei Wochen wissen wir, ob Wiedener die Vorschusslorbeeren rechtfertigen kann...  
+Die Erwartungen offenbar nicht erfüllt hat Lasha Salukvadze, der nicht verpflichtet wird und dennoch am morgigen Testspiel gegen Bernbach teilnehmen wird. Unter anderem sollen Sprachprobleme bei der Absage eine Rolle spielen. Aber was hatte man sich denn von einem 21jährigen Georgier erwartet - einen Vortrag in perfektem Deutsch...? (Kleiner Nachtrag hierzu: Nachdem bekannt wurde, dass der Belgier Marc Vangronsfeld ebenfalls im Probetraining ist und morgen spielen wird, bin ich mir nicht mehr sicher, ob unser junger Georgier überhaupt noch mal getestet wird. Der Belgier vom SC Charleroi ist mir wenigstens vom Hörensagen schon mal ein Begriff, so dass mir bei einem eventuellen Transfer des 28jährigen auch wesentlich wohler wäre...)  
+Während Gerd Wimmer noch an einer Muskelverletzung laboriert (aber wohl bis zum nächsten Spiel fit wird) läuft sich Serge Branco einen rätselhaften Pferdekuss aus den Beinen. Der wechselwillige Kameruner ist nach eigenen Angaben fit, darf aber trotzdem in einer kurzfristig gegründeten "Laufgruppe Gurzi" mit dem Reha-Trainer die Treppen im Waldstadion erkunden ;-)  
+Zuguterletzt habe ich noch die Nachricht, dass Albert Streit vermutlich doch bleiben wird. Was soll's...

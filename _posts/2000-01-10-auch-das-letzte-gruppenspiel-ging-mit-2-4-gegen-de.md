@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Auch das letzte Gruppenspiel ging mit 2:4 gegen den FCK verloren."
+---
+
+Auch das letzte Gruppenspiel ging mit 2:4 gegen den FCK verloren. Was soll´s!? Andere Dinge sind wichtiger: Die Eintracht ist sich mit zwei neuen Spielern einig geworden. Sie werden in der nächsten Woche ihre Verträge unterschreiben. Schädelbruch-Keeper Dirk Heinen bleibt bis 2003, Stürmer- Winzling Thomas Reichenberger bis 2002. Beide kommen aus Leverkusen. Heinen lasse ich mir noch gefallen, er ist wahrscheinlich wirklich eine echte Alternative zu Nikolov. Aber Reichenberger... Damit steht fest, dass ich mich nie wieder über einen Stürmer lustig machen werde. Ailton schiesst die SGE ab und Reichenberger wechselt gleich hierher! Hoffentlich weiss der Trainer was er tut! Kosten übrigens: 2-3 Millionen! In der FR gibt Schatzmeister Rainer Leben ein Interview. Er scheint die Eintracht nur als Unternehmen zu sehen. Er kommt mir vor, wie ein allwissender Bonze. Wenn er alle seine Visionen verwirklichen könnte, wäre es aber absolut perfekt! Natürlich bin ich noch die Qualifikanten schuldig geblieben: Der FCK und die Kickers haben es geschafft. Da sieht man, in welcher starken Gruppe die Eintracht gespielt hat.

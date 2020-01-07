@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Joachim Löw wird offenbar nicht neuer Trainer der Eintracht."
+---
+
+Joachim Löw wird offenbar nicht neuer Trainer der Eintracht. Wie er selbst sagte, hat er vor einiger Zeit ein Gespräch mit den Verantwortlichen geführt, aber seitdem nichts mehr von der Eintracht gehört. Heute beginnt das Trainingslager in Spanien. Bis Donnerstag wird sich die Mannschaft im sonnigen Süden auf das Spiel in Freiburg vorbereiten. Der Kicker hat heute alle Abstiegskandidaten unter die Lupe genommen und die möglichen Folgen analysiert. "Überraschenderweise" kommt der Kicker zu dem Schluss, dass sich das Gesicht der Mannschaft deutlich verändern würde! Sehr schlau... Natürlich würden viele Spieler gehen! Heldt und Salou haben nur Verträge für die erste Liga, viele andere haben Ausstiegsklauseln. Da gäbe es aber wenigstens noch Geld, wenn sie gingen. Weiterhin geht der Kicker davon aus, dass Octagon mit einem so wörtlich "finanziellen Kraftakt" den direkten Wiederaufstieg anpeilen würde. Aber dazu wird es gar nicht kommen! Hoffe ich zumindestens! Jörg Berger prophezeit der Eintracht aber jedenfalls den Abstieg. Es seien zu viele strategische Fehler gemacht worden: Fjörtoft nach Norwegen, Magath und Salou zur direkten Konkurrenz, unerfahrener Trainer... Stimmt schon, aber noch ist nichts verloren!

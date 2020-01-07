@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Auch die Bayern geben ihrem Trainer wie Leverkusen keine Freigabe."
+---
+
+Auch die Bayern geben ihrem Trainer wie Leverkusen keine Freigabe. Damit stehen Christoph Daum und Ottmar Hitzfeld nicht für das Amt des Bundestrainers zur Verfügung. Schade eigentlich... Portugal steht im Halbfinale der EM! Und ich muss sagen, das stimmt mich nicht gerade traurig. Hochverdient wurden nämlich die Türken mit 2:0 geschlagen. Damit wird meine Prognose wieder etwas aufgewertet. Zum Spiel: Nach einer halben Stunde sah Alpay wegen einer Tätlichkeit (Faustschlag) die rote Karte. Kurz vor der Pause überschlugen sich die Ereignisse. Erst köpfte Nuno Gomes das 1:0 in der 44. Minute. In der Nachspielzeit dann vergab Arif die Chance zum Ausgleich als er einen Elfmeter verschoss. Als dann erneut Gomes 10 Minuten nach dem Wechsel das 2:0 markierte, war das Spiel gelaufen. Die Portugiesen drückten zwar weiter, es wurde aber ihre alte Schwäche deutlich: Die Chancenverwertung! Trotzdem, in dieser Verfassung ist noch einiges drin!  
+Italien hat seine Favoritenstellung mit einem Sieg gegen Rumänien bestätigt. Das Spiel verlief typisch italienisch. Erst zwei Tore gemacht (Totti, Inzaghi) und dann den Catenaccio ausgepackt. Das war's! Nicht ganz, mit Gheorghe Hagi beendete ein Spieler seine große Karriere auf seine ganz besondere Art: Erst ein toller Heber an den Pfosten, dann ein brutales Foul und später noch eine ebenso klare wie dumme Schwalbe. Logische Folge war die Gelb-Rote Karte. Genie und Wahnsinn liegen bei ihm wirklich dicht beieinander!

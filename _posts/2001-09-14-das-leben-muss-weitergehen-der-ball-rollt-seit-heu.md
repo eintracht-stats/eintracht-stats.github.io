@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Das Leben muss weitergehen - der Ball rollt seit heute wieder."
+---
+
+Das Leben muss weitergehen - der Ball rollt seit heute wieder. Deshalb werde auch ich jetzt wieder den Sport in den Mittelpunkt rücken. Wenn sich jedoch wichtige Neuigkeiten im Zusammenhang mit den Anschlägen ergeben sollten und auch bei zukünftigen gravierenden Entwicklungen in der Weltpolitik werde ich jederzeit wieder bereit sein, meine Einträge darauf einzustellen. Das werdet ihr, liebe Leser, sicherlich verstehen. Jetzt aber zur Eintracht: Marco Gebhardt bleibt das Pech treu! Nach seinem zaghaften Comeback am letzten Montag, droht ihm jetzt wieder eine lange Verletzungspause. Nachdem er gestern schon über Schmerzen geklagt hatte, diagnostizierte Mannschaftsarzt Dr. Seeger nun wieder einen Leistenbruch beim Mittelfeldspieler - dieselbe Verletzung, die ihn schon im letzten Jahr zurückgeworfen hatte... Ob er operiert werden muss, ist noch nicht klar. Auf jeden Fall wird er gegen Bielefeld fehlen. Echt ärgerlich, aber er wird schon wieder kommen. Da bin ich mir ziemlich sicher!  
+Die erste Wahl zum Tor des Monats auf eintracht-stats.de ist vorbei! Erster Titelträger und damit Torschütze des Monats August ist Christoph Preuß. Herzlichen Glückwunsch! Für sein 1:0 gegen Schweinfurt erhielt er 52,53 % der Stimmen unserer Besucher und siegte damit überlegen. Auch im September werden wir wieder den Torschützen des Monats suchen. **Eintracht Frankfurt hat einen Spendenaufruf an ihre Anhänger gerichtet. Die Führungsspitze, die Mannschaft und alle weiteren Mitarbeiter der Fußball AG haben bereits zugunsten der Feuerwehr und Polizei in Washington und New York gespendet. Die Helfer nehmen bei den Rettungsmaßnahmen große Gefahren auf sich, zahlreiche sind schon umgekommen oder verletzt worden. Die Eintracht hofft jetzt auch auf Unterstützung durch ihre Fans. Das Team von eintracht-stats.de wird sich selbstverständlich auch mit einer Spende beteiligen. Helft auch ihr! Überweist eure Spenden bitte auf folgendes Konto:** **SEB Bank AG  
+Spendenkonto 11. September  
+Kontonummer: 1589393800  
+BLZ: 500 101 11** **Danke!**

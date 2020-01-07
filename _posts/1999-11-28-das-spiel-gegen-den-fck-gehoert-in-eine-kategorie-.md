@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Das Spiel gegen den FCK gehört in eine Kategorie mit Schalke und Stuttgart!"
+---
+
+Das Spiel gegen den FCK gehört in eine Kategorie mit Schalke und Stuttgart! Feldüberlegen, aber ideenlos. Schwacher Gegner, man selbst noch schwächer! Keine Torchanchen, der Gegner auch nicht! Außerdem gab es wieder ein dummes Gegentor. Was soll man dazu noch sagen?? Diese "Mannschaft" marschiert ohne Gegenwehr nach unten... Und das, obwohl sie sagenhafte Fans hat. Die haben nämlich trotz dieses Scheißspiels bis kurz vor Schluß das Team angefeuert. Apropos Feuer: Die tollen FFH-Jungs haben ein neues Wort kreiert: "Liebe Fans, das Abschießen von Feuerwerkskörpern und anderem Rauchwerk ist verboten!" Ich will André Rothe zurück!!! Das ist bitter nötig. Ebenso wie Neuzugänge. Aber dieses Thema kann und will ich nicht schon wieder durchkauen. Was noch bleibt ist die Szene, die wirkte wie ein Zeichen Gottes: Ratinho läuft frei auf das Tor zu, schießt, der Ball prallt an den Innenpfosten und...kullert vom anderen Pfosten ins Feld zurück! Aber auch danach kam nicht das erhoffte Aufbäumen!/ Zum Thema Kommerzialisierung gibt es eine weitere Episode. Der Anpfiff zum heutigen Spiel wurde auf Wunsch von SAT 1 um ganze 5 Minuten vorverlegt. Was für eine Farce...

@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Gestern hatte ein Eintracht-Fan im Forum auf der offiziellen Website eine Spendenaktion zugunsten der maroden Eintracht-Finanzen angeregt."
+---
+
+Gestern hatte ein Eintracht-Fan im Forum auf der offiziellen Website eine Spendenaktion zugunsten der maroden Eintracht-Finanzen angeregt. U.a. auch eintracht-stats.de hätte (neben weiteren Fanpages) diese Aktion unterstützt. Aber, und das ist mir doch viel lieber so, sie scheint gar nicht nötig zu sein: Octagon stellt der Eintracht jetzt nämlich doch keine Bürgschaft zur Verfügung, sondern gewährt der AG ein Darlehen über 7,5 Millionen DM. Das soll angeblich die gute Zusammenarbeit zwischen Octagon, AG und e.V. honorieren... Mit diesem Geld kann die Eintracht die Saison ohne weitere Bankkredite zu Ende spielen, und das zu akzeptablen Konditionen! In der letzten Woche kamen Meldungen auf, Octagon wolle die Eintracht in einen Knebelvertrag drängen. Dem widersprach Finanzvorstand Thomas Pröckl und bekräftigte dagegen noch einmal, dass die Lizenz für 2002/2003 nicht in Gefahr sei. Zur Entlastung der Kasse könnte auch ein Wechsel von Thomas Reichenberger beitragen. Der Stürmer wird mit Energie Cottbus in Verbindung gebracht - noch in dieser Woche sollen Verhandlungen stattfinden. Das Gehalt einzusparen wäre schon eine gute Sache.  
+Wenn mir jetzt die Eintracht morgen mit einem Sieg in Reutlingen noch ein Geburtstagsgeschenk macht, kann Weihnachten wirklich kommen... Überraschend wurde übrigens Alexander Rosen in den Kader berufen. Das gab's auch lange nicht mehr.

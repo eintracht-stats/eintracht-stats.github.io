@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Eigentlich wollte ich heute ja kein Daily Flip verfassen."
+---
+
+Eigentlich wollte ich heute ja kein Daily Flip verfassen. Aber dann habe ich mir überlegt, dass ich ja eine Verpflichtung gegenüber allen Lesern habe und nicht von einem wasserspritzenden, nervtötenden, von kleinen Frauen angehimmelt werdenden und natürlich perfekten Subjekt abhängig bin. Also widme ich den Eintrag allen, auf die diese Beschreibung nicht zutrifft. Ralf Weber und der Trainer wollen ihre Differenzen in einem Gespräch beilegen. Weber: "Ich würde meinen Vertrag gerne erfüllen." In einem weiteren Freundschaftsspiel besiegte die Eintracht den TV Großen-Linden mit 10:4. Erfolgreich waren je 3x Fjörtoft und Reichenberger, 2x Alexander Schur sowie Kutschera und Nikolov. Der Ersatztorwart durfte in der 2. Halbzeit als Feldspieler ran. Das ist sicher nicht die Spielpraxis, die er sich erhofft hat... Dann wurde noch der Grund öffentlich, weshalb ein erneuter Einspruch beim DFB doch Bedeutung hätte. Sollte die Strafe zurückgenommen werden, wäre die Eintracht um 1,5 Millionen reicher! 500.000 waren ja als Strafe festgelegt. Und da nächstes Jahr die Fernsehgelder nach Tabellenplatz verteilt werden, sind die 2 Plätze, die gewonnen würden, insgesamt eine Million wert. Das würde sich echt lohnen...

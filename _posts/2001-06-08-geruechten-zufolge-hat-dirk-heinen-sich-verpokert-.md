@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Gerüchten zufolge hat Dirk Heinen sich verpokert: Angeblich hat der Torhüter in dem sicheren Glauben nach Gladbach zu wechseln sowohl der Eintracht als auch mehreren ausländischen Clubs eine Absage erteilt."
+---
+
+Gerüchten zufolge hat Dirk Heinen sich verpokert: Angeblich hat der Torhüter in dem sicheren Glauben nach Gladbach zu wechseln sowohl der Eintracht als auch mehreren ausländischen Clubs eine Absage erteilt. Nachdem nun sein Wechsel zur Borussia an seinen Gehaltsforderungen gescheitert ist, wird er wohl auch in der neuen Saison bei der Eintracht mittrainieren. Spielen wird er (zunächst) nicht. Denn Friedel Rausch erklärte Oka Nikolov und Andreas Menger zu Torhütern 1 und 2. Diese Entwicklung ist nun die schlechteste aller denkbaren Möglichkeiten. 1,5 Millionen DM Ablöse kann die Eintracht abschreiben und muss zudem ein stattliches Gehalt weiterzahlen. Richtig ärgerlich! Und wenn Nikolov zu Beginn der Saison ein paarmal patzt, kommen wieder die Rufe nach Heinen hoch, was Unruhe in den Verein bringt! Neue Abwehrspieler sind nicht in Sicht. Schwere Zeiten... Vielleicht hilft es der Eintracht, dass ich heute meine Dauerkarte für die nächste Saison bestellt habe. Die Eintracht kann wohl wirklich jede Mark gebrauchen...

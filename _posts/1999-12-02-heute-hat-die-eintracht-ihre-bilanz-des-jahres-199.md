@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Heute hat die Eintracht ihre Bilanz des Jahres 1998/1999 vorgelegt."
+---
+
+Heute hat die Eintracht ihre Bilanz des Jahres 1998/1999 vorgelegt. Die Einnahmen in diesem Zeitraum lagen bei 44.781.000 DM, die Ausgaben beliefen sich auf 46.353.000 DM. Das entspricht einem Minus von 1.572.000 DM, das vor allem durch außerordentliche Steuernachzahlungen hervorgerufen wurde, was auch immer das heißen mag. Eigenkapital liegt laut den Ausführungen von Schatzmeister Rainer Leben keines vor, die Schulden belaufen sich auf 2.556.000 DM. Kritik übte er dahingehend, daß eine Planabweichung von 40 % bei Gewinnen und Verlusten bestehe, die beim Lizenzierungs- verfahren kein Vertrauen beim DFB schaffe. Der Lizenzspielerbereich hat Gewinne von fast 6.000.000 DM eingefahren, im Bereich Handel und Verwaltung gibt es dagegen Verluste von 3.500.000 DM. Insgesamt zeigte sich Rolf Heller mit dem Ergebnis zufrieden. Die Schulden sind durch vereinseigene Grundstücke gedeckt, z.B. die Geschäftsstelle am Riederwald. Wenn man bedenkt, daß vor 3 Jahren mit 9.000.000 DM Schulden der Konkurs drohte, sieht das schon ganz gut aus. Hätte man nicht die Abfindungen für Ehrmantraut/Fanz zahlen müssen, hätte es vielleicht schon leichte Gewinne gegeben. Weiter so!!

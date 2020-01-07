@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Nach den gestern veröffentlichten Spielergehältern plant die Eintracht keine Anzeige gegen Unbekannt wie beim letzten Mal."
+---
+
+Nach den gestern veröffentlichten Spielergehältern plant die Eintracht keine Anzeige gegen Unbekannt wie beim letzten Mal. Zu viele Leute hätten Zugriff auf die Verträge gehabt. Die Eintracht verdächtigt wie schon im März den ehemaligen Schatzmeister Rainer Leben bzw. seine Mitarbeiter. Während dessen Amtszeit musste man ihm natürlich sämtliche Verträge aushändigen und konnte seitdem nicht mehr für die Vertraulichkeit der Unterlagen garantieren. Altlasten...  
+Dimtcho Beliakov wird wohl doch nicht zur Eintracht wechseln. Er brach das Probetraining ab und wird nun mit Rot-Weiß Oberhausen in Verbindung gebracht. Grund ist offenbar der Rücktritt Friedel Rauschs, zu dem der Bulgare noch aus gemeinsamen Nürnberger Zeiten einen guten Draht hatte. Ein neuer Stürmer täte aber dennoch gut, genauso wie ein neuer Abwehrspieler. Das ist Tony Woodcocks erste Bewährungsprobe!  
+Auch wenn Verstärkung Not tut, hält sich die Abwehr bislang gut. Uwe Bindewald und Karel Rada sind im Moment gesetzt, für den Tschechen gab es nach dem Spiel gegen Luzern sogar ein Sonderlob vom Trainer... Um den dritten Platz in der Abwehrreihe streiten sich Berntsen, Maljkovic und Wenczel, der diese Position im letzten Spiel bekleidet hatte. Heute Abend fand zum Abschluss des Trainingslagers noch ein Spiel gegen den SC Kriens statt. Die Eintracht siegte mit 1:0 dank eines Tores von Rolf-Christel Guie-Mien, der sich so langsam zum Torjäger entwickelt. Die Abwehr stand wieder sicher und ließ kaum Torchancen zu! Es läuft super!

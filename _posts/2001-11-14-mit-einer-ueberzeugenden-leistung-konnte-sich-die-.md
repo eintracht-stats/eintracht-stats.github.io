@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Mit einer überzeugenden Leistung konnte sich die Nationalelf im ausverkauften Hexenkessel Westfalenstadion nach einem Blitzstart mit 4:1 gegen die Ukraine durchsetzen."
+---
+
+Mit einer überzeugenden Leistung konnte sich die Nationalelf im ausverkauften Hexenkessel Westfalenstadion nach einem Blitzstart mit 4:1 gegen die Ukraine durchsetzen. Schon nach 4 Minuten sorgte der Leverkusener Michael Ballack per Kopf für die Führung. Nur 7 Minuten später verwandelte sein Mannschaftskollege Oliver Neuville einen Abstauber zum 2:0. In der 15 Minute zeigte sich bei erneut die eklatante Kopfballschwäche der ukrainischen Hintermannschaft, als Marco Rehmer unbedrängt zum 3:0 einköpfen konnte. Für den 4:1 Endstand sorgten der überragende Ballack in der 51., sowie Andrej Schewtschenko in der Schlußminute. Spätestens nach 8 Minuten als beim Stand von 1:0 für Deutschland Valeri Lobanowski, Trainer der Ukraine, sich bewegte und etwas sagte, war klar, dass hier was zu holen war... \*g\* Deutschland fährt zur WM, das ist die Hauptsache. Dass die gesamte Fußballprominenz aber nach dem Spiel schon wieder von einer "großen Zukunft" oder ähnlichem sprach, war doch irgendwie merkwürdig. Sei's drum...

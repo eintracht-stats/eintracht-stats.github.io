@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Morgen wird endlich die Zweitligasaison mit dem 4."
+---
+
+Morgen wird endlich die Zweitligasaison mit dem 4. Spieltag fortgesetzt. Die Eintracht tritt bekanntlich beim dritten Bundesligaabsteiger 1. FC Köln an. Matheus Vivian und Dino Toppmöller fallen weiterhin verletzt aus. Darüberhinaus ist der Einsatz von Rolf-Christel Guie-Mien noch fraglich. Beim Länderspiel mit dem Kongo am Samstag musste der Mittelfeldspieler nach einem Schlag auf die Brust behandelt werden. Zudem wird er erst morgen früh in Köln landen. Ob er trotz der Strapazen und der leichten Verletzung spielen kann, entscheidet sich morgen. Der Trainer schloss jedenfalls aus, ihn als Joker einzusetzen. Wenn er spielt, dann von Anfang an... Sollte es nicht gehen, wird wohl Ervin Skela zum ersten Mal in dieser Saison von Beginn an spielen. Der Kicker spekuliert allerdings, dass Willi Reimann die Defensive stärken möchte und deshalb vielleicht beide Kreativkräfte draußen lässt.  
+Für Jens Keller und Co-Trainer Jan Kocian ist das Spiel in Köln eine Rückkehr an ihre letztjährige Wirkungsstätte. Nach dem Abstieg wurden beide aussortiert, worüber sie sehr enttäuscht waren. Vor allem unser Abwehrchef wurde mit einer fadenscheinigen Begründung aus Köln weggeschickt: Er passe aus Altersgründen nicht mehr ins Konzept - sein Nachfolger auf seiner Position, Markus Happe, ist gerade ein Jahr jünger! Bei der Eintracht sah Keller bislang nicht gerade alt aus... Und wenn er jetzt noch gegen seine alten Kollegen hinten dicht macht, bin ich rundum zufrieden!

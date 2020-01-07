@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Da die Hoffnung ja bekanntlich zuletzt stirbt, gibt es auch jetzt noch einen winzigen Strohhalm, an dem man sich etwas aufrichten kann: Wenn alles normal läuft, müsste morgen eigentlich gewonnen werden."
+---
+
+Da die Hoffnung ja bekanntlich zuletzt stirbt, gibt es auch jetzt noch einen winzigen Strohhalm, an dem man sich etwas aufrichten kann: Wenn alles normal läuft, müsste morgen eigentlich gewonnen werden. Wenn nicht gegen den diesen SC Freiburg, gegen wen den dann!? Denn die Freiburger haben nur 10 gesunde Profi-Feldspieler an Bord! Aus diesem Grund nimmt Trainer Finke den Amateur-Kapitän Bornemann und seinen eigenen Co-Trainer (!) Karsten Neitzel mit in den Kader auf. Wenn es da nicht klappt, bin ich endgültig mit meinem Latein am Ende. Leider kann ich trotz Dauerkarte nicht im Stadion dabei sein. Ich habe einen wichtigen Termin, den ich leider nicht absagen kann. Deswegen kann ich nicht, wie sonst bei Heimspielen üblich, meine ganz persönliche Spielbewertung abgeben, sondern bin auf die Fernsehbilder angewiesen. Das wird aber hoffentlich die Ausnahme sein... So, jetzt ist die Hoffnung schon auf der Intensivstation, wenn ich bei diesem Bild bleiben will. Nach der ersten Hälfte des 19. Spieltags beträgt der Rückstand jetzt schon 10 Punkte zum rettenden Ufer. Wir haben ja schon 11 insgesamt...

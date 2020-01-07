@@ -1,0 +1,6 @@
+---
+layout: post
+title: "And the winner is..."
+---
+
+And the winner is... DEUTSCHLAND!!! Mit diesen Worten verkündete Sepp Blatter die Entscheidung des Fifa-Exekutivkomitees: Deutschland wird die WM 2006 ausrichten. Fakten zählen manchmal eben doch mehr als Emotionen! Die Entscheidung fiel allerdings sehr knapp. In den ersten beiden Wahlgängen schieden Marokko und England wie erwartet aus. Deutschland und Südafrika hatten vor dem entscheidenden Wahlgang jeweils 11 Stimmen auf ihrem Konto, zwei waren also noch zu vergeben. Eine davon bekam Deutschland, der Mann aus Ozeanien enthielt sich. Franz Beckenbauer hatte es damit geschafft. Sein Reisemarathon, der ihn in den letzten beiden Jahren mehrere Male um die Welt fliegen ließ, hatte sich gelohnt. Sein Traum geht in Erfüllung. Und wir Fans dürfen uns auch freuen. Denn jetzt sollte endgültig Bewegung in die Stadionfrage in Frankfurt kommen. Die Zeit drängt! Außerdem erhält vielleicht der Jugendfußball noch einen Schub. Man müsste nämlich jetzt anfangen 20jährige in der Bundesliga aufzubauen. 2006 wären die dann im besten Fußballalter. Im eigenen Land dürfen wir uns auf keinen Fall mehr so präsentieren wie bei der EM. Aber wenigstens haben wir als Ausrichter keine Qualifkationprobleme mehr...

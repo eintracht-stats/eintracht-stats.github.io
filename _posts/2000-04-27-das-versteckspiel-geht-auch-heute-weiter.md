@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Das Versteckspiel geht auch heute weiter!"
+---
+
+Das Versteckspiel geht auch heute weiter! Noch immer wurde von Vereinsseite nicht bekanntgegeben, ob Protest eingelegt wird. Das soll nun endgültig morgen passieren. Langsam habe ich kein Verständnis mehr dafür, aber ich kann es eh nicht ändern. Also warte ich eben weiter...Die FAZ meldet jedoch schon heute, dass Einspruch eingelegt wurde. Rainer Leben hat sich erneut gegen den Vorwurf gewehrt, ein Strohmann der Kinowelt zu sein. Er gab an, der Eintracht eine private Bankbürgschaft über 2,5 Millionen Mark gegeben zu haben. Ohlala! Das hätte ich ihm gar nicht zugetraut! Dennoch bleibt die Frage: Ist das wahre Liebe zur Eintracht oder ein abgekartetes Spiel? Denn mit der Kinowelt im Rücken, könnte ich auch eine solche Bürgschaft abgeben... Für Dienstag ist die Mannschaft zu unserem Ministerpräsidenten Roland Koch nach Wiesbaden eingeladen worden. Er möchte damit "moralische Rückendeckung" im Abstiegskampf signalisieren. Da werden sich die Spieler aber sicher freuen! Oder besser: Das hat ihnen gerade noch gefehlt! Diese Aktion riecht doch wohl stark nach verfrühtem Wahlkampf und versuchtem Imagegewinn! Naja, solange er keine Spenden der Eintracht erwartet, kann man diesen Termin auch wahrnehmen.

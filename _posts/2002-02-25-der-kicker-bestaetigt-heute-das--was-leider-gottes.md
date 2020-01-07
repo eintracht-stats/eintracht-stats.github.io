@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Der Kicker bestätigt heute das, was leider Gottes eigentlich schon lange feststeht: Christoph Preuß wird aller Voraussicht nach die Eintracht verlassen."
+---
+
+Der Kicker bestätigt heute das, was leider Gottes eigentlich schon lange feststeht: Christoph Preuß wird aller Voraussicht nach die Eintracht verlassen. Das ist natürlich schade, aber aus finanziellen Gründen unerlässlich. Das Geld wird für die Deckung des Etats für die kommende Saison gebraucht. Allerdings werden es nicht 10 Millionen Euro sein, die schon mal im Raum standen. Das wäre aber auch überhöht. Wenigstens wird Preuß einen Karrieresprung machen, den ich ihm auch wirklich gönne. Die Eintracht ist aufgrund ihrer Finanzpolitik selber schuld, dass Talente verkauft werden müssen... Jetzt habe ich noch gar nicht gesagt, wohin der Mittelfeldspieler wahrscheinlich geht: Er wird im nächsten Jahr Champions League spielen und nicht etwa Uefa-Cup - denn Bayer Leverkusen wird wohl das Rennen machen, nicht die Bayern! Dieser kleine Seitenhieb musste jetzt sein :-)  
+Eine Erklärung, warum Horst Ehrmantraut nicht zur Eintracht kommt, hat der Kicker übrigens auch: Er ist nicht zu bezahlen, da er noch einen Vertrag bis zum Saisonende in Hannover hat und dort inkl. Aufstiegsprämie eine halbe Million Euro erhalten wird. Wie schön, dass das Blatt die Gerüchte, die es in die Welt setzt auch wieder eigenhändig entkräftet...

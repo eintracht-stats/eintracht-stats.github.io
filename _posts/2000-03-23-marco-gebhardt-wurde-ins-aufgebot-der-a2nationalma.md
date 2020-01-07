@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Marco Gebhardt wurde ins Aufgebot der A2-Nationalmannschaft berufen."
+---
+
+Marco Gebhardt wurde ins Aufgebot der A2-Nationalmannschaft berufen. Das Team trifft am 28.03. auf Russland. Weit reisen muss er nicht: Das Spiel findet in Offenbach statt... Verdient ist die Nominierung allemal. Und solange er sich nicht verletzt, kann das auch nicht schaden. So kriegt er wenigstens ein wenig internationale Erfahrung. Bei der Eintracht ist das ja nun wirklich nicht in Sicht. Thomas Sobotzik kann möglicherweise doch gegen Schalke auflaufen. Er absolviert wieder Lauftraining und steigt vielleicht morgen ins Mannschaftstraining ein. Die Bayern haben das Spiel gegen Kiew mit 0:2 verloren. Wen stört's!? Einige der Spieler von gestern werden wir so schnell nicht wieder sehen, deshalb nenne ich sie einfach mal: Slawomir Wojciechowski, Nils-Eric Johannsson, David Jarolim und Antonio di Salvo! Kollektive Schonung war angesagt. Daher kamen sie zum Einsatz. Und noch eine "eintracht-fremde" Meldung habe ich: Christoph Daum hat ein Riesenangebot von Fenerbahce Istanbul abgelehnt. 12 Millionen DM netto als Jahresgehalt, eine Villa am Bosporus, ein Luxuswagen samt Chauffeur und 80 Millionen für neue Spieler hätte er bekommen! Wer nicht will, der hat schon....Mit so einem Trainer muss Leverkusen doch einfach Meister werden!

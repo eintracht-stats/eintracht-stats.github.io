@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Meinen heutigen Eintrag widme ich Christine aus unserem Gästebuch!"
+---
+
+Meinen heutigen Eintrag widme ich Christine aus unserem Gästebuch! Ich möchte ihr sagen, dass ich immer so schnell wie möglich über die Eintracht schreibe - wenn es etwas zu schreiben gibt... Heute war das nicht der Fall, das haben Länderspielwochenenden nun mal leider so an sich. Wenn unsere Besucher es nicht ohne Daily Flip aushalten, freut mich das natürlich. Aber wie schon einmal vor ein paar Tagen erwähnt: Ich kann ja schlecht etwas erfinden! Naja, nun komme ich doch noch zum Sport. Unsere U21 hat heute gegen England in der EM-Qualifikation gespielt. Das Spiel war gut, das Ende ganz bitter! Das 0:1 aus der 56. Minute konnte Christoph Metzelder in der Nachspielzeit ausgleichen. Ein Unentschieden wäre durchaus ein Erfolg gewesen. Leider folgte in der Nachspielzeit auch noch das 1:2! Einmal nicht aufgepasst und schon ist der Ball drin. Darf nicht passieren, ist passiert. Jetzt ist die Qualifikation wieder in Gefahr... Christoph Preuß wurde übrigens nicht eingesetzt. Just in dem Augenblick als er eingewechselt werden sollte, fiel das 0:1. Damit waren offensivere Leute gefragt und er musste wieder auf der Bank Platz nehmen. Schade für ihn, aber so konnte er sich wenigstens auch nicht verletzen...

@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die Eintracht wird Alexander Schur definitiv kein finanziell besseres Vertragsangebot machen."
+---
+
+Die Eintracht wird Alexander Schur definitiv kein finanziell besseres Vertragsangebot machen. Allerdings wird sie versuchen ihm durch berufliche Perspektiven nach der Karriere eine Vertragsverlängerung schmackhaft zu machen. Die Eintracht möchte den Spieler, der Spieler möchte nach eigener Aussage gerne bei der Eintracht bleiben - da müsste man doch eine Lösung finden können!? Das Problem ist aber schlicht und ergreifend, dass Spieler, die wenig leisten zuviel verdienen. So gab Tony Woodcock z.B. an, dass man mit dem Gehalt von Guie-Mien fünf Spieler finanzieren könne! So ist das bei der Eintracht eben. In zwei Wochen will Alex Schur übrigens wissen, wo er im nächsten Jahr spielt. Auch die zuletzt nicht berücksichtigten Skela und Ciric erwarten von der Eintracht eine klare Aussage, ob der Verein weiter mit ihnen plant. Ich nehme mal an, dass fast alles von der Lizenz abhängt. Wenn wir die endlich in der Tasche haben, dürfte der Kader langsam beginnen Konturen anzunehmen. Solange bleibt ganz einfach ein mulmiges Gefühl - diesen Nervenkitzel braucht kein Mensch!!!

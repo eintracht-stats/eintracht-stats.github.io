@@ -1,0 +1,6 @@
+---
+layout: post
+title: "In der FR erschien natürlich ein Artikel über das erste Training."
+---
+
+In der FR erschien natürlich ein Artikel über das erste Training. Darüberhinaus wird dort eine weitere Story aus Felix Magaths Trainerleben erzählt, die ich jedoch für ein Märchen halte. Angeblich hat er seine Bremer Spieler frühmorgens im Dunkeln zum Waldlauf gebeten. Dabei soll er Turnschuhe getragen haben, die an der Ferse reflektierten. So weit, so gut. Weiterhin habe sich jeder Spieler, der dem Tempo des Trainers nicht folgen konnte und deshalb die leuchtenden Schuhe aus den Augen verloren hat, verlaufen. Diese mussten sich "per Anhalter den Weg aus dem tiefen Dickicht bahnen." Nicht im Ernst, oder? Auf jeden Fall war für heute morgen auch ein Waldlauf geplant... Ausserdem will Magath mit den Spielern öfter in den Kraftraum gehen. Das neuste Gerücht zum Thema Neuverpflichtungen heisst Marc Ziegler, der Stuttgarter Torwart! Was zum Teufel wollen wir mit einem Torwart!? Jedenfalls hat der Trainer mit der Äusserung: "Einen guten Torwart brauchen wir dringender als einen Torwarttrainer" diese Spekulation begünstigt und gleichzeitig einen Seitenhieb auf Torwarttrainer René Müller losgelassen. Die ersten beiden für das Hallenmasters qualifizierten Clubs heissen: Bayer Leverkusen und Borussia Mönchengladbach!

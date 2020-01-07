@@ -1,0 +1,150 @@
+---
+layout: post
+title: "2001 - Wieder ist ein Jahr vorüber..."
+---
+
+2001 - Wieder ist ein Jahr vorüber... Wie im letzten Jahr auch, möchte ich einen kleinen Jahresrückblick wagen. Selbstverständlich steht zunächst der Sport im Vordergrund, dann folgt wie erwartet mein privater Eindruck des Jahres. Folgendes scheint mir erwähnenswert (meistens, aber nicht immer chronologisch): - die großen Pläne für ein neues Trainingsgelände am Riederwald  
+- die Rückkehr von Christoph Daum aus Florida  
+- der Kokain-Prozess gegen Christoph Daum  
+- die von den Fans so begrüßte Verpflichtung von Tommy Berntsen  
+- das sanfte Training eines gewissen Felix M., das dem Norweger besonders gut bekommen ist  
+- die Panikmache des Fachblattes Kicker (eigentlich in jeder Beziehung)  
+- die sinnvolle Reise der Eintracht nach Spanien, wo sie drei Tage vor Rückrundenbeginn ein Testspiel absolvierte...  
+- das gelunge Debüt von Karel Rada bei Felix Magaths Abschiedsgala - 1:5 gegen Köln  
+- die fristlose Entlassung des Trainers (der wievielte Trainerwechsel war das jetzt eigentlich?)  
+- die schmutzige Wäsche, die in der Folge der Magath-Entlassung gewaschen wurde  
+- die ins Leben gerufene Trainerfindungskommission (TFK)  
+- sämtliche Trainerkandidaten: Schäfer, Skibbe, Matthäus, Daum, Löw, Köstner, Briegel, Toppmöller, Heribert Weber, Henke, Lorant, Uli Stein, Ehrmantraut und nicht zuletzt: Martin Andermatt...  
+- die heldenhafte Arbeit einiger Fans, die versuchten öffentlichen Druck auf die Führungsspitze auszuüben um diesen oder jenen Trainer zu verhindern bzw. zu installieren...  
+- Rolf Dohmens Sitzfleisch auf der Trainerbank  
+- der Wechsel von Puma zu FILA  
+- der Wirbel, der während der Verhandlungen mit Lothar Matthäus im Umfeld entstand  
+- die Tatsache, dass eine Grätsche gegen Jürgen Grabowski auch nach 20 Jahren noch eine Todsünde darstellen kann  
+- Spieler, wie Markus Lösch...  
+- der Yeboah/Hölzenbein/Knispel-Prozess  
+- das Handspiel von Alex Schur gegen die Löwen  
+- der Einstieg von Felix Magath beim VfB Stuttgart  
+- das 13-Minuten-Debüt von Tommy Berntsen  
+- die beiden weiteren Einsätze der Verstärkung...  
+- die ganze Saison Karel Radas...  
+- der tränenreiche Abschied Jan-Aage Fjörtofts, DAS war noch ein Spieler mit Herz...  
+- die Flugversuche unserer Keeper und die Krabbelstunden der Verteidiger  
+- der Sitzstreik der Fans nach dem 2:5 in Freiburg ("Wenn ihr absteigt, schlagen wir euch tot")  
+- der aus dem Hut gezauberte "Retter" Friedel Rausch  
+- das Gastspiel von Berti Vogts in Leverkusen - jetzt ist er in Kuwait tätig...  
+- die randalierenden "Fans" nach dem Spiel gegen Leverkusen...  
+- unsere Standardsituationen  
+- Spieler, wie Horst Heldt  
+- der Fan, der im Zusammenhang mit den Ausschreitungen beim Testspiel in Darmstadt ums Leben kam  
+- katastrophale Spielerverträge: ablösefreie Wechsel im Abstiegsfall, Sprach- und Kochkurse für die Frauen, höheres Gehalt trotz Abstieg...  
+- die Erkenntnis, dass es nicht genügt, wenn ein Cowboy seine Satteltasche vor Pinkelattacken beschützt  
+- Friedel Rauschs Gastspiel als Teammanager  
+- Kartenspiele nach dem Abstieg  
+- der radikale Schnitt nach dem Abstieg...  
+- die Posse um Clemens Fritz  
+- Matthew Wheeler, der die Eintracht mit einer löchrigen Badewanne verglich  
+- den Gewinn der Champions League durch den FC Bayern  
+- die Laufgruppe Lippert  
+- die U20-WM in Argentinien  
+- das Kicker-Sonderheft, das bei der Eintracht das Scouting-System ersetzte...  
+- der Wechsel Rausch/Woodcock  
+- den Europameistertitel unserer Fußballfrauen!  
+- Spieler im Probetraining  
+- Rhönsprudel-Pokal und FILA-Cup - die letzten Titel der Eintracht  
+- den geplanten Stadionneubau  
+- den Ausstieg Octagons aus dem Stadionprojekt  
+- den trotzdem geplanten Stadionneubau  
+- das Gerede vom 50-Millionen-Etat  
+- der FC Bayern der 2. Liga  
+- Cordon Bleu und seine Folgen  
+- die Verlegung von ran  
+- den Ausstieg Octagons bei der Eintracht  
+- Spieler, die nicht groß genug sind, den Adler zu tragen  
+- die Auftritte im DFB-Pokal  
+- das 1:5 der Nationalmannschaft gegen England  
+- die Relegationsspiele gegen die Ukraine  
+- die ZDF-Übertragung von der WM-Auslosung...  
+und so weiter und so fort.... Es gab Unmengen an kuriosen, lustigen, ernsten und typischen Eintracht-Ereignissen... Auf eine Fortsetzung im Jahre 2002!!!  
+  
+Und jetzt folgt der Rückblick auf mein Privatleben. Eigentlich ist ja alles beim alten - und dennoch ist viel passiert...  
+  
+- Gerüchte, an denen mehr dran war, als ich zugeben wollte  
+- Wackelpudding... und die empörten Mails, die ich nach dieser Wortschöpfung erhielt  
+- richtig lustige Englischstunden mit netten Leuten um mich rum  
+- unsere erste Abi-Party...  
+- einen Tag später das Debakel gegen Köln in Begleitung der FC-Anhängerin  
+- ein Maulwurf, der es gut mit mir meinte  
+- die feindliche Übernahme unserer Fair-Play-Tabelle  
+- Diskussionen über das Copyright von eintracht-stats.de  
+- frostige Stimmung zwischen den Fanpage-Lagern  
+- kurzzeitige Annäherungen zwischen den Fanpage-Lagern  
+- das heute neutrale Verhältnis zwischen den Fanpage-Lagern  
+- Chris' grüne Kumpane  
+- das Foto meines Franz-LKs für das Abibuch  
+- die ersten Awards unserer Seite - wo auch immer sie herkamen...  
+- das Verschwinden der Red Eagles  
+- Fasching an meiner Schule  
+- der Grundsatzstreit mit Chris Anfang März  
+- die "Nackt-Fotos" in meinem Chemie-LK für das Abibuch (was für ein ekelerregender Anblick...)  
+- BSE  
+- MKS  
+- petrol deer hail  
+- die Krankheit, die unsere Weinbergschnecke aus der Schleimspur warf  
+- Automaten, die schon im März auf EURO umgestellt waren  
+- der bewegende Abschied von Jan-Aage Fjörtoft  
+- Chris' Tränen beim Fjörtoft-Abschied  
+- meine Tränen beim Schreiben des Daily Flips zum Fjörtoft-Abschied  
+- Abi-Stress  
+- Clementine  
+- die Kommunalwahlen, bei denen Chris knapp gescheitert ist  
+- mein Aprilscherz in Daily Flip, auf den Chris fast hereingefallen wäre  
+- die Antwort der Eintracht auf eine Mail von meiner Privatadresse mit dem Hinweis, die gewünschten Infos doch bei eintracht-stats.de zu suchen...  
+- meine gelungenen schriftlichen Abiturprüfungen  
+- unser neues Design im April  
+- mein traumhafter Frankreich-Urlaub mit wunderbaren Freunden: FC-Anhängerin, Journalistin, Kinderkrankenschwester, Franzose, Stardirigentin, Bombie der Zombie...  
+- mein dadurch verpasstes Spiel gegen die Bayern  
+- Kampfschweine  
+- mein HR 3-Interview  
+- meine Tränen zum Abstieg  
+- die Trikots, die den Spielern um Guie-Mien danach aus dem Fanblock zurückgeworfen wurden  
+- meine nicht so ganz gelungene mündliche Abiturprüfung  
+- der Abiball und das unvergessliche Gefühl am nächsten Morgen ins Bett zu fallen...  
+- die Erkenntnis, dass nicht nur die Eintracht Probleme hat, Sponsoren zu finden  
+- die Abiturientenverabschiedung  
+- das Abibuch (sehr gut!!!)  
+- an dieser Stelle sollten vielleicht auch mal einige meiner Lehrer zitiert werden: "Könnt ihr bitte ruhig sein!?", "Ich wollte diesen Kurs nicht", "Lest doch mal bitte mit...", "des machtemal der...", "Der Kurs bin ich", "Nüschel, Buddel, Polyester...", von einem gibt es kein Zitat, weil er immer krank war... - ich werde die Schule vermissen...  
+- unser neues Tabellenberechnungsprogramm  
+- unser neues Spielerbenotungssystem  
+- meine ewigen Erinnerungsmails an Chris, wenn er mal was für unsere Seite tun soll  
+- die Erkenntnis, dass Sportwetten auch trotz genauster Kenntnis der Materie kaum Erfolg haben können  
+- die Erkenntnis, dass Ergebniswetten mit Insiderwissen (ich habe ein 1:0 vorhergesagt) immerhin 2 DM wert sein können  
+- Chris' Geburtag und seine überraschenden Offenbarungen  
+- meine Daily Flip-Special Edition für meine Stardirigentin zu ihrem Geburtstag  
+- mein Job als Sklave, auch genannt Zivi...  
+- ein neuer Friedhofsgärtner in meiner Heimatstadt  
+- planvolles Arbeiten vs. kalkuliertes Chaos...  
+- ZACK  
+- Echt  
+- Alriki  
+- der Major  
+- KA  
+- AK  
+- Kigodi  
+- Kragodi  
+- die Erkenntnis, dass es auch nette OFC-Fans gibt  
+- der furchtbare 11. September und seine Folgen  
+- Admira/Wacker Mödling  
+- die Bornheim Blues Company  
+\-1.026.542 Buchstaben in zwei Jahren  
+- die Erkenntnis, dass der Deckel immer noch zu ist  
+- die Erkenntnis, dass Chris nicht immer den Coolen spielen kann...  
+- meine Zeit auf dem Zivilehrgang in Wetzlar  
+- die Auswärtsfahrt nach Mainz  
+- Chris Erkenntnis, dass Österreich mehr hervorgebracht hat als nur Gerd Wimmer.........  
+- mein Auftritt als Moralapostel, zu dem ich weiterhin stehe  
+- die Erkenntnis, dass Daily Flip Menschen dazu bringt, wieder miteinander zu reden  
+- der Tag, an dem ich Chris versetzte  
+und zuguterletzt die Erkenntnis, dass chatten Spaß macht...  
+  
+Das wäre wieder mal geschafft! Jetzt möchte ich noch ein paar Abschiedsgrüße loswerden: Heute nacht verlässt uns eine treue Seele - für immer... Die Deutsche Mark wird abgelöst und verschwindet von dieser Erde. Tschüs DM! Ich hatte 20 schöne Jahre mit dir. Wir werden dich vermissen! Jetzt fehlen noch meine guten Vorsätze für das neue Jahr: Aus sportlicher Sicht ganz klar - wir wollen aufsteigen und endlich mal ein ruhiges Jahr erleben! Für eintracht-stats.de wünsche ich mir weitere Innovationen unserer Technikabteilung und einen weiteren Besucherzuwachs. Zufrieden darf man ja nie sein... Und privat: Da gibt es nur ein Ziel! 2002 oder nie...  
+Das war Daily Flip im Jahre 2001! Jetzt wünsche ich allen Eintrachtfans, allen Lesern von Daily Flip sowie allen, die in meinem Tagebuch verewigt wurden, allen weiteren Besuchern dieser Seite und allen, die mir sonst noch nahestehen: **GUTEN RUTSCH UND EIN AUSGESPROCHEN SCHÖNES, ERFOLGREICHES, GLÜCKLICHES UND FRIEDLICHES JAHR 2002!!!**

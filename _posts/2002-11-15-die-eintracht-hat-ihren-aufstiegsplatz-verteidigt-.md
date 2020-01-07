@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Die Eintracht hat ihren Aufstiegsplatz verteidigt und steht weiterhin auf Platz 3 der 2."
+---
+
+Die Eintracht hat ihren Aufstiegsplatz verteidigt und steht weiterhin auf Platz 3 der 2. Bundesliga. Bei Union Berlin holte die Mannschaft heute ein 1:1. Fast mit dem Pausenpfiff war die Eintracht durch Kryszalowicz in Führung gegangen. Wenige Minuten nach Wiederanpfiff erzielte Vidolov per Freistoß den Ausgleich. Ein Spielbericht folgt morgen...  
+Wie immer ist es ärgerlich, wenn man einen Vorsprung nicht über die Zeit bringt. Aber wenn ich mir die Tabelle so ansehe: Momentan sind es zwei Punkte auf Platz 4, einer davon bleibt mit Sicherheit auch nach den Sonntagsspielen. So schlecht ist das wahrlich nicht! Im Spiel gegen Mainz geht es jetzt um die viel beschworenen "Big Points"...  
+  
+Der personelle Aderlass war zu groß für die Amateure: Wenczel, Toppmöller und Weißenfeldt bei den Profis, Cimen bei der Nationalmannschaft und mit Maljkovic (Knöchelbruch) einen weiteren Langzeitverletzten an Bord... Heute setzte es in Hoffenheim mit 1:7 eine deftige Klatsche! Sascha Ropic erzielte den Ehrentreffer. Hoffentlich versetzt dieses Ergebnis der Mannschaft jetzt keinen Knacks. Die Gründe liegen für mich doch wirklich auf der Hand...

@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Das Spiel der Eintracht in Saarbrücken wird wahrscheinlich nicht wie geplant am Samstag stattfinden!"
+---
+
+Das Spiel der Eintracht in Saarbrücken wird wahrscheinlich nicht wie geplant am Samstag stattfinden! Der Platz im Ludwigsparkstadion wurde von der Stadt gesperrt, weil das Gras an einer ausgebesserten (!) Stelle vor einem Tor nicht richtig angewachsen sei! Und so was erlebt man in der 2. Bundesliga... Unfassbar! Morgen wird eine Komission der Deutschen Fußball-Liga GmbH den Platz besichtigen. Sollte das Spiel definitiv nicht stattfinden, wird es für Dienstag neu terminiert und möglicherweise sogar auf einem Ausweichplatz ausgetragen. Diese Spielabsage wäre wirklich ärgerlich! Erstens ist es immer blöd, wenn ein Wochenende ohne Spiel der eigenen Mannschaft ansteht. Und zweitens ist es gerade am Anfang einer Saison schlecht, wenn man ein Spiel weniger hat. Das sieht nämlich in der Tabelle nicht gut aus, wenn man so tief abstürzt... Wir können es nicht ändern!  
+Ralf Weber hat seine Karriere endgültig beendet. Sein bis 2002 laufender Vertrag wurde aufgelöst, im Profikader stand der Spieler schon vorher nicht mehr. Dem Antrag des ehemaligen Kapitäns auf Sportinvalidität wurde stattgegeben. Er lässt sich jetzt zum Kaufmann umschulen, nachdem man sich über ein Angebot der Eintracht, für den Verein zu arbeiten, nicht einig werden konnte. Wünschen wir Ralf Weber viel Glück - er hat viel für die Eintracht geleistet!

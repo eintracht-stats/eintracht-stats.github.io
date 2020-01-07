@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Gestern habe ich mehr oder weniger freiwillig auf jegliche News verzichtet."
+---
+
+Gestern habe ich mehr oder weniger freiwillig auf jegliche News verzichtet. Irgendwann muss auch ich mal frei haben. Heute hole ich die Meldung vom Kicker aber nach: Der Meldung zufolge darf Oka Nikolov den Verein verlassen! 400.000 DM stellt die Zeitung als mögliche Ablösesumme in den Raum. Eine offizielle Bestätigung des Spielers oder des Vereins steht allerdings noch aus. Klar ist allerdings, dass Dirk Heinen trotz seiner Patzer unangefochten auch weiterhin die Nr. 1 im Kasten ist. Und da man mit Andreas Menger einen weiteren bundesligaerfahrenen Keeper und mit Daniel Haas ein Talent auf dieser Position in der Hinterhand hat, spricht eigentlich nichts gegen eine weitere Reduzierung des Kaders. Wir haben Oka Nikolov viel zu verdanken. In der Aufstiegssaison und im folgenden Jahr 98/99 hat er Topleistungen für die Eintracht gebracht. Aber im Moment kann er der Eintracht sportlich nicht helfen. Von daher würde ich den Wechsel akzeptieren, auch wenn damit ein weiterer echter Hesse gehen würde. Lieber ein paar Bankdrücker mit hohem Gehalt ziehen lassen als einen wichtigen Stammspieler...

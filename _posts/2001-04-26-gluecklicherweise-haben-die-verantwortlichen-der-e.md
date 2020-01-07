@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Glücklicherweise haben die Verantwortlichen der Eintracht aus der Vergangenheit gelernt."
+---
+
+Glücklicherweise haben die Verantwortlichen der Eintracht aus der Vergangenheit gelernt. So gelten alle Verträge der Neuzugänge Pawel Kryszalowicz, Karel Rada und Tommy Berntsen sowohl für erste als auch zweite Liga. Wenigstens wären die investierten 7,5 Millionen Mark bei einem eventuellen Abstieg nicht ganz verloren. Die Leistungen der Vergangenheit lassen aber befürchten, dass die drei Neuzugänge bei Weitem nicht das wert sind. Man kann nur auf eine bessere Saison der Eintracht hoffen, in der sich diese Spieler dann profilieren können. Vielleicht ja nächstes Jahr in der zweiten Liga!? Bei einem Abstieg besitzen auch andere Spieler Ausstiegsklauseln gegen eine geringe Transfersumme. So könnten z.B. Oka Nikolov, der 1.500.000 Mark kosten würde, Thomas Sobotzik (2 Millionen) oder Alexander Schur (nur 500.000 DM) gehen. Yang, Salou, der 7 Mio. Mark kostete, und Heldt besitzen Kontrakte, die ausschließlich für die erste Liga gültig sind. Da diese Spieler im Falle des Abstiegs ablösefrei die Eintracht verlassen könnten, würde der Verein die getätigten Investitionen komplett als Verluste abschreiben müssen.

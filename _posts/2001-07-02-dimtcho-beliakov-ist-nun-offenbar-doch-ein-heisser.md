@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Dimtcho Beliakov ist nun offenbar doch ein heißer Kandidat auf einen Platz im Eintracht-Sturm!"
+---
+
+Dimtcho Beliakov ist nun offenbar doch ein heißer Kandidat auf einen Platz im Eintracht-Sturm! Der Bulgare nimmt an den nächsten vier Tagen probeweise am Training in Weggis teil. Vor kurzem hatte die Eintracht noch das Interesse an dem Spieler bestritten - nun will man ihn womöglich doch ablösefrei verpflichten. Mal ganz abgesehen davon, dass Verstärkungen in der Abwehr deutlich dringender sind, könnte das wieder ein Zeichen von steigender Professionalität bei der Eintracht sein. Der Stürmer war der Eintracht vor ein paar Wochen vom 1. FC Nürnberg zum Nulltarif angeboten worden. Es wurde jedoch spekuliert, dass die Franken noch eine Option ziehen könnten: Nicht um den Spieler zu halten, sondern um damit letztendlich doch noch eine Ablöse für ihn zu kassieren. Ich glaube es war nach der Vertragsverlängerung mit Chen Yang, als die Eintracht dann ein Interesse an Beliakov ins Reich der Fabeln verwies. Am 30. Juni verstrich die Frist, bis zu der der "Club" die Option auf den Stürmer hätte ziehen können, ungenutzt - mangels Interessenten. Zwei Tage später steht der Spieler für ein Probetraining im Eintrachttrikot auf dem Feld. Kann ein Zufall sein, muss aber nicht...

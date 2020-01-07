@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Alexander Schur scheint nun doch gesperrt zu sein."
+---
+
+Alexander Schur scheint nun doch gesperrt zu sein. Seinen Platz könnte Uwe Schneider einnehmen. Die Krankheitsprobleme haben sich allerdings gelegt. Bis auf die 3 Langzeitverletzten befinden sich alle Spieler im Training. Die Iniative von 6 Vereinen gegen die Eintracht sieht Felix Magath gelassen. Er hält das für Heuchelei, da auch bei diesen Vereinen nicht immer wirtschaftlich solide gearbeitet wurde. Der DFB sei sich darüber auch im Klaren. Nach Vereinsangaben steht der Abschluss mit dem Investor (Kinowelt oder Octagon) in den nächsten Tagen bevor. Das hatten wir doch schon mal...!? Mit der Schaffung der Holding AG, was auch immer das sein mag, seien die Voraussetzungen dafür getroffen worden. Es sollen 25,1 Prozent der Aktien verkauft werden, die sich im Moment noch zu 100 % in Händen der Eintracht befinden. Mit dem Vorstandsvorsitz der AG ist Rainer Leben nun auch auf dem Papier der mächtigste Mann am Riederwald. Er arbeitet aber zur Zeit noch unentgeltlich. Jens Jeremies wird für das nächste Länderspielt nicht nominiert. Grund: Ein Interview, in dem er die Nationalmannschaft als "in einem jämmerlichen Zustand befindlich" beschreibt. Er hat aber doch Recht!

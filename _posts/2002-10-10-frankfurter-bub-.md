@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Frankfurter Bub."
+---
+
+Frankfurter Bub. Klingt eigentlich harmlos. Und wenn Volker Sparmann es mit Ralf Weber in Verbindung bringt und diesem möglicherweise ein Angebot macht als Jugendtrainer zur Eintracht zu kommen wie es die FR meldet, dann ist das auch in Ordnung. Aber bei einem möglichen Sportdirektor Andreas Möller hört der Spaß auf! Möller mag international erfahren sein, Möller mag auch Kontakte haben. Na und? Er hat die Eintracht verarscht und ausgenommen. Die Richtung gab natürlich Klaus Gerster vor und somit gilt auch heute noch: Holt man Möller, holt man Gerster...  
+Wie soll Möller denn Führungsqualitäten ausspielen, wenn er nicht mal auf dem Platz den Mund aufgemacht hat? Wie soll Möller alleine Entscheidungen treffen oder gar einen Vertrag aushandeln, wenn das bisher für ihn Klaus Gerster übernommen hat? Was qualifiziert Möller überhaupt für diesen Posten? Die Eigenschaft "Frankfurter Bub"? Sprüche wie "Mailand oder Madrid - Hauptsache Italien"? Also bitte... Ich habe Möller nie im Eintracht-Trikot gesehen. Und ich habe die Schmierenkomödie um seinen Wechsel nach Turin nicht bewusst miterlebt, weil sie in die Anfangszeit meines Fandaseins fiel. Was ich darüber gelesen habe, reicht mir aber schon... Wenn Volker Sparmann solch eine Konstellation wirklich in Erwägung zieht, dann kann er sich seine Verdienste um die Lizenz an den Hut stecken. Denn eine solche Missachtung der Stimmung unter den Fans wäre durch nichts zu entschuldigen!

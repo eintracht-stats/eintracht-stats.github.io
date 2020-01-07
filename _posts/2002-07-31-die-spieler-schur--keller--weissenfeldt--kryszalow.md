@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Die Spieler Schur, Keller, Weißenfeldt, Kryszalowicz und Wenczel befinden sich wieder im Training."
+---
+
+Die Spieler Schur, Keller, Weißenfeldt, Kryszalowicz und Wenczel befinden sich wieder im Training. Sie absolvieren zwar noch ein reduziertes Programm, werden aber wahrscheinlich bis zum Saisonstart fit. Immer noch fehlen Vivian, di Gregorio (Knöchelverletzungen) und Günther (Entzündung im Knie). Aber jetzt haben wir wenigstens wieder ein erträgliches Maß an verletzten Spielern...  
+Was jetzt kommt, kennt ihr mittlerweile schon zur Genüge:  
+1\. Serge Branco verhandelt weiter über seine Gehaltskürzung. Er wird aber wohl bei der Eintracht bleiben.  
+2\. Die Eintracht verhandelt mit dem OFC Neugersdorf über einen Wechsel von Jean Tsoumou-Madza. Willi Reimann will die Sache unbedingt noch in dieser Woche zu einem Ende bringen.  
+3\. Du-Ri Cha verhandelt mit Bayer Leverkusen über einen Vertrag. Erst wenn dieser unterschrieben ist, könnte der Koreaner an die Eintracht ausgeliehen werden.  
+  
+Heute findet das wahrscheinlich letzte Testspiel vor dem Saisonstart statt. Gegner ist der FSV Fernwald/Steinbach. Das Ergebnis folgt... In letzter Zeit war Daily Flip ausschließlich der Eintracht vorbehalten - sie hat ja auch einigen Gesprächsstoff geboten. Auf vielfachen Wunsch einer Einzelperson hin komme ich aber jetzt wieder mal zu einem Privateintrag. Meiner Stardirigentin kann ich nun einmal keinen Wunsch abschlagen... Also dann: Wie es sich für einen echten VIP gehört, wurde sie zu ihrer Geburtstagsfeier eigens aus südlichen Regionen eingeflogen. Auch kleinere wecktechnische Probleme konnten sie dabei nicht aufhalten. (An dieser Stelle ergeht übrigens auch ein Dank an Eintracht-Hauptsponsor Fraport, der den reibungslosen Ablauf der Starankunft am Rhein-Main-Airport gewährleistete...)  
+Nach einer Diskussion mit unserem Friedhofsgärtner über Peles Sprechen-sie-mit-ihrem-Arzt-Ich-würde-es-tun-Werbespot folgte ein erster Schock für die Stardirigentin: Sich ankündigender Nachwuchs im "weiteren Bekanntenkreis" verschlug ihr kurzfristig die Sprache. Naja, was soll man dazu auch sagen? Zu Risiken und Nebenwirkungen lesen die Packungsbeilage...  
+Unglaublich aber wahr: In der Folgezeit verhielt sich die Stardirigentin absolut unwürdig für Daily Flip, also pannenfrei! Und als dann noch ein weiterer Gast auftauchte, der fast noch süßer war als die Stardirigentin selbst, schien der heutige Daily Flip endgültig ins Wasser zu fallen. Einige Batterie-Entladungen und einen kleinen Notfalleinsatz mit Sesamtraßen-Pflaster später, rückte dann aber wieder die Stardirigentin in den Mittelpunkt: Der obligatorische Pfeifversuch folgte - und langsam klappt es schon ganz gut. Zwischendrin war tatsächlich mal ein Pfeifen zu hören (ffffffft-pfeeeeeeeif-ffffffffffffft). Gegen Ende des Tages spielte die Gastgeberin noch ein bisschen mit ihren Privatjets und erzielte teilweise beachtliche Flugweiten.  
+Damit beende ich meinen Eintrag für heute. Nach diesem kleinen Seitensprung rückt jetzt wieder die Eintracht in den Mittelpunkt.

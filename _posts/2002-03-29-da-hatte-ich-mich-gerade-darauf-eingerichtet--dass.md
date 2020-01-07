@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Da hatte ich mich gerade darauf eingerichtet, dass einem Feiertag wie dem heutigen Karfreitag sicherlich keine Neuigkeiten von der Eintracht zu erfahren sein werden."
+---
+
+Da hatte ich mich gerade darauf eingerichtet, dass einem Feiertag wie dem heutigen Karfreitag sicherlich keine Neuigkeiten von der Eintracht zu erfahren sein werden. Und schon wurde ich von der Pressekonferenz vor dem nächsten Spiel der Eintracht in Bochum überrascht! Bei der üblichen Bestandsaufnahme des kickenden Personals gab es dabei erfreuliche Meldungen: Bis auf Marco Gebhardt können alle Spieler eingesetzt werden. Auch die Nationalspieler, die während der Woche im Einsatz waren, kehrten gesund zurück.  
+Etwas mehr Klarheit über die Zusammensetzung des Kaders für die neue Saison haben wir auch: Gerd Wimmer wird den Verein verlassen. Die Eintracht wird die Option auf Vertragsverlängerung des Österreichers nicht wahrnehmen, weil dies finanziell nicht machbar ist. Somit wird der Mittelfeldspieler, der noch zu den besseren Spielern dieses Jahres zu zählen ist, die Eintracht ablösefrei verlassen. Sein neuer Verein ist noch nicht bekannt gegeben geworden. Zuguterletzt berichtete Tony Woodcock von Vertragsverhandlungen mit den Spielern Bindewald, Schur und Rasiejewski. Sie seien gut verlaufen.Damit scheint ein Verbleib dieser Spieler durchaus im Rahmen des möglichen. Es geht doch... :-)

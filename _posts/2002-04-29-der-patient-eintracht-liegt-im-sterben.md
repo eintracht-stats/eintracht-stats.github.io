@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Der Patient Eintracht liegt im Sterben!"
+---
+
+Der Patient Eintracht liegt im Sterben! Derartig negativ muss man die augenblickliche Situation wohl beschreiben. Wie der HR, der Kicker und die Frankfurter Rundschau übereinstimmend berichten, bietet Fotex 4 Millionen Euro für den kompletten Octagon-Anteil von 49,9 %! Beim Einstieg der Amerikaner betrug der Wert des Pakets noch 25 Millionen Euro... Wenn ich das höre, stellen sich mir mehrere Fragen:  
+1\. Würde das überhaupt für die Lizenz reichen? Der Eintracht gehören ja nur 15 % der Anteile - das entspräche in etwa 1,3 Millionen Euro! Der Rest der 4 Millionen müsste ja an Octagon fließen, wenn ich mich nicht total täusche.  
+2\. Würde Fotex aber in einen Verein investieren, der trotz dieses Engagements keine Lizenz erhält? Eine seriöse Firma macht so etwas nicht...  
+3\. Gibt es wirklich keine andere Lösung, als die halsabschneiderischen Bedingungen der Ungarn zu akzeptieren, die komplette Macht im Verein, die Seele des Vereins für einen Hungerlohn zu verscherbeln?  
+4\. Was würde bei einem Fall ins Amateurlager mit der Eintracht passieren? Die Schulden würden ja bleiben...  
+5\. Was ist besser: Der freiwillige Abstieg jetzt? Oder der sportliche Abstieg mit ungarischer Führungsspitze im nächsten Jahr, der ohne Mannschaft, ohne Trainer, ohne Geld zwangsläufig scheint?  
+usw...  
+  
+Das Thema ist mir einfach zu komplex, so dass ich das gar nicht mehr überblicken kann. Ich weiß keine Lösung. Ich weiß nicht einmal, ob es überhaupt noch eine Lösung gibt. Wir müssen - ich kann es nicht mehr hören - abwarten. Der Patient Eintracht liegt im Sterben - und der Leichenwagen fährt schon vor...  
+  
+Einige "Fans" tun noch dazu ihr übriges, um der Eintracht finanziell zu helfen: Für die Leuchtraketen, die im Spiel gegen Mainz aufs Spielfeld flogen und fast einen Mainzer Spieler getroffen hätten, muss die Eintracht 7500 Euro zahlen! Ihr seid schon wahre Helden...

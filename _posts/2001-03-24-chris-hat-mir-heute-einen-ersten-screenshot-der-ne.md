@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Chris hat mir heute einen ersten Screenshot der neuen Version unserer Seite zugeschickt."
+---
+
+Chris hat mir heute einen ersten Screenshot der neuen Version unserer Seite zugeschickt. Ich war begeistert und ihr werdet es auch sein! Einen genauen Termin für den Start unserer Seite kann ich noch nicht nennen. Wir hoffen aber, dass es noch im April so weit sein wird... Die deutsche Nationalmannschaft ist nur knapp an einer Blamage vorbeigeschrammt: 2:1 hieß es am Ende gegen Albanien. Deisler nach 50 Minuten und Debütant Miroslav Klose kurz vor Schluss brachten die Mannschaft zweimal in Führung. Das Team knüpfte nahtlos an die Leistung aus dem Spiel gegen Frankreich an und hätte eigentlich keinen Sieg verdient gehabt. Das wichtigste sind die Punkte, aber mit so einer Leistung wird es eine sehr interessante WM in Japan und Südkorea... Gruppengegner England hat mit einem 2:1 gegen Finnland ebenfalls seine Chancen auf eine Teilnahme an der WM gewahrt! Karel Rada konnte mit Tschechien (1:0 in Nordirland) ebenso wie Pawel Kryszalowicz (3:2 in Norwegen) einen Sieg feiern. Beide Teams behalten damit die Spitzenposition in ihren Gruppen! Und auch die Eintracht Amateure konnten wieder mal einen Sieg feiern: 3:2 in Neukirchen!

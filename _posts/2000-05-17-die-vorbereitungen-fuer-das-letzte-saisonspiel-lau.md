@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die Vorbereitungen für das letzte Saisonspiel laufen auf Hochtouren: Die Mannschaft ist heute ins Trainingslager gefahren und zwar nach Bad Nauheim, nicht an die Erfolgsstätte des letzten Trainingslagers."
+---
+
+Die Vorbereitungen für das letzte Saisonspiel laufen auf Hochtouren: Die Mannschaft ist heute ins Trainingslager gefahren und zwar nach Bad Nauheim, nicht an die Erfolgsstätte des letzten Trainingslagers. Das Stadion ist jetzt endgültig restlos ausverkauft. Und das "Hessen Fernsehen" plant für den Abstiegsfall eine Sondersendung. Wird zwar nicht nötig sein, trotzdem gebe ich mal die Uhrzeit an: 20.15 Uhr. Noch 3 Tage. Die Spannung steigt... Zum ersten Mal hat eine nicht (ganz) europäische Mannschaft einen Europapokal gewonnen. Im Uefa-Cup Finale besiegte Galatasaray Istanbul Arsenal London mit 4:1 nach Elfmeterschießen. In der regulären Spielzeit sowie in der Verlängerung fielen keine Tore. Vor dem Spiel kam es in Kopenhagen, wo das Finale ausgetragen wurde, zu schweren Ausschreitungen zwischen englischen und türkischen "Fans". Nach dem Sieg der Türken wurde auch in vielen deutschen Städten ausgelassen gefeiert. In der Türkei kamen 2 Anhänger von Galatasaray bei einem vor Aufregung erlittenen Herzinfarkt ums Leben.

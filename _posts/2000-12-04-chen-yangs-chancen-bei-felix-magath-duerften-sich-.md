@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Chen Yangs Chancen bei Felix Magath dürften sich nach dem zweifelhaften Ausfall am Wochenende nicht gerade verbessert haben."
+---
+
+Chen Yangs Chancen bei Felix Magath dürften sich nach dem zweifelhaften Ausfall am Wochenende nicht gerade verbessert haben. Da fordert der Stürmer einerseits mehr Einsätze und verbringt dann andererseits mehrere Wochen beim Asien-Cup und kann wegen angeblich so starker Kopfschmerzen nicht gegen Bochum auflaufen. Da hapert es wohl an der Einstellung, denn Kopfschmerzen dürften einen Profi nicht daran hindern zu spielen. Und das haben die Verantwortlichen bei der Eintracht ja auch deutlich gesagt. Vielleicht ist gegen Wolfsburg, wo hoffentlich mal wieder ein paar mehr Fans kommen was ich angesichts des Termins am Freitag jedoch bezweifle, Jan-Aage Fjörtoft wieder fit und verdrängt den Chinesen wieder aus der Mannschaft. Um es aber ganz klar zu sagen: Ich habe nichts gegen Yang, aber er sollte bei seinen bisher nicht gerade berauschenden Leistungen froh sein über jede Bewährungschance und nicht rumjammern wie ein kleines Kind! So, jetzt habe ich mich lange genug an diesem Thema aufgehengt (\*g\*). Bleibt noch zu erwähnen, dass Christoph Preuß wegen seiner Roten Karte aus dem Spiel gegen Berlin für 2 Wochen gesperrt wurde und damit nur noch gegen Wolfsburg pausieren muss.

@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Ich muss noch den Torschützen vom gestrigen Spiel nachtragen: Es war einmal mehr Pawel Kryszalowicz, der damit erstmal für die Stammelf gesetzt sein dürfte."
+---
+
+Ich muss noch den Torschützen vom gestrigen Spiel nachtragen: Es war einmal mehr Pawel Kryszalowicz, der damit erstmal für die Stammelf gesetzt sein dürfte. Das wäre auch Tommy Berntsen, wenn nicht dieser blöde Muskelfaserriss dazwischengekommen wäre! Wie es aussieht, fällt er aber nur 2 Wochen aus. Die Verletztenserie ist diese Saison wirklich beispiellos. Aber mich haut mittlerweile so schnell nichts mehr um. Also sehe ich den Ausfall unseres neuen Norwegers mal so: Es ist keine Schwächung gegenüber der Hinrunde. Da hatten wir ihn ja auch nicht. Es ist vielmehr "nur keine Verstärkung"...  
+Gerade habe ich etwas erfahren, dass mich stark an Felix Magaths Eignung als Trainer zweifeln lässt: Er hat Oka Nikolov schon wieder "kaputtgeschossen"... In der Hinrunde hatte er dem Torwart ja schon den Daumen gebrochen als dieser einen seiner Schüsse abwehren wollte. Diesmal gab er sich damit zufrieden ihm den Finger auszukugeln! \*g\* Der Vorfall muss schon ein paar Tage her sein, denn morgen soll Nikolov schon wieder trainieren. Aber immerhin musste beim gestrigen Testspiel schon mal Andreas Menger zwischen die Pfosten. Gut, dass wir ihn verpflichtet haben! Vielleicht sollte der Trainer auch mal über ein Comeback nachdenken - bei dem Schuss... :-)

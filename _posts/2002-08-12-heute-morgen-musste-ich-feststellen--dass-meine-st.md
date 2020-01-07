@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Heute morgen musste ich feststellen, dass meine Stimmbänder beim gestrigen Spiel leider etwas gelitten haben."
+---
+
+Heute morgen musste ich feststellen, dass meine Stimmbänder beim gestrigen Spiel leider etwas gelitten haben. Nicht ganz unschuldig daran ist sicherlich der auffälligste Spieler der Partie gegen St. Pauli: Rolf-Christel Guie-Mien! Mit jeder vergebenen Torchance wurden meine Verzweiflungsrufe lauter... Aber dennoch: Ich finde diesen Spieler einfach klasse. Er hat einfach eine Spielweise, für die ich ihm auch eine schlechte Saison wie die letzte und eben auch haarsträubend vergebene Torchancen verzeihe. Umso überraschter war ich von einem Bericht in der Frankfurter Rundschau. Dort wird der Kongolese dahingehend zitiert, dass er davon ausgehe, seine letzte Saison in Frankfurt zu spielen... Direkt nach dem ersten Saisonspiel ist das schon ein seltsamer Zeitpunkt für so eine Aussage. Aber wer weiß, ob er das wirklich ausgerechnet gestern gesagt hat!? Naja, ich will jetzt hier auch nicht auf die Stimmung drücken. Die Saison ist noch jung - genug Zeit für Gespräche über eine Vertragsverlängerung bleiben also. Wenn Guie-Mien weiterhin so spielt, würde er der Eintracht auch weiterhin gut zu Gesicht stehen. Er kann einer Mannschaft eben das gewisse Etwas verleihen. Das hat er ja gestern gezeigt...

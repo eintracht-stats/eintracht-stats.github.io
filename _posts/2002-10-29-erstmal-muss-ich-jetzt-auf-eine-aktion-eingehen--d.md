@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Erstmal muss ich jetzt auf eine Aktion eingehen, die ich aus Zeitgründen bislang nicht erwähnt habe: Union Berlin ist auf die glorreiche Idee gekommen zu Marketing-Zwecken für das Spiel gegen die Eintracht über Ebay einen Platz auf der Union-Bank zu versteigern."
+---
+
+Erstmal muss ich jetzt auf eine Aktion eingehen, die ich aus Zeitgründen bislang nicht erwähnt habe: Union Berlin ist auf die glorreiche Idee gekommen zu Marketing-Zwecken für das Spiel gegen die Eintracht über Ebay einen Platz auf der Union-Bank zu versteigern. Im Eintracht-Forum kamen einige Fans daraufhin auf die noch viel glorreichere Idee, diesen Platz für einen der unsrigen zu ergattern. So wurden insgesamt über 2000 Euro gesammelt, um Manfred Adelmanns mit SGE-Tattoos verzierten Körper auf die Union-Bank zu bringen. So weit, so gut: Die Auktion wurde gewonnen. Mittlerweile sind aber unsere Freunde von der DFL auf den Plan getreten und wollen die Aktion verbieten. Man beruft sich auf die Statuten, die besagen, dass auf der Bank nur Spieler und "medizinisches und technisches" Personal Platz nehmen dürfen. Wie die Sache ausgeht, ist unklar...  
+Klar ist dagegen, dass morgen wieder mal der Aufsichtsrat zusammentritt. Dort soll über die noch fällige Auflösung des Octagon-Vertrages gesprochen werden. Ohne diesen Schritt kann logischerweise kein neuer Investor an Bord kommen. Problem hierbei: Octagon wird nicht gehen, ohne sein Darlehen in Höhe von 3,9 Millionen Euro (FR-Info) zurückzufordern.

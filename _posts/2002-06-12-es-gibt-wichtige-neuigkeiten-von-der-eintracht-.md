@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Es gibt wichtige Neuigkeiten von der Eintracht."
+---
+
+Es gibt wichtige Neuigkeiten von der Eintracht. Und ausgerechnet in dieser für den Verein so wichtigen Phase hat sich mein Internetanschluss für 24 Stunden in den Urlaub verabschiedet! Als Sportvorstand hätte er damit keine Zukunft mehr - aber ich muss ihm wohl noch mal eine Chance geben. Leider könnt ihr nun aber die guten Neuigkeiten bei uns erst mit deutlicher Verspätung erhalten...  
+Der neue Investor ist gefunden und soll morgen bekannt gegeben werden! Wie die Frankfurter Rundschau berichtet, handelt es sich dabei um eine Frankfurter Bank. Welche Bank genau ihr Geld für die Eintracht zur Verfügung stellen wird, wurde noch nicht bekannt. Und Spekulationen sollten wir dabei auch tunlichst vermeiden - denn wenn der Name vor der Vertragsunterzeichnung bekannt wird, würde der Deal noch platzen. Nach der immer noch nicht aufgeklärten Veröffentlichung des Fotex-Vertrages musste sich die Eintracht nämlich gegenüber den Interessenten schriftlich zum Stillschweigen verpflichten. Selbst Peter Fischer gab nun zu, dass danach die Zukunft der AG in Frage gestanden habe... Nun wendet sich aber offenbar alles zum Guten, was ihr hoffentlich auch bald hier lesen könnt... (Blöde Technik!)  
+Gestern haben Willi Reimann und Karl-Heinz Körbel mit den Spielern Sasa Ciric und Yilmaz Örtülü über Verträge gesprochen. Dabei machte der Trainer klar, dass er Ciric unbedingt halten möchte. Er würde einen leistungsbezogenen Zweijahres-Vertrag erhalten. Örtülü soll zunächst weiter als Vertragsamateur beschäftigt werden, aber mit den Profis trainieren. Bis Anfang nächster Woche wird er sich zwischen dem Angebot der Eintracht und eines anderen Zweitligisten entscheiden.

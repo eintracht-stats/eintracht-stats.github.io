@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Rainer Leben gibt nicht auf!"
+---
+
+Rainer Leben gibt nicht auf! Nachdem er mit seinen Millionenforderungen bei der Eintracht abgeblitzt ist, verklagt er nun den damaligen Verwatungsrat Bernd Ehinger auf Zahlung von 1.826.110,86 DM . Dieser habe ihm die Summe mündlich zugesagt. Man kann zu Ehinger stehen wie man will - in der Finanzaffäre sowie im Zusammenhang mit Rolf Heller und seinem Abgang gibt es sicherlich einige Kritikpunkte - aber er arbeitet im Gegensatz zum Ex-Schatzmeister für die Eintracht und deshalb schlage ich mich natürlich auf seine Seite. Und ich kann mich ihm nur anschließen: Wieso sollte er als Privatperson so bescheuert sein und jemandem diese Riesensumme versprechen? Das kann man ja wohl kaum glauben. Er gibt sich jedenfalls kämpferisch. "Das ziehe ich durch. Bei mir beißt Herr Leben auf Granit." Wer sich hier alles berufen fühlt, Geld zu fordern, ist schon Wahnsinn. Erst Reinhold Fanz, jetzt Leben...Ich hoffe doch, dass unsere Justiz dieses Mal ein besseres Urteil fällt! Rudi Völlers Erfolgsserie als Trainer ist beendet. Mit 1:2 unterlag die deutsche Nationalmannschaft in einem Freundschaftsspiel in Dänemark. Scholl erzielte kurz vor dem Ende per Freistoß den Anschlusstreffer. Die Mannschaft konnte nicht an die zuletzt starken Leistungen anknüpfen und zog verdient den Kürzeren.

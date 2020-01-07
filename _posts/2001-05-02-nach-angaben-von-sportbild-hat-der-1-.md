@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Nach Angaben von Sport-Bild hat der 1."
+---
+
+Nach Angaben von Sport-Bild hat der 1. FC Köln Interesse an einer Verpflichtung von Horst Heldt, der im Abstiegsfall ablösefrei wäre. Manager Linßen dementierte diese Meldung jedoch, da der FC auf der Position im offensiven Mittelfeld ausreichend besetzt sei.  
+Friedel Rausch hat indirekt Kritik an seinem Vorgänger Felix Magath geübt. In Frankfurt seien in der Vergangenheit taktische Fehler begangen worden. Zudem sprach er den von "Quälix" geholten Neuzugängen Rada und Berntsen die Bundesligatauglichkeit ab... Haben wir jetzt irgendwas neues erfahren? Nein, das wussten wir auch alles schon vorher! Irgendwie ist bei der Eintracht im Moment absolut tote Hose. 3 Tage vor so einem wichtigen Spiel, in dem es um den letzten Strohhalm geht, an den man sich klammern kann, müsste eigentlich mehr vom Verein zu hören sein... Naja, vielleicht ist das ja so, wenn man mit einem, oder besser eindreiviertel Beinen in der zweiten Liga steht. Heute war ich jedenfalls schon mal in Mainz, wo ich nächstes Jahr wohl auch mal ein Auswärtsspiel mitansehen werde. Schönes Städtchen eigentlich. Und wenn dann auch noch ein nur halb anwesender Franzose, eine FC-Anhängerin und eine Stardirigentin dabei sind (die seit heute einen Fuß und vielleicht auch eindreiviertel Füße in der Tür hat) wird auch ein Tag in einer Zweitligastadt sehr lustig. Wenigstens habe ich erstklassige Freunde - wenn ich schon bald wieder Fan eines zweitklassigen Vereins bin...

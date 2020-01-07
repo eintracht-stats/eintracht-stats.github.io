@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Vor dem morgigen DFB-Pokalspiel tut Felix Magath das, was er tun muss: Er warnt vor dem vermeintlich leichten Gegner, um seine Spieler nicht überheblich werden zu lassen."
+---
+
+Vor dem morgigen DFB-Pokalspiel tut Felix Magath das, was er tun muss: Er warnt vor dem vermeintlich leichten Gegner, um seine Spieler nicht überheblich werden zu lassen. Die Stuttgarter Amateure seien konter-und spielstark. Um sie zu schlagen, müsse die Mannschaft 100% bringen. Diese Sprüche kennt man ja, und am Ende geht es dann doch schief. Viel muss ich aber glaube ich nicht mehr sagen. Das Spiel ist eigentlich eine klare Sache - eigentlich... Bleibt noch festzuhalten, dass wahrscheinlich unser komplettes Sturmduo ausfallen wird. Sasa Ciric leidet immer noch an Achillessehnenproblemen und Thomas Reichenberger hat sich eine Bänderdehnung zugezogen. Definitiv ausfallen wird Thomas Sobotzik (Adduktorenverletzung). Sein Comeback wird hingegen Alex Schur geben. Vielleicht bringt das ja Stabilität in die Abwehr!? Hoffnungen auf einen Einsatz von Beginn an darf sich auch Christoph Preuß machen. Finde ich gut, dass er in so einem Spiel mal eine etwas längere Einsatzzeit bekommt. Da kann er sich sicherlich besser zeigen, als wenn er spät eingewechselt wird. So, ab jetzt hilft nur noch Beten! Wenn ich an Klein-Karben denke, wird mir richtig schlecht...

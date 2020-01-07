@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Chen Yang möchte sich nächste Woche mit Rolf Dohmen zusammensetzen und über eine Vertragsverlängerung über das Jahr 2002 hinaus sprechen."
+---
+
+Chen Yang möchte sich nächste Woche mit Rolf Dohmen zusammensetzen und über eine Vertragsverlängerung über das Jahr 2002 hinaus sprechen. Beim letzten Versuch war dieses Gespräch ja noch geplatzt und hatte einigen Ärger heraufbeschworen (Geldstrafe für Yang).  
+Ralf Schmitt ist am Pfeiffer'schen Drüsenfieber erkrankt! Das stellte sich jetzt bei einer Untersuchung seiner Infektionskrankheit heraus, die ihn in der letzten Zeit vom Training abgehalten hatte. Mittlerweile fühlt er sich glücklicherweise nicht mehr so schlapp und nimmt schon wieder an den Übungseinheiten teil. Auch wenn Schmitt nicht zum Stammpersonal gehört - die Liste der verletzten, erkrankten, gesperrten und aus anderen Gründen ausfallenden Spieler war/ist in diesem Jahr wirklich so groß wie schon lange nicht mehr! Wenn immer alle dabei gewesen wären, wer weiß, wo die Eintracht stehen würde...Passend dazu folgende Nachricht, auch wenn man diesen Ausfallgrund sicher verstehen kann: Gerd Wimmer wird wegen eines Trauerfalls in der Familie nach Wien reisen. Er kommt erst nächste Woche zurück. Dann habe ich noch eine Gegendarstellung: Ich bestreite alle von Chris aufgebrachten Gerüchte bezüglich Cl. St. ! Mir aus der Kombination von "Nö" und " :-( " einen Strick drehen zu wollen...unmöglich! \*g\*

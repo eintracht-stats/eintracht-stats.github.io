@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Ich würde ja liebend gerne über irgendeinen Neuzugang oder wenigstens über einen verlängerten und zur Not auch noch über einen aufgelösten Vertrag schreiben."
+---
+
+Ich würde ja liebend gerne über irgendeinen Neuzugang oder wenigstens über einen verlängerten und zur Not auch noch über einen aufgelösten Vertrag schreiben. Aber nein, nichts! Die Konkurrenz rüstet fleißig auf, nur die Eintracht bringt keine Namen auf den Tisch. Die Zeit verrinnt...  
+Dafür läuft die Trainingsplanung für die neue Saison schon auf Hochtouren. Schon am 18. Juni ist Trainingsauftakt mit dem neuen Cheftrainer Martin Andermatt. Bis dahin sollte dann auch wohl die Mannschaft stehen!? Ein Trainingslager gibt es selbstverständlich auch. Allerdings wird mit einer Tradition gebrochen: Es geht nicht nach Seefeld in Österreich, sondern nach Rotenburg an der Fulda. Man kann das als Teil des "radikalen Schnitts" sehen, oder auch einfach als Sparmaßnahme in harten Zeiten. Ich ziehe letzteres vor... Vom 3. Juli an schnuppert die Eintracht in Kriens in der Schweiz noch einmal Bundesliga- und internationale Luft. Bei einem Turnier trifft sie auf den FC Luzern und im Finale oder Spiel um Platz 3 auf Borussia Dortmund oder den FC Kriens. Weitere Daten der Vorbereitung werde ich entweder hier in Daily Flip nennen oder diese zumindestens in unseren Terminplan aufnehmen, sobald sie von der Eintracht veröffentlicht wurden.

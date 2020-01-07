@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Die Bindung der Fans an ihren Verein scheint immer grösser zu werden."
+---
+
+Die Bindung der Fans an ihren Verein scheint immer grösser zu werden. Jetzt werden sogar die Verhaltensweisen der Funktionäre nachgeahmt. Bestes Beispiel: Die Gästebuch-Einträge von Chris und vor allem von dem netten Madel aus dem Hochgebirge, dessen Namen ich hier nicht nennen darf (das ihn aber höchstpersönlich 3x in unserem Gästebuch verewigt hat): Hausgemachter Streit, völlig ohne Grund vom Zaun gebrochen, wie zu besten Zeiten der diversen Eintracht-Präsidien. Ich weiss zwar nicht, warum die beiden sich so aufregen. Trotzdem werde ich mich hier entschuldigen, auch wenn ich eigentlich überhaupt keinen Grund dazu habe. Also, ES TUT MIR LEID!!! VERZEIHT MIR!!! \*schluchz\* Mehr kann ich nicht tun... Kommen wir jetzt wieder zu den wichtigen Dingen des Lebens: Fussball !!! Der Protest der SpVgg Greuther Fürth gegen die Wertung des Hallen-Pokal-Finales ist abgewiesen worden. Der Auslöser des Protests, der Gladbacher Quido Lanzaat, ist dennoch wegen Dopings bis April gesperrt worden. Und morgen will ich wieder etwas über die Eintracht schreiben. Verdammt noch mal! Das wird mir langsam viel zu ruhig in Frankfurt. Was ist nur los?

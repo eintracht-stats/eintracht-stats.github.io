@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Offenbar gibt es doch noch eine Möglichkeit auf einen Einsatz des chinesischen Stürmers Chen Yang in den verbleibenden Spielen."
+---
+
+Offenbar gibt es doch noch eine Möglichkeit auf einen Einsatz des chinesischen Stürmers Chen Yang in den verbleibenden Spielen. Zwar muss er nach seiner Gelbsperre gegen Kaiserslautern mit seiner Nationalmannschaft zur WM-Qualifikation fliegen. Sollte gegen die Malediven ein Sieg für China herausspringen, woran niemand ernsthaft zweifelt, dürfte er aber zunächst nach Frankfurt zurückkehren. Das wäre natürlich sehr wichtig für die Eintracht, die nicht mehr viele einsatzfähige Stürmer in ihrem Kader hat. Wenigstens ist Pawel Kryszalowicz wieder fit und wird in Kaiserslautern spielen. Zudem sagte der Trainer, dass Thomas Reichenberger ebenso wie Abwehrspieler Tommy Berntsen immer näher an die Mannschaft heranrücke. Karel Rada befindet sich auch wieder im Training. Dagegen musste Marco Gebhardt wieder mal mit Leistenbeschwerden pausieren. Vielleicht tut ihm eine Pause mal ganz gut...  
+Am Abend spielen die Eintracht Amateure in Erzhausen. Dabei sein werden auch die Talente Albert Streit und Ralf Schmitt, die am Samstag jedoch im Profikader stehen werden. Nachdem Tabellenführer Bauntal gestern in einem Nachholspiel in Walluf mit 2:6 unter die Räder kam, haben die Frankfurter sogar wieder berechtigte Aufstiegshoffnungen! Unglaublich, aber wahr: Heute gibt es nur positive Nachrichten!

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Nach der heutigen Aufsichtsratssitzung gibt es tatsächlich wieder Licht am Ende des Tunnels: Das Konzept zur Erfüllung der Lizenzanforderungen und zur wirtschaftlichen Sanierung wurde abgesegnet."
+---
+
+Nach der heutigen Aufsichtsratssitzung gibt es tatsächlich wieder Licht am Ende des Tunnels: Das Konzept zur Erfüllung der Lizenzanforderungen und zur wirtschaftlichen Sanierung wurde abgesegnet. Darin enthalten sind sowohl Einsparungen als auch die Ausrichtung auf (nicht näher definierte) neue Umsatzpotentiale. Frisches Geld könnte auf jeden Fall in die Kasse kommen, weil Octagon etwa 15 % ihrer gesamten Anteile an der AG, die z.T. aus Wandelanleihen bestehen, der Eintracht zur Verfügung stellt. Diese Anteile könnten dann an einen weiteren Partner verkauft werden. Hier sind Unternehmen aus der Region im Gespräch: Hauptsponsor Fraport, der RMV und die Licher Brauerei...  
+Auch die sportliche Situation wurde auf der Sitzung erörtert. Das Gremium unter Vorsitz von Volker Sparmann sprach Tony Woodcock und Martin Andermatt das Vertrauen aus. Allerdings gibt es auch eine klare Vorgabe für die weitere Entwicklung: "Auch wenn wir ein weiteres Jahr in der zweiten Liga spielen, muss alles darauf ausgerichtet werden, spätestens mit der Fertigstellung des neuen Stadion den Menschen in der Region Frankfurt RheinMain erstklassigen Fußball anbieten zu können". Ich bitte darum...  
+Christoph Preuß und Jermaine Jones haben es geschafft: Die Grundausbildung bei der Bundeswehr liegt hinter ihnen! Ab Freitag leisten sie ihren Dienst in der Sportförderkompanie in Mainz-Hechtsheim ab. Und damit stehen sie der Eintracht praktisch wieder uneingeschränkt zur Verfügung :-)

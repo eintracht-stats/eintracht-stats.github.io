@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Hallo, liebe Leser!"
+---
+
+Hallo, liebe Leser! Ich bin heute mittag aus dem Urlaub zurückgekehrt (Ist das kalt hier!!!). Obwohl ich noch ziemlich müde bin, werde ich heute noch die Statistiken auf den neuesten Stand bringen. Im Laufe des morgigen Tages wird ja aller Voraussicht nach unsere neue Seite präsentiert. Bis dahin gibt es noch einiges zu tun. Deshalb werde ich heute nur einen kurzen Spielbericht abgeben - das Spiel hat auch nicht mehr verdient: Nach dem 0:3 bei Hertha BSC Berlin ist der Abstieg kaum noch abzuwenden. Selbst bei drei Siegen in den verbleibenden Spielen wird es ganz eng. Aber so weit wird es nach der heute gezeigten Leistung gar nicht erst kommen. Zur Pause stand es schon 0:3 (2x Alves sowie Preetz), wieder sorgten individuelle Fehler für die Gegentore. Spielerisch lief erneut gar nichts (eine Torchance im ganzen Spiel). Auch die Nichtberücksichtigung von Horst Heldt und das gleichzeitige Debut des jungen Jermaine Jones brachte nichts. Vom Trainer kommen nur noch Durchhalteparolen. Wir müssen uns wohl mit dem Abstieg abfinden... Vielen Dank noch mal an Chris! Natürlich ist Daily Flip in den letzten Tagen etwas zu kurz gekommen. Aber er hatte wirklich viel mit unserer Seite zu tun - und außerdem hat er im Gegensatz zu mir ein Kampfschwein. Ach ja...  
+Jetzt mache ich mich wirklich an die Arbeit! Freut euch trotz des sportlichen Niedergangs auf morgen! Euer Flip!

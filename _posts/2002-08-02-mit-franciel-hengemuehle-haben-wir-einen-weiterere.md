@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Mit Franciel Hengemühle haben wir einen weitereren Neuzugang - auf der Verletztenliste..."
+---
+
+Mit Franciel Hengemühle haben wir einen weitereren Neuzugang - auf der Verletztenliste... Mit jetzt 10 verletzten bzw. angeschlagenen Spielern sieht es gut eine Woche vor dem Saisonstart wirklich etwas kritisch aus! Um die verbliebenen Spieler zu schonen wird es daher auch keine weiteren Freundschaftsspiele mehr geben. Wenigstens hatte Willi Reimann aber bei einem Gespräch mit Thomas Pröckl Erfolg und wird wahrscheinlich noch einen neuen Spieler bekommen: Während der Wechsel von Cha junior eher nicht zustandekommen wird (obwohl Willi Reimann weiterhin regelmäßigen Kontakt mit Bayer Leverkusen bestätigt), dürfte Jean Tsoumou-Madza nach einem Monat (!) Probetraining nun doch verpflichtet werden. Allerdings wird die Eintracht entgegen ihrer Vorstellungen noch einmal etwas Geld locker machen müssen. Aber wenn's denn letztlich Erfolg bringt... Zuguterletzt haben wir noch Serge Branco, dessen Gehalt die Eintracht ja um 45% reduzieren möchte. Der Spieler hat nun einen Gehaltsverzicht von 20% angeboten. Im Augenblick verdient er rund 400.000 Euro im Jahr... Übers Wochenende soll eine Entscheidung fallen.

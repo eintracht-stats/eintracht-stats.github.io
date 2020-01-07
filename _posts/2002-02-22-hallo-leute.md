@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Hallo Leute!"
+---
+
+Hallo Leute! Da bin ich wieder... Und auch wenn ich weiterhin Schmerzen habe und das Tippen etwas länger dauert als normal (ich kann wegen meiner Fingerverletzung logischerweise nicht wie sonst das 10-Fingersystem anwenden), lasse ich es mir nicht nehmen Daily Flip zu schreiben.  
+Nach den Ehrmantraut\-Gerüchten von gestern geht es heute um die Finanzen. Finanzvorstand Pröckl erklärte, dass der Etat in einer weiteren Zweitligasaison auf etwa 12,5 Millionen Euro halbiert werden müsste. Allerdings sollen dann wenigstens die Verluste gebremst und das nächste Jahr mit einer ausgeglichenen Bilanz abgeschlossen werden. Vorrangiges Ziel ist da natürlich die Reduzierung der Personalkosten. Auch der Verein wird von der AG weniger Geld erhalten. Für die neue Lizenz benötigt die Eintracht aber dennoch entweder eine Bankbürgschaft oder Transfergewinne bis Ende Mai. Wenn das geschafft werden sollte (was ich doch schwer hoffe und auch erwarte), könnten aber immer noch keine neuen Spieler verpflichtet werden. Erst wenn Topverdiener wie Rada, Branco oder Guie-Mien von der Gehaltsliste gestrichen werden können, besteht hier Handlungsmöglichkeit. Da wohl kaum Vereine Ablösesummen für diese Spieler zahlen werden, ist damit zu rechnen, dass wie schon im Sommer bei der Laufgruppe Lippert Auflösungsverträge ausgearbeitet werden müssen.  
+Für die neue Saison plant die Eintracht mit nur noch 12000 Zuschauern, nachdem in diesem Jahr im Schnitt 6000 Besucher weniger zu den Spielen kamen als geplant. Bei diesen Leistungen muss ich leider sagen: Selbst Schuld!  
+Die Zweitligaplanungen scheinen also auf Hochtouren zu laufen. Fußball wird aber auch noch gespielt: Übermorgen trifft die Eintracht auf den MSV Duisburg - die erste Möglichkeit zur Wiedergutmachung...

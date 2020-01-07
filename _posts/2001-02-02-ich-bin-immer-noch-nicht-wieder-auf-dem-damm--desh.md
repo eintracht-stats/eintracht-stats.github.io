@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Ich bin immer noch nicht wieder auf dem Damm, deshalb gibt es heute wieder nur eine Kurzfassung: Nach Informationen der FR ist die Eintracht möglicherweise an Heribert Weber (?) als Trainer interessiert."
+---
+
+Ich bin immer noch nicht wieder auf dem Damm, deshalb gibt es heute wieder nur eine Kurzfassung: Nach Informationen der FR ist die Eintracht möglicherweise an Heribert Weber (?) als Trainer interessiert. Sagt mir nichts, der Österreicher war aber wohl in seiner Heimat bisher ganz erfolgreich. Die Frist, in der die Eintracht Vollzug melden will, wurde heute mit dem 9. Februar angegeben. Da findet das nächste Heimspiel gegen Cottbus statt. In diesem Spiel wird es auf jeden Fall eine Premiere geben. Da zum 31. Januar der Ausrüstervertrag mit Puma aufgelöst wurde, hat die Eintracht sich FILA als neuen Ausrüster gesucht. Damit wird die Mannschaft in neuen Trikots auflaufen. Vor dem Heimspiel gegen Köln wurde noch groß Werbung für einen Verkaufsstand mit Trikots gemacht, die zum Superpreis von 60 DM an den Mann gebracht wurden. Und jetzt das... Aus wirtschaftlicher Sicht ist es natürlich richtig, die Lager mit den nun veralteten Trikots zu räumen. Fanfreundlich ist jedoch was anderes!

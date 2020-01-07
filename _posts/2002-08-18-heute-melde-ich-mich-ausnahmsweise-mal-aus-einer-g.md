@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Heute melde ich mich ausnahmsweise mal aus einer geteilten Stadt - der Ironman macht's möglich..."
+---
+
+Heute melde ich mich ausnahmsweise mal aus einer geteilten Stadt - der Ironman macht's möglich... Man muss schon wirklich verrückt sein, wenn man an so einer Qual freiwillig teilnimmt. Einige der Sportler hatten Gesichtszüge, die jedem Magath'schen Training gerecht geworden wären, dabei warteten noch viele Kilometer auf dem Rad und ein kompletter Marathon auf sie. Da lobe ich mir doch die knackig kurzen 90 Minuten eines Fußballspiels :-) Und dazu komme ich jetzt auch: Morgen spielt die Eintracht bekanntlich in Freiburg. Möglicherweise wird Alexander Schur dort von Beginn an in die Mannschaft rutschen, weil Willi Reimann gegen die Freiburger Kurzpass-Künstler defensiver agieren dürfte als gegen Pauli. Fraglich ist noch der Einsatz von Andree Wiedener, den muskuläre Probleme plagen. Jens Keller wird hingegen sicherlich spielen können! Wir haben gegen den Aufstiegskandidaten Nummer 1 nichts zu verlieren. Also sehe ich dieser Partie auch relativ gelassen entgegen. Und vielleicht gelingt es unserem Willi ja auch die zahlreichen Freiburger Willis auszutricksen...

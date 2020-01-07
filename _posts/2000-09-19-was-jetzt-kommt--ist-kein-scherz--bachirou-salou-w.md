@@ -1,0 +1,7 @@
+---
+layout: post
+title: "Was jetzt kommt, ist kein Scherz: Bachirou Salou wird Deutscher!"
+---
+
+Was jetzt kommt, ist kein Scherz: Bachirou Salou wird Deutscher! Zunächst hat er nur die vorläufige deutsche Staatsbürgerschaft erhalten. Sobald er in den nächsten Tagen bei der togolesischen Botschaft seine alte Staatsbürgerschaft zurückgibt, wird er aber endgültig eingebürgert. Diese Aktion zieht zwei Konsequenzen nach sich. Zum einen ist seine Nationalmannschaftskarriere endgültig beendet, zum anderen macht er bei der Eintracht einen Platz für einen Nicht-Uefa-Ausländer frei...  
+Chen Yang hat der Eintracht über seinen Anwalt mitteilen lassen, dass er die Abmahnung und die Geldstrafe für nicht gerechtfertigt hält und das deshalb zurückgenommen werden müsse. Statt eines Fehlverhaltens des Spielers liege eher eine Verletzung der Fürsorgepflicht seitens des Vereins vor. Wie er sagte, habe er Rolf Dohmen persönlich mitgeteilt, dass er zu einem Treffen mit dem chinesischen Nationaltrainer Bora Milutinovic gehen müsse, bei dem es u.a. um seine Abstellung zu den Asienspielen gehen sollte. Dohmen bestreitet das. Wer da nun recht hat, weiß ich natürlich auch nicht. Aber beide haben sich nicht gerade richtig verhalten. Es kann ebenso wenig sein, dass der Spieler schon 5 Stunden nach dem geplatzten Termin seine Abmahnung erhält, wie es angeht, dass der wiederum gleich mit seinem Anwalt antanzt...

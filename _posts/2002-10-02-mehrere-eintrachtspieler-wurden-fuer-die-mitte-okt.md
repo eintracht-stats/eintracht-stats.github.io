@@ -1,0 +1,6 @@
+---
+layout: post
+title: "Mehrere Eintracht-Spieler wurden für die Mitte Oktober stattfinden Länderspiele ihrer Nationalmannschaften nominiert: Ervin Skela für Albanien, Pawel Kryszalowicz für Polen, Rolf-Christel Guie-Mien und Jean Tsoumou-Madza für den Kongo."
+---
+
+Mehrere Eintracht-Spieler wurden für die Mitte Oktober stattfinden Länderspiele ihrer Nationalmannschaften nominiert: Ervin Skela für Albanien, Pawel Kryszalowicz für Polen, Rolf-Christel Guie-Mien und Jean Tsoumou-Madza für den Kongo. Und auch Jermaine Jones durfte sich freuen. Er erhielt eine Einladung zur U21 - obwohl er wegen seines allseits bekannten Aussetzers vor dem letzten Spiel nicht dem extra wegen ihm ins Waldstadion gekommenen Jürgen Kohler seine Klasse beweisen konnte. Der junge Stürmer erklärte noch einmal, dass ihm ein solcher Fehler nicht noch einmal passieren wird. Er hofft, beim Spiel in Aachen schon wieder dabei zu sein und möchte für dieses Ziel "auf dem Platz Gas geben". Die Chancen stehen dafür auch wohl gar nicht so schlecht. Denn Willi Reimann sieht die Affäre mittlerweile als erledigt an. Die beiden Sünder Jones und Montero mussten zwar am gestrigen Waldlauf des zweiten Eintracht-Anzugs teilnehmen. Mittelfristig dürften sie aber wieder erste Wahl sein...

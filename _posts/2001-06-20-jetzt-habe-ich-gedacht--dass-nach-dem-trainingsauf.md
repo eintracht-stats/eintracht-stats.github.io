@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Jetzt habe ich gedacht, dass nach dem Trainingsauftakt wieder mehr bei der Eintracht passiert."
+---
+
+Jetzt habe ich gedacht, dass nach dem Trainingsauftakt wieder mehr bei der Eintracht passiert. Aber weit gefehlt! Nichts neues - aber vielleicht passiert im Laufe des Tages noch etwas...  
+Am Abend wurde es dann endlich wieder sportlich. Unsere U20-Nationalmannschaft kam bei der WM gegen schwache Kanadier zu einem hochverdienten 4:0-Sieg. Alle drei Frankfurter Spieler (Jones, Gemiti und Preuß) spielten von Anfang an. Überragender Spieler war neben dem dreifachen Torschützen Benjamin Auer Christoph Preuß. Er bereitete zwei Treffer vor (nicht drei, wie es von den Agenturen gemeldet wird) und machte das letzte Tor selbst. Alle Eintrachtfans durften sich hierbei verwundert die Augen reiben: Nach einer von Giuseppe Gemiti getretenen Ecke markierte Preuß per Hinterkopf das 4:0! Ein Tor eines Frankfurters nach einer Ecke eines Frankfurters - wann gab es das zuletzt??? Das Lob des Trainers Uli Stielike folgte natürlich prompt: "Bester Mann war für mich der überragende Christoph Preuß. Zwei Vorlagen, ein Tor - Weltklasse, gemessen an diesem Niveau." Das stimmt zuversichtlich für die Zweitligasaison!  
+Zeitgleich hatte auch die Eintracht selbst ihren ersten Auftritt. Beim Bezirksligisten SG Treis-Allendorf kam die Mannschaft von Martin Andermatt zu einem klaren 8:0. Rolf-Christel Guie-Mien war mit 4 Treffern erfolgreichster Schütze. Die anderen Tore markierten Yang, Mutzel, Reichenberger und Neuzugang Skela. So muss es gehen: Mit überzeugenden Leistungen (natürlich war das heute kein Maßstab) die Herzen der Fans zurückgewinnen! Es könnte ein gutes Jahr werden...  
+Seit heute sind auch unsere Statistiken so gut wie alle auf dem Stand der neuen Saison. Es darf also wieder gestöbert werden. \*g\*
