@@ -23,226 +23,226 @@ Da sind wir auch schon wieder beim privaten Teil angekommen. Und hier bleibt es 
 
 Hier die (nicht zwingend vollständige) Liste der Ereignisse 2012:
 
-- der Modeschöpferinnen-Entscheidungstag mit Gemüse im Einkaufswagen:  
-- "Was mache ich wohl?" - "Ratatouille" - "Och Menno, jetzt hast du's erraten!  
-- unsere Klopapierzählaktion (es stimmt wirklich!)  
-- unsere echt toppen Ostereier  
-- die rheinsteigende Modeschöpferin mit großem Gepäck  
-- der rheinsteigende Flip mit seinem schicken Kopftuch  
-- die Leute, die uns zwanzig Mal auf unserer Etappe über den Weg liefen  
-- der senkrechte Finalanstieg auf unserer Etappe, den wir beinahe übersehen hätten  
-- Schloss Johannisberg und Schloss Vollrads  
-- unsere Erdbeermarmelade  
-- unsere Verabredung zum Essen mit Überraschungsmenü  
-- die Hähnchenquiche  
-- unser leichtes Ananas-Kokos-Tiramisu  
-- das Carla  
-- das Emmaschchen  
-- das Maislabyrinth mit vielen komischen Leuten drin  
-- unsere neuen Dekokügelchen, die fast so viel Wasser trinken wie meine Lieblings-Modeschöpferin an guten Tagen  
-- unsere Arrabiata-Sauce, die schon im Topf fast nur mit Atemschutzmaske auszuhalten war  
-- unser neuer Rauchmelder  
-- Paul und die Eule  
-- Foolish  
-- der Foxtrott-Verweigerer  
-- der Grabbler  
-- der bärtige Mann  
-- das Gnomenmädchen  
-- weiße Schuhe mit hohem Absatz, auf denen nicht jeder laufen kann (schon gar nicht, wenn man erst zwölf ist)  
-- der verkackte Wiener Walzer  
-- unsere Tanzfläche in der Küche  
-- der Geistertänzer und seine meckernde Frau ("Hat's Ihnen gefallen? Das machen die doch extra, damit man den Kurs nochmal machen muss")  
-- die bekloppte Aushilfslehrerin in der letzten Stunde  
-- dampfende Schwester samt Hund und eine Bekannte mit Elfriede auf der Schulter und Leute, die von Stühlen fallen  
-- dampfende Mutter  
-- unsere Fahrradtour, die unter keinem guten Stern stand  
-- der Reifen, der sich nicht aufpumpen ließ  
-- der Reifen, der sich dann doch aufpumpen ließ  
-- der vertrackte Bordstein, der meine Lieblings-Modeschöpferin in Zeitlupe stürzen ließ  
-- die aufgeschrappste Leggins  
-- das aufgeschrappste Bein  
-- die Scherbe in der Schuhsohle, die die Wade meiner Lieblings-Modeschöpferin aufritzte  
-- ein Kratzer auf dem Auge  
-- der Eis-Sturz meiner Lieblings-Modeschöpferin auf der Brücke  
-- die neuen Einlagen meiner Lieblings-Modeschöpferin  
-- die erhöhten Schlappen  
-- das Essen, das Hochzeitskleid, die Location und das Gesamtpaket \*schnarch\*  
-- och göööööö  
-- laute Kolleginnen, die deshalb nicht zu Besuch kommen durften  
-- die basische Brühe  
-- das Spinnengewebe  
-- Hugo, von dem ich nie was gehört hatte und auf einmal ist er überall  
-- Gangnam Style, von dem ich nie was gehört hatte und auf einmal ist er überall  
-- ein Umzug ohne Organisation  
-- ein Möbelpacker, der eine ganze Schrankwand schleppte und ein Möbelpacker, der eine Tüte mit Schrauben und den Lieferschein schleppte  
-- Dirk Bach  
-- Smolarek , Horvat, Bechtold - drei Eintracht-Legenden, die uns verließen  
-- unser Aufstiegs-Erlebnis bei einer Flasche Wein  
-- Die Wildparker, die nachts immer so laut die Türen schlagen, nur weil sie 10cm aus der grauen Fläche herausragen. Ich kann das wahrlich nicht gutheißen - schließlich ist der Charakter der Spielstraße gefährdet  
-- Ach ja, wir leben gar nicht in einer Spielstraße, siehe hier (http://www.muenchen.de/rathaus/Stadtverwaltung/Kreisverwaltungsreferat/Verkehr/Verkehrssicherheit/Spielstrassen-verkehrberuhigte-Bereiche.html)  
-- Wildparker erster und zweiter Klasse  
-- "Lieber Parksünder..." - "Die Anwohner" - was für kranke Leute!  
-- die Straßenlaterne, die angeht wie sie gerade Lust hat  
-- der Women's Run, der bis heute unsere Shampoo-Vorräte abdeckt  
-- der Gnom, der nach langem Hin und Her endlich eintraf und dann unsere Fensterecke fotografierte  
-- eine versuchte Kündigung, die in Teilzeit endete  
-- die vielen Geschäftsideen meiner Modeschöpferin (zwischen Tuppertante und Ernährungsberatung war alles dabei)  
-- die Schultüte meiner Lieblingsmodeschöpferin (es hatten zwar ALLE einen Glückskäfer, aber bestimmt hatte NIEMAND eine Schultüte!)  
-- das Erstsemestertäschchen  
-- improved reading  
-- mein Impfbuch  
-- unsere Weihnachtskirchbesuche mit Kollekte in Rekordzeit  
-- Autschi! Autschi! Auuutschi?  
-- Fuchs und Gans  
-- Spider-Solitär  
-- der McDonald's-Auftritt meiner Mutter mit einer neuen Form von 4:3-Sparmenü ("Das schafft die schon...")  
-- Salze und Gabbani (was für ein Wortspiel!)  
-- ein Feuerlöscher mit Sprühsahne am Freitag  
-- unsere Suche nach unzähligen Synchronsprechern ("Woher kenne ich diese Stimme?")  
-- El M.  
-- der Beach im Kurpark mit Promi-Faktor  
-- Boris Karloff  
-- Frau Hürte, Frau Hürte, Frau Hürte!  
-- unsere Disney-Sammelbilder  
-- unsere dadurch gestiegenen Wasservorräte  
-- die Fruchtzwerge  
-- das erste vollständige Sammelalbum meiner Lieblings-Modeschöpferin  
-- der Axolotl  
-- James Bond  
-- meine Creme für beanspruchte Männerhände  
-- zerstörte Überraschungen ("Wir haben doch irgendwo noch diese Cupcake-Backmischung...")  
-- die Geheimnisse meiner Lieblings-Modeschöpferin, die sie irgendwann auch mal für sich behalten wird  
-- How I met your mother-Sessions  
-- die beste Pizza meines Lebens (Fantasia)  
-- unsere Weihnachtskombo mit dem Wichtelinchen und dem Astronut  
-- das 8.8.-Geschenk mit vielen abgezählten Dingen, die für alle unsere Tage standen  
-- das 8.8.-Schiebepuzzle  
-- meine Belgien-Reise, die eine Kommunion verhinderte  
-- die Lesbian Vampire Killers mit nachfolgenden nächtlichen Schüssen und Spinnen mordenden Nachbarn  
-- 1,5 Flaschen Wein zu Weihnachten  
-- "Nicht streicheln! Dadurch wird es schlimmer!"  
+\- der Modeschöpferinnen-Entscheidungstag mit Gemüse im Einkaufswagen:  
+\- "Was mache ich wohl?" - "Ratatouille" - "Och Menno, jetzt hast du's erraten!  
+\- unsere Klopapierzählaktion (es stimmt wirklich!)  
+\- unsere echt toppen Ostereier  
+\- die rheinsteigende Modeschöpferin mit großem Gepäck  
+\- der rheinsteigende Flip mit seinem schicken Kopftuch  
+\- die Leute, die uns zwanzig Mal auf unserer Etappe über den Weg liefen  
+\- der senkrechte Finalanstieg auf unserer Etappe, den wir beinahe übersehen hätten  
+\- Schloss Johannisberg und Schloss Vollrads  
+\- unsere Erdbeermarmelade  
+\- unsere Verabredung zum Essen mit Überraschungsmenü  
+\- die Hähnchenquiche  
+\- unser leichtes Ananas-Kokos-Tiramisu  
+\- das Carla  
+\- das Emmaschchen  
+\- das Maislabyrinth mit vielen komischen Leuten drin  
+\- unsere neuen Dekokügelchen, die fast so viel Wasser trinken wie meine Lieblings-Modeschöpferin an guten Tagen  
+\- unsere Arrabiata-Sauce, die schon im Topf fast nur mit Atemschutzmaske auszuhalten war  
+\- unser neuer Rauchmelder  
+\- Paul und die Eule  
+\- Foolish  
+\- der Foxtrott-Verweigerer  
+\- der Grabbler  
+\- der bärtige Mann  
+\- das Gnomenmädchen  
+\- weiße Schuhe mit hohem Absatz, auf denen nicht jeder laufen kann (schon gar nicht, wenn man erst zwölf ist)  
+\- der verkackte Wiener Walzer  
+\- unsere Tanzfläche in der Küche  
+\- der Geistertänzer und seine meckernde Frau ("Hat's Ihnen gefallen? Das machen die doch extra, damit man den Kurs nochmal machen muss")  
+\- die bekloppte Aushilfslehrerin in der letzten Stunde  
+\- dampfende Schwester samt Hund und eine Bekannte mit Elfriede auf der Schulter und Leute, die von Stühlen fallen  
+\- dampfende Mutter  
+\- unsere Fahrradtour, die unter keinem guten Stern stand  
+\- der Reifen, der sich nicht aufpumpen ließ  
+\- der Reifen, der sich dann doch aufpumpen ließ  
+\- der vertrackte Bordstein, der meine Lieblings-Modeschöpferin in Zeitlupe stürzen ließ  
+\- die aufgeschrappste Leggins  
+\- das aufgeschrappste Bein  
+\- die Scherbe in der Schuhsohle, die die Wade meiner Lieblings-Modeschöpferin aufritzte  
+\- ein Kratzer auf dem Auge  
+\- der Eis-Sturz meiner Lieblings-Modeschöpferin auf der Brücke  
+\- die neuen Einlagen meiner Lieblings-Modeschöpferin  
+\- die erhöhten Schlappen  
+\- das Essen, das Hochzeitskleid, die Location und das Gesamtpaket \*schnarch\*  
+\- och göööööö  
+\- laute Kolleginnen, die deshalb nicht zu Besuch kommen durften  
+\- die basische Brühe  
+\- das Spinnengewebe  
+\- Hugo, von dem ich nie was gehört hatte und auf einmal ist er überall  
+\- Gangnam Style, von dem ich nie was gehört hatte und auf einmal ist er überall  
+\- ein Umzug ohne Organisation  
+\- ein Möbelpacker, der eine ganze Schrankwand schleppte und ein Möbelpacker, der eine Tüte mit Schrauben und den Lieferschein schleppte  
+\- Dirk Bach  
+\- Smolarek , Horvat, Bechtold - drei Eintracht-Legenden, die uns verließen  
+\- unser Aufstiegs-Erlebnis bei einer Flasche Wein  
+\- Die Wildparker, die nachts immer so laut die Türen schlagen, nur weil sie 10cm aus der grauen Fläche herausragen. Ich kann das wahrlich nicht gutheißen - schließlich ist der Charakter der Spielstraße gefährdet  
+\- Ach ja, wir leben gar nicht in einer Spielstraße, siehe hier (http://www.muenchen.de/rathaus/Stadtverwaltung/Kreisverwaltungsreferat/Verkehr/Verkehrssicherheit/Spielstrassen-verkehrberuhigte-Bereiche.html)  
+\- Wildparker erster und zweiter Klasse  
+\- "Lieber Parksünder..." - "Die Anwohner" - was für kranke Leute!  
+\- die Straßenlaterne, die angeht wie sie gerade Lust hat  
+\- der Women's Run, der bis heute unsere Shampoo-Vorräte abdeckt  
+\- der Gnom, der nach langem Hin und Her endlich eintraf und dann unsere Fensterecke fotografierte  
+\- eine versuchte Kündigung, die in Teilzeit endete  
+\- die vielen Geschäftsideen meiner Modeschöpferin (zwischen Tuppertante und Ernährungsberatung war alles dabei)  
+\- die Schultüte meiner Lieblingsmodeschöpferin (es hatten zwar ALLE einen Glückskäfer, aber bestimmt hatte NIEMAND eine Schultüte!)  
+\- das Erstsemestertäschchen  
+\- improved reading  
+\- mein Impfbuch  
+\- unsere Weihnachtskirchbesuche mit Kollekte in Rekordzeit  
+\- Autschi! Autschi! Auuutschi?  
+\- Fuchs und Gans  
+\- Spider-Solitär  
+\- der McDonald's-Auftritt meiner Mutter mit einer neuen Form von 4:3-Sparmenü ("Das schafft die schon...")  
+\- Salze und Gabbani (was für ein Wortspiel!)  
+\- ein Feuerlöscher mit Sprühsahne am Freitag  
+\- unsere Suche nach unzähligen Synchronsprechern ("Woher kenne ich diese Stimme?")  
+\- El M.  
+\- der Beach im Kurpark mit Promi-Faktor  
+\- Boris Karloff  
+\- Frau Hürte, Frau Hürte, Frau Hürte!  
+\- unsere Disney-Sammelbilder  
+\- unsere dadurch gestiegenen Wasservorräte  
+\- die Fruchtzwerge  
+\- das erste vollständige Sammelalbum meiner Lieblings-Modeschöpferin  
+\- der Axolotl  
+\- James Bond  
+\- meine Creme für beanspruchte Männerhände  
+\- zerstörte Überraschungen ("Wir haben doch irgendwo noch diese Cupcake-Backmischung...")  
+\- die Geheimnisse meiner Lieblings-Modeschöpferin, die sie irgendwann auch mal für sich behalten wird  
+\- How I met your mother-Sessions  
+\- die beste Pizza meines Lebens (Fantasia)  
+\- unsere Weihnachtskombo mit dem Wichtelinchen und dem Astronut  
+\- das 8.8.-Geschenk mit vielen abgezählten Dingen, die für alle unsere Tage standen  
+\- das 8.8.-Schiebepuzzle  
+\- meine Belgien-Reise, die eine Kommunion verhinderte  
+\- die Lesbian Vampire Killers mit nachfolgenden nächtlichen Schüssen und Spinnen mordenden Nachbarn  
+\- 1,5 Flaschen Wein zu Weihnachten  
+\- "Nicht streicheln! Dadurch wird es schlimmer!"  
 \-"Wenn du mir an den Bobbes fast, muss ich k..."  
-- unser Tischtennis-Spiel  
-- der Schweigefuchs  
-- das Belle-Puzzle  
-- "Wer hat...?"  
-- unsere Ziegenkäse-Mango-Honig-Salatkreation  
-- GÜ und andere kulinarische Köstlichkeiten  
-- der Sprung des Herrn Baumgartner, den wir zu guter Letzt dann doch verpassten  
-- die Tanten neben uns bei unserem Überraschungsmenü  
-- "Von der Tageskarte gibt es nur noch die Getränke" - "Ich hätte gerne das hier von der Tageskarte" "Das gibt es nicht mehr" - "Sagen Sie mir das doch!"  
-- der Taucher  
-- mein biometrisches Fahndungsfoto  
-- die Eva, die als Brandopfer Karriere machte  
-- Mary Daisy Dinkle und Max Jerry Horowitz  
-- meine Boshi-Mütze  
-- der Beinahe-Unfall meiner Lieblings-Modeschöpferin nach super Fahrt  
-- die Haarverlängerung von Prinzessin Beate  
-- Ingo und Nadja mit Birgit und Lutz  
-- "Du bist für mich der Anfang vom Ende"!  
-- Die Eier des Märchenfreundes  
-- Da freut sich der Maik aber!  
-- die Messehallenkehrerin  
-- Scharnett  
-- Ui Klaus  
-- ein Zungenkuss mit Hund  
-- Schinabong, Chinapoint oder so ähnlich  
-- das romantische Rheinland und Fantasy-Geschichten vom kleinen Ingo und Kisara  
-- Mutter Lona  
-- der kernige Kartoffelbauer, der wohl keiner ist  
-- Denny  
-- Hans-Georg  
-- "Hast du Hunger? Ich hätte da noch zwei Bananen!"  
-- Brockerle  
-- Geissli kummet  
-- Heinrich alias E.T.  
-- Angst vor Schweinen  
-- der Eier-Soll-Stellen-Schalen-Bruch-Verursacher  
-- Peter und seine wenigen neuen Mitbewohner (samt bester Freundin)  
-- der baggernde Bernd (was ist wohl passiert, als wir nicht eingeschaltet hatten...!?)  
-- Gerhard, der Nudist  
-- unsere München-Tour  
-- der Mann, der bäuchlings nach seiner Visitenkarte suchte  
-- "Noch zwei Bushaltestellen, dann muss ich aussteigen"  
-- Aschenburg  
-- "Ich habe mich noch gar nicht vorgestellt - ich heiße Manuel"  
-- "Am zweiten Tag haben wir englisch - italienisch können wir dann ja schon"  
-- das Gewitter im englischen Garten  
-- der Milka-Laden  
-- My Müsli  
-- unser Olympia-Trip  
-- die Suche nach dem olympischen Dorf im Regen  
-- die Gedenkstätte für die Opfer des Olympia-Attentats  
-- unser obligatorisches Bier zu jeder Mahlzeit  
-- das ausgehängte Fenster, was mangels Klimaanlage ein Problem war  
-- das lustige Frühstücksei  
-- das Leon‘s  
-- die Nudeln, die einfach zu viel waren  
-- die Suche nach dem Deutschen Museum  
-- das Wahnsinns-Wetter auf dem Kölner Weihnachtsmarkt  
-- das viel zu viele viel zu gute Essen, das man gar nicht alles probieren konnte  
-- unsere Extrablatt-Speisekarte, die mehrfach den Weg vom Nachbartisch zu uns fand bis meine Lieblings-Modeschöpferin ein Machtwort sprach  
-- unser erster Weihnachts-Turm-Baum  
-- unser Mallorca-Urlaub  
-- meine aufgeflogene Kuchen-Schmuggelaktion  
-- das Wiedersehen mit den Wesches  
-- das Bubbel-Mau-Mau  
-- der Sekt vom Hotel  
-- das Sektfrühstück zum Geburtstag  
-- unsere Privatliegen im besten Zimmer des Hotels  
-- die balinesischen Liegen  
-- die all-inclusive-Weinflaschen  
-- die Desserts (dieser Schokokuchen war schon genial)  
-- der Pudding  
-- die kurz vor Schluss auf dem Büffet entdeckten Bubbelchen  
-- die Themenabende  
-- der pflanzenfressende Hai und die Killerquallen  
-- der verpatzte Tanzabend  
-- das fast verpatzte Abschiedsschwimmen  
-- unser versuchter Marsch zu unserem alten Strand  
-- die Poollandschaft  
-- die Profischwimmer  
-- die Kinder im Erwachsenen-Pool  
-- der Bufo  
-- Bibbeldibabbeldibubbel  
-- die J.‘s  
-- der Bleichfrosch  
-- das Gemeckere, weil wir die letzten waren, die in ihrem Hotel abgesetzt wurden  
-- das Gemeckere, weil wir die ersten waren, die von ihrem Hotel abgeholt wurden  
-- der nicht getrunkene Frühstückssekt  
-- der völlig unnötige Online-Check-In beim Rückflug  
-- "Wir müssen nur noch unsere Koffer aufgeben"  
-- der Eimer im Kinderbecken  
-- das dicke Kind beim Supertalent  
-- die Honig-Salz-Nüsse  
-- der Playmobil-Adventskalender  
-- unsere Marzipan-Baiser-Weight-Watchers-Klebe-Plätzchen  
-- unsere Espresso-Puderzucker-Flüssigkeit mit dem sinkenden Puderzucker im Kaffeesee  
-- "Du darfst erst um 18 Uhr nach Hause kommen!"  
-- der begossene Pudel, der am Abend vor der Tür stand und im Anzug empfangen wurde  
-- Restaurant "Chez Bubbel"  
-- der Ziegenkäse-Apfel-Turm  
-- Coq au vin  
-- das heiße GÜ  
-- unser Wein  
-- der Spaziergang durchs Treppenhaus  
-- das Picknick an unserem beleuchteten Eiffelturm  
-- die Frankreich-Deko in Wohnzimmer und Küche  
-- das neue Wohnzimmer-Bild  
-- mein Ikea-Besuch im Rekordtempo  
-- die Frage aller Fragen!!!!!!!  
-- "Ich wollte fast schon fragen, wann ich den Ring aufgegessen habe"  
-- die Erzählung vom Antrag am Eiffelturm während ich an meinem Meisterwerk schraubte  
-- "Ich wusste ja nicht wo du warst als ich angerufen habe. Vielleicht warst du ja Verlobungsringe kaufen."  
-- (mittlerweile gezähmte) Pfarrbürodrachen  
-- das Drama um die Traulocation  
-- die Save-the-date-Karten  
-- die Jagdgesellschaft am Standesamt  
-- die Mariage  
-- unsere Musik (DJ samt Harfe)  
-- das spontane Kleid  
-- das Honecker-Porträt  
-- der schlimme Teppich
+\- unser Tischtennis-Spiel  
+\- der Schweigefuchs  
+\- das Belle-Puzzle  
+\- "Wer hat...?"  
+\- unsere Ziegenkäse-Mango-Honig-Salatkreation  
+\- GÜ und andere kulinarische Köstlichkeiten  
+\- der Sprung des Herrn Baumgartner, den wir zu guter Letzt dann doch verpassten  
+\- die Tanten neben uns bei unserem Überraschungsmenü  
+\- "Von der Tageskarte gibt es nur noch die Getränke" - "Ich hätte gerne das hier von der Tageskarte" "Das gibt es nicht mehr" - "Sagen Sie mir das doch!"  
+\- der Taucher  
+\- mein biometrisches Fahndungsfoto  
+\- die Eva, die als Brandopfer Karriere machte  
+\- Mary Daisy Dinkle und Max Jerry Horowitz  
+\- meine Boshi-Mütze  
+\- der Beinahe-Unfall meiner Lieblings-Modeschöpferin nach super Fahrt  
+\- die Haarverlängerung von Prinzessin Beate  
+\- Ingo und Nadja mit Birgit und Lutz  
+\- "Du bist für mich der Anfang vom Ende"!  
+\- Die Eier des Märchenfreundes  
+\- Da freut sich der Maik aber!  
+\- die Messehallenkehrerin  
+\- Scharnett  
+\- Ui Klaus  
+\- ein Zungenkuss mit Hund  
+\- Schinabong, Chinapoint oder so ähnlich  
+\- das romantische Rheinland und Fantasy-Geschichten vom kleinen Ingo und Kisara  
+\- Mutter Lona  
+\- der kernige Kartoffelbauer, der wohl keiner ist  
+\- Denny  
+\- Hans-Georg  
+\- "Hast du Hunger? Ich hätte da noch zwei Bananen!"  
+\- Brockerle  
+\- Geissli kummet  
+\- Heinrich alias E.T.  
+\- Angst vor Schweinen  
+\- der Eier-Soll-Stellen-Schalen-Bruch-Verursacher  
+\- Peter und seine wenigen neuen Mitbewohner (samt bester Freundin)  
+\- der baggernde Bernd (was ist wohl passiert, als wir nicht eingeschaltet hatten...!?)  
+\- Gerhard, der Nudist  
+\- unsere München-Tour  
+\- der Mann, der bäuchlings nach seiner Visitenkarte suchte  
+\- "Noch zwei Bushaltestellen, dann muss ich aussteigen"  
+\- Aschenburg  
+\- "Ich habe mich noch gar nicht vorgestellt - ich heiße Manuel"  
+\- "Am zweiten Tag haben wir englisch - italienisch können wir dann ja schon"  
+\- das Gewitter im englischen Garten  
+\- der Milka-Laden  
+\- My Müsli  
+\- unser Olympia-Trip  
+\- die Suche nach dem olympischen Dorf im Regen  
+\- die Gedenkstätte für die Opfer des Olympia-Attentats  
+\- unser obligatorisches Bier zu jeder Mahlzeit  
+\- das ausgehängte Fenster, was mangels Klimaanlage ein Problem war  
+\- das lustige Frühstücksei  
+\- das Leon‘s  
+\- die Nudeln, die einfach zu viel waren  
+\- die Suche nach dem Deutschen Museum  
+\- das Wahnsinns-Wetter auf dem Kölner Weihnachtsmarkt  
+\- das viel zu viele viel zu gute Essen, das man gar nicht alles probieren konnte  
+\- unsere Extrablatt-Speisekarte, die mehrfach den Weg vom Nachbartisch zu uns fand bis meine Lieblings-Modeschöpferin ein Machtwort sprach  
+\- unser erster Weihnachts-Turm-Baum  
+\- unser Mallorca-Urlaub  
+\- meine aufgeflogene Kuchen-Schmuggelaktion  
+\- das Wiedersehen mit den Wesches  
+\- das Bubbel-Mau-Mau  
+\- der Sekt vom Hotel  
+\- das Sektfrühstück zum Geburtstag  
+\- unsere Privatliegen im besten Zimmer des Hotels  
+\- die balinesischen Liegen  
+\- die all-inclusive-Weinflaschen  
+\- die Desserts (dieser Schokokuchen war schon genial)  
+\- der Pudding  
+\- die kurz vor Schluss auf dem Büffet entdeckten Bubbelchen  
+\- die Themenabende  
+\- der pflanzenfressende Hai und die Killerquallen  
+\- der verpatzte Tanzabend  
+\- das fast verpatzte Abschiedsschwimmen  
+\- unser versuchter Marsch zu unserem alten Strand  
+\- die Poollandschaft  
+\- die Profischwimmer  
+\- die Kinder im Erwachsenen-Pool  
+\- der Bufo  
+\- Bibbeldibabbeldibubbel  
+\- die J.‘s  
+\- der Bleichfrosch  
+\- das Gemeckere, weil wir die letzten waren, die in ihrem Hotel abgesetzt wurden  
+\- das Gemeckere, weil wir die ersten waren, die von ihrem Hotel abgeholt wurden  
+\- der nicht getrunkene Frühstückssekt  
+\- der völlig unnötige Online-Check-In beim Rückflug  
+\- "Wir müssen nur noch unsere Koffer aufgeben"  
+\- der Eimer im Kinderbecken  
+\- das dicke Kind beim Supertalent  
+\- die Honig-Salz-Nüsse  
+\- der Playmobil-Adventskalender  
+\- unsere Marzipan-Baiser-Weight-Watchers-Klebe-Plätzchen  
+\- unsere Espresso-Puderzucker-Flüssigkeit mit dem sinkenden Puderzucker im Kaffeesee  
+\- "Du darfst erst um 18 Uhr nach Hause kommen!"  
+\- der begossene Pudel, der am Abend vor der Tür stand und im Anzug empfangen wurde  
+\- Restaurant "Chez Bubbel"  
+\- der Ziegenkäse-Apfel-Turm  
+\- Coq au vin  
+\- das heiße GÜ  
+\- unser Wein  
+\- der Spaziergang durchs Treppenhaus  
+\- das Picknick an unserem beleuchteten Eiffelturm  
+\- die Frankreich-Deko in Wohnzimmer und Küche  
+\- das neue Wohnzimmer-Bild  
+\- mein Ikea-Besuch im Rekordtempo  
+\- die Frage aller Fragen!!!!!!!  
+\- "Ich wollte fast schon fragen, wann ich den Ring aufgegessen habe"  
+\- die Erzählung vom Antrag am Eiffelturm während ich an meinem Meisterwerk schraubte  
+\- "Ich wusste ja nicht wo du warst als ich angerufen habe. Vielleicht warst du ja Verlobungsringe kaufen."  
+\- (mittlerweile gezähmte) Pfarrbürodrachen  
+\- das Drama um die Traulocation  
+\- die Save-the-date-Karten  
+\- die Jagdgesellschaft am Standesamt  
+\- die Mariage  
+\- unsere Musik (DJ samt Harfe)  
+\- das spontane Kleid  
+\- das Honecker-Porträt  
+\- der schlimme Teppich
 
   
 Ja, das war es wieder einmal mit meinem Jahresrückblick. Bestimmt habe ich nicht an alles gedacht, aber es passiert auch einfach immer viel zu viel. Und 2013 wird da bestimmt auch keine Ausnahme machen: Die Eintracht wird versuchen an ihr Traumjahr 2012 anzuknüpfen. Mit dem Abstieg werden wir in dieser Saison nichts zu tun haben und vielleicht gibt es ja die ganz große Überraschung: Europa League! Von mehr will ich nun wahrlich noch nicht sprechen...  
