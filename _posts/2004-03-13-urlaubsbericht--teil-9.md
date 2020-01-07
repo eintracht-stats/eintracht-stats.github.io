@@ -15,10 +15,10 @@ Zunächst wunderten wir uns aber noch über LKW-Kolonnen von teilweise über 15 
 
 Das war auch schon mein Bericht von meiner zweiten Dänemark-Reise. Doch folgendes muss ich noch erwähnen:  
   
-- Zwockel  
+\- Zwockel  
 \-Schnecke und Hase  
-- Die nicht seltene Lichthupe der entgegenkommenden Autos, da wir bei strahlendem Sonnenschein das Licht vergessen hatten  
-- Alexander und sein Super-Song  
-- eine Woche Extrem-Zapping  
-- die Erkenntnis, dass nicht in jeder Milchtüte auch wirklich Milch drin ist  
+\- Die nicht seltene Lichthupe der entgegenkommenden Autos, da wir bei strahlendem Sonnenschein das Licht vergessen hatten  
+\- Alexander und sein Super-Song  
+\- eine Woche Extrem-Zapping  
+\- die Erkenntnis, dass nicht in jeder Milchtüte auch wirklich Milch drin ist  
  und die unvergessliche Erfahrung eine Woche mit einem HUND unter einem Dach zu leben..... :-)

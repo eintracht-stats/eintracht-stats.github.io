@@ -15,7 +15,7 @@ title: Blog
       <h2 class="sub-title"> {{ post.subtitle }}</h2>
     {% endif %}
     <span class="post-date">{{ post.date | date_to_string }}</span>
-    {{ post.content }}
+    {{ post.content | truncatewords: 80 }}
   </div>
   {% endfor %}
 </div>
