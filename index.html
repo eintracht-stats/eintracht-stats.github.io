@@ -11,21 +11,21 @@ title: Blog
         {{ post.title }}
       </a>
     </h1>
-    {% if post.subtitle %}
+    {%- if post.subtitle -%}
       <h2 class="sub-title"> {{ post.subtitle }}</h2>
-    {% endif %}
+    {%- endif -%}
     <span class="post-date">{{ post.date | date_to_string }}</span>
-    {% assign content_trunc = post.content | truncatewords: 60 %}
-    {% assign content_full = post.content %}
-    {% assign content_trunc_size = content_trunc | size %}
-    {% assign content_full_size = content_full | size %}
+    {%- assign content_trunc = post.content | truncatewords: 60 -%}
+    {%- assign content_full = post.content -%}
+    {%- assign content_trunc_size = content_trunc | size -%}
+    {%- assign content_full_size = content_full | size -%}
     {{ content_trunc }}
     
-    {% if content_full_size > content_trunc_size %}
+    {%- if content_full_size > content_trunc_size -%}
       <a href="{{ post.url }}" class="post-more">mehr</a>
-    {% endif %}  
+    {%- endif -%}  
   </div>
-  {% endfor %}
+  {%- endfor -%}
 </div>
 
 <div class="pagination">
