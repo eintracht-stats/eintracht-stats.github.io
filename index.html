@@ -15,17 +15,20 @@ title: Blog
       <h2 class="sub-title"> {{ post.subtitle }}</h2>
     {% endif %}
     <span class="post-date">{{ post.date | date_to_string }}</span>
-    {{ post.content | truncatewords: 80 }}
+    {% assign content_trunc = post.content | truncatewords: 60 %}
+    {% assign content_full = post.content %}
+    {% assign content_trunc_size = content_trunc | size %}
+    {% assign content_full_size = content_full | size %}
+    {{ content_trunc }}
+    
+    {% if content_full_size > content_trunc_size %}
+      <a href="{{ post.url }}" class="post-more">mehr</a>
+    {% endif %}  
   </div>
   {% endfor %}
 </div>
 
 <div class="pagination">
-  {% if paginator.next_page %}
-    <a class="pagination-item older" href="{{ site.baseurl }}/page{{paginator.next_page}}">Ältere Posts</a>
-  {% else %}
-    <span class="pagination-item older">Ältere Posts</span>
-  {% endif %}
   {% if paginator.previous_page %}
     {% if paginator.page == 2 %}
       <a class="pagination-item newer" href="{{ site.baseurl }}/">Neuere Posts</a>
@@ -34,6 +37,11 @@ title: Blog
     {% endif %}
   {% else %}
     <span class="pagination-item newer">Neuere Posts</span>
+  {% endif %}
+  {% if paginator.next_page %}
+    <a class="pagination-item older" href="{{ site.baseurl }}/page{{paginator.next_page}}">Ältere Posts</a>
+  {% else %}
+    <span class="pagination-item older">Ältere Posts</span>
   {% endif %}
 </div>
 

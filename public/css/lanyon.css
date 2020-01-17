@@ -41,14 +41,13 @@ body {
 }
 
 html {
-  font-family: "PT Serif", Georgia, "Times New Roman", serif;
+  font-family: "Roboto", Helvetica, Arial, sans-serif;
 }
 
 h1, h2, h3, h4, h5, h6 {
-  font-family: "PT Sans", Helvetica, Arial, sans-serif;
+  font-family: "Roboto Slab", Helvetica, Arial, sans-serif;
   font-weight: 400;
-  color: #313131;
-  letter-spacing: -.025rem;
+  color: black;
 }
 
 
@@ -309,7 +308,7 @@ a.sidebar-nav-item:focus {
 
 .page,
 .post {
-  margin-bottom: 4em;
+  margin-bottom: 3em;
 }
 
 /* Blog post or page title */
@@ -441,10 +440,15 @@ a.pagination-item:hover {
  * Based on colors from Base16: http://chriskempson.github.io/base16/#default.
  */
 
-.container a,
+.post p a,
+.page p a,
+.paginantion a,
+.year-box a,
 .related-posts li a:hover {
   color: #990000;
 }
+
+
 
 
 /*
