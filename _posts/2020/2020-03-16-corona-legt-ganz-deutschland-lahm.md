@@ -1,0 +1,6 @@
+---
+layout: post
+title: Corona legt ganz Deutschland lahm
+
+---
+Angesichts des grassierenden Corona-Virus erscheint es mehr als nebensächlich hier noch die beiden fehlenden Ergebnisse nachzutragen. Dieser Pflicht möchte ich trotzdem nachkommen, auch wenn sich die Eintracht hier wahrlich nicht mit Ruhm bekleckert hat. Ein 0:4 bei Bayer Leverkusen und ein 0:3 im Geisterspiel gegen den FC Basel... falls es in dieser Saison überhaupt noch einmal weitergeht, kann das Ziel nur lauten den Abstieg zu vermeiden. Fraglich ist jedoch, wie die Saison zu Ende gespielt werden soll. Bei der heutigen DFL-Sitzung wurde die Pause bis mindestens Anfang April verlängert. Aber auch danach wird sicherlich nicht sofort weiter gespielt. Für den Fußball ist das sicherlich eine bedrohliche Situation, da die Konten der Vereine nicht wirklich prall gefüllt sein dürften... Aber unabhängig davon ist es auch für das ganze Land eine unfassbare Lage. Dass ich nochmal leere Supermarkt-Regale erleben würde, hätte ich nie gedacht. Ich bin ein Stück weit sprachlos... Hoffen wir das Beste! Bleibt gesund!
