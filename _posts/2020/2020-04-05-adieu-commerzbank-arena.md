@@ -1,0 +1,6 @@
+---
+layout: post
+title: Adieu Commerzbank-Arena...
+
+---
+Die Tage der Commerzbank-Arena sind gezählt! Ab Sommer geht die Eintracht eine Partnerschaft mit der Deutschen Bank ein. Das Stadiongelände heißt dann Deutsche Bank Park. Die Eintracht, die das Stadion in Zukunft in Eigenregie vermarkten wird, erhält dafür innerhalb der nächsten 7 Jahre annähernd  40 Millionen Euro. Bislang floss nur etwa 1 Mio. jährlich, der Rest ging an die Stadt Frankfurt. Dieser Deal kommt natürlich genau zur rechten Zeit: Nichts ist momentan wichtiger als ein Stückchen mehr Planungssicherheit. Denn nach wie vor ist völlig unklar, ob und wie die Saison zu Ende gespielt werden kann. Sicher scheint jedoch, dass es ausschließlich Geisterspiele geben kann - und das vielleicht sogar bis Jahresende. Der Corona-Horror geht weiter...
