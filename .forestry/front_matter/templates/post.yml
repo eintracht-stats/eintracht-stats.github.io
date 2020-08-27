@@ -10,6 +10,7 @@ fields:
   name: title
   label: title
 pages:
+- _posts/2020-08-27-eintracht-schlagt-eindhoven.md
 - _posts/2020/1-1-in-koln-eintracht-muss-europatraume-begraben.md
 - _posts/2020/1.ffc-frankfurt-fusioniert-mit-eintracht.md
 - _posts/2020/2020-01-22-endlich-wieder-ein-sieg.md
@@ -42,4 +43,3 @@ pages:
 - _posts/2020/warten-auf-das-fernsehgeld.md
 - _posts/2020/warten-auf-die-geisterspiele.md
 - _posts/2020/wildes-spiel-3-3-gegen-freiburg.md
-- _posts/eintracht-schlagt-eindhoven.md
