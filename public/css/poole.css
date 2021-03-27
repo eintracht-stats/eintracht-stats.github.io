@@ -66,7 +66,7 @@ body {
 
 /* No `:visited` state is required by default (browsers will use `a`) */
 a {
-  color: #990000;
+  color: #c40812;
   text-decoration: none;
 }
 a strong {
@@ -359,7 +359,7 @@ tbody tr:nth-child(odd) th {
   margin: 0.6rem 0.2rem;
   border-style: solid;
   border-width: 6px 6px 0 6px;
-  border-color: #990000 transparent transparent transparent;
+  border-color: #c40812 transparent transparent transparent;
 }
 
 .post-back {
@@ -374,7 +374,7 @@ tbody tr:nth-child(odd) th {
   margin: 0.4em -12px;
   border-style: solid;
   border-width: 6px 6px 6px 0;
-  border-color: transparent #990000 transparent transparent;
+  border-color: transparent #c40812 transparent transparent;
 }
 
 /* Related posts */

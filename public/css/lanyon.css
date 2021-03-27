@@ -96,7 +96,7 @@ h1, h2, h3, h4, h5, h6 {
   padding-top:    1rem;
   padding-bottom: 1rem;
   margin-bottom: 3rem;
-  background-color: #990000;
+  background-color: #c40812;
 }
 .masthead-title {
   margin-top: 0;
@@ -445,7 +445,7 @@ a.pagination-item:hover {
 .paginantion a,
 .year-box a,
 .related-posts li a:hover {
-  color: #990000;
+  color: #c40812;
 }
 
 
