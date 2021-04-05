@@ -1,0 +1,6 @@
+---
+layout: post
+title: Big Points in Dortmund!
+
+---
+Während die Gerüchte um einen Abgang von Adi Hütter zu Borussia Mönchengladbach nicht verstummen, macht die Eintracht einen großen Schritt in Richtung Champions League! Beim direkten Verfolger in Dortmund gewinnt die Mannschaft mit 2:1. Die Führung resultierte aus einem Eigentor von Schulz nach 10 Minuten. Kurz vor der Pause verweigerte Schiri Gräfe einen für mich klaren Handelfmeter, obwohl er sich die Szene selbst noch einmal anschaute. Unverständlich... Der nächste Nackenschlag mit dem Pausenpfiff: Hummels gleicht nach einer Ecke aus. Davon ließ sich die Eintracht jedoch nicht beirren. Erneut durch eine VAR-Entscheidung wurde der neuerliche Führungstreffer von Ilsanker zurückgenommen. Diesmal korrekt - Abseits. Das Unentschieden wäre schon ein gutes Ergebnis gewesen. Doch einen hatten wir noch: Kostic flankt, Silva köpft - 2:1 in der 87. Minute. Damit war die Sensation perfekt! Jetzt haben wir sieben Punkte Vorsprung auf Platz 5 bei sieben ausstehenden Partien. So nah dran waren wir noch nie...
