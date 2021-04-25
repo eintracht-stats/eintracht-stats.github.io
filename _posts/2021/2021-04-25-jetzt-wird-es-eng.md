@@ -1,0 +1,6 @@
+---
+layout: post
+title: Jetzt wird es eng...
+
+---
+In Leverkusen können wir einfach nicht gewinnen. Trotz eines Treffers von Silva unterlag die Eintracht dort verdient mit 1:3 und liegt jetzt nur noch einen Punkt vor dem BVB. Das Restprogramm scheint machbar und wir haben es selbst in der Hand. Nur einen Ausrutscher dürfen wir uns jetzt nicht mehr erlauben...
