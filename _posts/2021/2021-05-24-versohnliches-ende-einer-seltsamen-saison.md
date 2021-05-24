@@ -1,0 +1,6 @@
+---
+layout: post
+title: Versöhnliches Ende einer seltsamen Saison
+
+---
+Die Eintracht hat mit einem Sieg im letzten Heimspiel gegen Freiburg ein versöhnliches Ende unter diese Saison gesetzt. Silva (Nummer 28, der neue Rekord unserer Eintracht), Touré und Ache erzielten die Treffer. Damit haben wir den zweitbesten Torschützen der Liga gestellt - nur getoppt vom Außerdirdischen Lewandowski. Wir haben 60 Punkte und mit Platz 5 die beste Platzierung seit ich denken kann (naja fast). Dazu noch eine Saison ohne Heimniederlage. Eigentlich alles perfekt. Wenn, ja wenn... wir hätten die Champions League einfach packen müssen. Es ist nach wie vor unendlich traurig. Aber es wird laufen wie immer: Jetzt können wir erstmal ein bisschen abschalten, dann gucken wir die Euro 2020 (!) und dann kommen wieder all die schönen Gerüchte um neue oder wechselwillige Spieler. Und irgendwann ist August und es geht wieder los. Und dann, spätestens dann, freuen wir uns auch über die Europa League. Axel Hellmann hatte Recht, als der die Schönrednerei der Herren Hütter und Bobic kritisierte. Aber mit etwas Abstand werden wir diese Saison als eine der besseren ansehen dürfen. Jetzt warten wir einfach mal, wer der neue Trainer wird und was sonst so alles im Sommer passiert...
