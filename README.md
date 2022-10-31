@@ -2,7 +2,7 @@
 
 ## Author
 
-Christopher Seib
+C. Seib
 
 ## The site is based on the Lanyon Jekyll Theme by Mark Otto
 
