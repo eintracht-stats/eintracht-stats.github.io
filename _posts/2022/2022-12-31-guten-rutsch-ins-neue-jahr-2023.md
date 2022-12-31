@@ -241,6 +241,10 @@ Und dann gab es natürlich noch zahlreiche Highlights:
 
 \- Die Hefte, die die Kleinen uns immer wieder aus den Rippen leierten
 
+\- Die Angst vor Boukaka
+
+\- Boukaka, Papapa und Wwiteb 
+
 \- Vor- und Nachteile von elektrischen Rollläden
 
 \- Die Vermieter-Akte, in der alles geregelt ist
@@ -255,5 +259,4 @@ Und und und….
 
 Das und vieles mehr war unser 2022… Es ist wirklich wieder einiges los gewesen. Von Corona-Infektion bis Umzug war alles dabei. Mehr geht kaum, es darf gerne etwas ruhiger werden…
 
-Zum Abschluss jetzt noch mein traditioneller Gruß: Ich wünsche allen Eintrachtfans, allen Lesern von Daily Flip, allen weiteren Besuchern dieser Seite und allen, die mir sonst noch nahe stehen: **Guten Rutsch und ein ausgesprochen schönes, erfolgreiches, glückliches und friedliches Jahr 2023!!!**  
- 
+Zum Abschluss jetzt noch mein traditioneller Gruß: Ich wünsche allen Eintrachtfans, allen Lesern von Daily Flip, allen weiteren Besuchern dieser Seite und allen, die mir sonst noch nahe stehen: **Guten Rutsch und ein ausgesprochen schönes, erfolgreiches, glückliches und friedliches Jahr 2023!!!**
