@@ -61,6 +61,8 @@ Und dann gab es natürlich noch zahlreiche Highlights:
 
 \- Auswendig aufgesagte Bücher – aber wehe, wenn man hinschaut
 
+\- Käpt'n Sharky, der das Schicksal von Hummel Bommel teilt
+
 \- Die April-Erkältung, die kein Corona war
 
 \- Die August-Erkältung, die aber so was von Corona war
@@ -244,6 +246,10 @@ Und dann gab es natürlich noch zahlreiche Highlights:
 \- Die Angst vor Boukaka
 
 \- Boukaka, Papapa und Wwiteb 
+
+\- Die Jagd auf Fliegen mit dem Sohnemann
+
+\- die Wasserbahn
 
 \- Vor- und Nachteile von elektrischen Rollläden
 
