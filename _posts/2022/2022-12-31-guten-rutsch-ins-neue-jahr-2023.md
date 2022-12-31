@@ -87,6 +87,10 @@ Und dann gab es natürlich noch zahlreiche Highlights:
 
 \- Papa Rhein
 
+\- das Windeltraining
+
+\- das Drama nach gutem Start...
+
 \- Eine Fotosession
 
 \- Die 50+2-Jahrfeier mit unserem nächsten Karussellerlebnis
