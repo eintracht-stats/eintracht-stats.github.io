@@ -42,6 +42,21 @@ a:focus {
     text-decoration: underline
 }
 
+@media (prefers-color-scheme: dark) {
+    body {
+        background-color: #121212;
+        color: #bdc1c6;
+    }
+
+    a {
+        color: #ca6d72;
+    }
+}
+
+
+
+
+
 h1,
 h2,
 h3,
@@ -53,7 +68,6 @@ h6 {
     text-rendering: optimizeLegibility;
     font-family: "Roboto Slab", Helvetica, Arial, sans-serif;
     font-weight: 400;
-    color: #000
 }
 
 h1 {
@@ -260,6 +274,12 @@ tbody tr:nth-child(odd) th {
     background-color: #c40812
 }
 
+@media (prefers-color-scheme: dark) {
+    .masthead {
+        background-color: #333333;
+    }
+}
+
 .masthead-title {
     margin-top: 0;
     margin-bottom: 0;
@@ -287,6 +307,16 @@ tbody tr:nth-child(odd) th {
 .post-title,
 .post-title a {
     color: #303030
+}
+
+@media (prefers-color-scheme: dark) {
+    .page-title,
+    .post-title,
+    .post-title a {
+        color: white;
+    }
+
+    
 }
 
 .page-title,
@@ -882,6 +912,30 @@ a.sidebar-nav-item:focus {
     color: #c40812
 }
 
+@media (prefers-color-scheme: dark) {
+    .post p a,
+    .page p a,
+    .paginantion a,
+    .year-box a,
+    .related-posts li a:hover {
+        color: #ca6d72
+    }
+
+    .post-more::before {
+        content: '  ';
+    }
+
+    .post-more::after {
+        border-color: #ca6d72 transparent transparent transparent;
+    }
+
+    .post-back::before {
+        border-color: transparent #ca6d72 transparent transparent
+    }
+}
+
+
+
 .sidebar-overlay #sidebar-checkbox:checked~.wrap {
     -webkit-transform: translateX(0);
     -ms-transform: translateX(0);
@@ -913,7 +967,6 @@ a.year-box {
 }
 
 .container ul.posts-by-year a {
-    color: #313131
 }
 
 .container ul.posts-by-year a span {
