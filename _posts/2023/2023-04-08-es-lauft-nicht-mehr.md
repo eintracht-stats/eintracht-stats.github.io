@@ -1,0 +1,6 @@
+---
+layout: post
+title: Es läuft nicht mehr...
+
+---
+ Eintracht ist komplett aus dem Tritt geraten: 0:2 bei Union Berlin, 1:1 gegen Bochum, dann ein überzeugender Sieg im Pokal gegen Union (2:0). Und heute der nächste Rückschlag, 1:3 in Leverkusen. Wenn wir nicht den Pokal gewinnen, werden wir wohl Europa verspielen...
